@@ -4565,3 +4565,25410 @@ On Fri, Aug 1, 2025 at 3:04 PM TSHINGOMBEKB TSHITADI <tshingombekb@gmail.com> 
 5117K View as HTML Scan and download
 		DL-VPC-LAB-4.0-SMART-SIMULATOR-FOR-PROCESS-CONTROL-TRAINING.pdf
 5117K View as HTML Scan and download
+Career experience discovery
+
+Table of Contents
+Career experience discovery	1
+4.1 Sci-Bono ICT Academy <notifications@edu-sci-bono-ict-academy.odoo.com>	12
+Images in this message are hidden.	12
+Introduction	13
+Course Completion Guide	13
+________________________________________	13
+AI Fluency	14
+Chapter 1.01: What is Artificial Intelligence?	14
+Introduction to Artificial Intelligence	14
+Defining Artificial Intelligence	15
+What is AI?	15
+What Makes AI "Intelligent"?	15
+Algorithm	15
+The Turing Test	16
+The Turing Test	16
+Turing's Goal	16
+AI in Everyday Life	16
+AI vs. Fiction	17
+AI Fluency	17
+Chapter 1.02: Knowledge vs Intelligence	17
+Introduction to Knowledge vs Intelligence	17
+The Chinese Room Argument	18
+Key Differences: Knowledge vs Intelligence	18
+Knowledge vs Intelligence	18
+Practical Examples of Knowledge vs Intelligence	19
+AI in Medical Diagnostics	19
+Applications in Modern AI	19
+The Fuel for AI: Data	19
+AI Fluency	20
+Chapter 1.03: Data Everywhere	20
+Introduction to Data	20
+Data: The Fuel for AI	20
+The Importance of Data in AI	20
+The Data Explosion	21
+How We Produce Data	21
+Refining Raw Data	21
+Quality Over Quantity	21
+Applications of Data in AI Systems	21
+From Data to Value	22
+AI Fluency	22
+Chapter 1.04: Finding Patterns in Data	22
+Introduction to Patterns in Data	22
+Patterns	22
+Pattern Recognition in Action	22
+Time-Based Patterns	23
+How AI Models Identify Patterns	23
+Pattern Recognition in Social Media	23
+Business Applications of Pattern Recognition	24
+Machine Learning and Pattern Recognition	24
+AI Fluency	24
+Chapter 1.05: Machine Learning	24
+Understanding Machine Learning	24
+AI vs Machine Learning	25
+Distinguishing Between AI and Machine Learning	25
+Historical Origin	25
+Types of Machine Learning	25
+Mathematical Foundations of Machine Learning	26
+The Bicycle Analogy: Learning from Experience	26
+Learning Through Experience	26
+AI Fluency	27
+Chapter 1.06: Types of Machine Learning	27
+Learning Methods in Machine Learning	27
+Three Main Types of Machine Learning	27
+Supervised Learning: Learning with a Trainer	28
+How Supervised Learning Works	28
+Unsupervised Learning: Figuring It Out on Your Own	28
+Clustering and Association	29
+Reinforcement Learning: Learning from Rewards	29
+Reward-Based Learning	29
+Deep Learning: Taking Machine Learning Further	30
+Neural Networks and Deep Learning	30
+AI Fluency	30
+Chapter 1.08: Natural Language Processing (NLP)	31
+My account	31
+Ranks	32
+Badges	33
+Pages	35
+Elementor Data Updater	36
+Love using Elementor?	36
+Filter pages list	36
+Pages list navigation	36
+Pages list	36
+tshingombe fiston <tshingombefiston@gmail.com>	41
+Your 3CX Live Chat is almost ready!	41
+Next Up	41
+Electrical	42
+HR Approved Policies	42
+Course Description	42
+Learn from Industry Experts	45
+Actionable Training	45
+Industry Exams	45
+Premium Material	45
+Our Most Popular Courses	45
+ECD	45
+Cyber Security	46
+Electrical	46
+Introduction to K53	46
+AI Fluency	46
+Be in Demand with Our Professional Training	46
+Industry Partners	46
+What Our Students Have to Say	47
+L1: Introduciton to AI Quiz	48
+AI Fluency	52
+Course Description	52
+Our Most Popular Courses	54
+Experience,base frame theory practical on ...Competition science career engineering.rwiten job scie Bono and department education . institution	55
+>	66
+>	68
+>	73
+>	81
+>	87
+>	94
+>	105
+>	105
+>	114
+>	115
+tshingombe fiston <tshingombefiston@gmail.com>	130
+tshingombe fiston <tshingombefiston@gmail.com>	133
+>	161
+tshingombe fiston <tshingombefiston@gmail.com>	173
+tshingombe fiston <tshingombefiston@gmail.com>	180
+tshingombe fiston <tshingombefiston@gmail.com>	183
+>	191
+>	199
+>	212
+tshingombe fiston <tshingombefiston@gmail.com>	234
+tshingombe fiston <tshingombefiston@gmail.com>	240
+tshingombe fiston <tshingombefiston@gmail.com>	244
+tshingombe fiston <tshingombefiston@gmail.com>	257
+tshingombe fiston <tshingombefiston@gmail.com>	261
+tshingombe fiston <tshingombefiston@gmail.com>	263
+tshingombe fiston <tshingombefiston@gmail.com>	267
+tshingombe fiston <tshingombefiston@gmail.com>	268
+tshingombe fiston <tshingombefiston@gmail.com>	272
+tshingombe fiston <tshingombefiston@gmail.com>	278
+tshingombe fiston <tshingombefiston@gmail.com>	283
+tshingombe fiston <tshingombefiston@gmail.com>	286
+tshingombe fiston <tshingombefiston@gmail.com>	291
+tshingombe fiston <tshingombefiston@gmail.com>	313
+tshingombe fiston <tshingombefiston@gmail.com>	316
+
+
+
+
+
+
+
+
+
+
+
+
+
+	
+
+
+
+
+
+
+
+
+
+
+	
+ 
+
+-1.1 career center discovery 
+
+Experimental: grade school  to job level beginning  intermediate advanced on job post minim cadet junior senior .. principle. ..
+Overview:
+Explanation 
+.1.2 psychometric assessment service:
+1.3 development life stage life stage 0-80 years .
+. Early childhood,scholatisc,career , preschool,grade 1-13 school,speed ..
+- school readiness physical learning barrier neurodevelopment ,
+- disorder learning amongst , assessment , assessment accomodations 
+-2. ICT Sci- boni : academy program : I t @ sci boni co.za 
+- UIR skills .
+- youth aged 18-25 training ite CCNA security Linux IOT , python essential skill 
+Skill and career readiness skills .
+- module basic to advanced word excell access power specialist 5 - day digital literacy scie certiport expert .
+- accredited end user computing technical support and system support 
+- flow to build  self a bright technical future: 
+- considering a technical career .
+-let get down to work .
+- how do I play father 
+- technical course career engineering praticL problem solution where a qualified technician come TVET college.
+-realistic , investigation,artistic social enterprise .
+- education :   | nqf| qualification type
+- school     | 1 | grade 4
+- technical education | 2 | grade 10 nation technical 
+- technical education |3 | grade 12 
+- tvet     | 4| honourable degre engineering 
+- university technology • post graduate diploma master degre ..
+.-- discovery outcome 
+Job function grade ,function of function 
+Talent semester 
+Duty 
+..senior level,cadet level , ,minim ,l 
+Sector mining qualification labour qualification non in saqa nqf qualification 
+Category,artisant tradman skill man semi skill , ouvrier ,,  cadre. 
+Qualification years technician consultant professional ..
+-3.1. the career pathways skilled product work ,on artisant , technician certifiw skilled engineering manufacturing professional working of engineering team is artisan 
+-3.2.career in mechanical technology testing quality product material computer .
+- refractory reason cuts ,and shPw soft stone blacks and slabs for construction..
+- 3.3career  technology electrician wiring 
+Electrotechnic  panel builder.automorive electrician.
+.
+3.4 career technology civil: carpentert ,tiled plumber installation builder..part 3 how 
+- are you realistic | can you | do you , summer.
+*Practical mechanical | fix electrical things | explore mechanic work hand building  thing ..
+*Are you investigation inquisition  analytical scientific observant logic | think abstract || explore idea ,explore ideas,use computer ,reform laboratory 
+
+
+*Creative intuitive imagination innovation | develop new idea || solve problem read stories paint ..
+*Friendly modeliste , insight understand| teac or train other express freelance lead ||| use social or interpersonal people with ...
+
+* Are you: entreprusing are you self confidence assertive know to ask for | star project ,convince things sell thing promo ||| do you like make decisions that affect other use energy or drive ..are conventional .
+* Well organize .
+- accurate., consent | can you work under guidance an authorized,write report keep accurate record , performance calculation|| do you like to follow define make chart table work with number ..
+
+_______________________________________
+
+News papper written job library career center and readiness job book page magazine ,,1to web ,, education department and science technology department combination..
+
+Article 
+
+Research fund ,nrf / dst career department . education and  science 
+
+* Lecons nano technology : water medicine ,energy ,mining .
+* What is nnanotech
+
+
+* Where : energy come from ,non renewable source .
+* Activity , 1,2,3  build better solar panel danger of mining .
+* Extension activity.
+* Activity choose activity : 
+* Describe the mining that are showing.
+- describe the mining that are .
+- poster is colour and creative :2 marks 
+- posted shows origt idea :2 marks
+- poster clearly presented : wmark 
+- information on posted information 2 marks .
+- group work al learner where .
+- in gas detector are user in metal oxide nano wire use poison  gas invest resistance .apparatus ,a torch bulb ,battery ,two batteries threw electrical .
+- write an investigation question : 
+- write a hypothesis for you :
+- procedure the investigation : 
+- connection your : build circuit.
+Begin pen.
+- once you have completed.
+- now lead .
+- observe brightness .
+Now decrease the length of pencil observe  record .
+- 4 analyse your data investigation .
+- write a conclusion:
+- if you want to print only part worksheu you conselected the range you to print and will often printed 
+
+
+	
+	
+ 
+
+- research career impletation financial service schedule implementation,sight system.
+
+-Execution phase job trading : phase preliminary,selection phase insurance ,phase finalize pre projection ,reprojection , 
+
+ procurement .. February 2025..
+C.business assumption..-
+- proposed implementation option for phase ,1 product database .process costs scope.
+- processes for part proposed : advance procurement.
+- workflow processs 14 department.
+-suppliers .
+BBEEE create customer requirements information.
+- update supplier email address ,general ledger ,,
+- G L account updated sector ,configura email it smto ,create projects ,assign cost , customer of report builders form ,
+: requisition :............R1000
+- Rfq:10000
+- purchase orders :..10000......
+- supplier invoice :10000
+- return to supplier : ..10000
+* Services : 100000
+- data cleansing excluded proposal if requirements it will parr change ..
+- scie bon master transaction data preparation :10000
+- customisation it proposal .
+- installation 1 server and 10 workstation : 10000
+-: customization of report builders forms :-teating
+Installation on 1 server .
+- the consulting team will include testing as part of deliverables .
+- training be provide 
+- responsible. Testing advanced procures work: 1099
+- data migration :
+- scie bon data in excell import file : 1000.
+-operatiinal go live development: during , project plan sight tech month ,
+- general : suitable computer data backup device ,operating system ,
+- disbursement: 
+- the charge subject period review adjustable..
+- travel 
+ : private transport R 585 or ,085 per km rand ,  fligfg taxis customer .
+
+Travel time , insurance, accomodations,substance ,out town expense , communication,other ..
+Salary database 
+- salary bursary experimental job theory base practical base .
+- data management system info
+-data management info  
+- reward info case .sale force trend
+- life cycle  recruiting profile polfine recruitment .. amendment.
+Overload ..
+Protection data : legal data depot 
+Archive data internet library bibliography internet : 
+Protection: popia 
+
+
+- traffic .warden ..fire script encryption 
+- fox network force .. awareness cost
+Cleaning data force guard security info system,policy safety info system ,
+Casebook court processor aware .
+Contractor subcontractor 
+Office travel : cybernetic telemarketing.
+
+Deployment azure GitHub cost .strip bank 
+Key .authenticator code , social security 
+Contribution data 
+
+Ai generated 
+
+*General terms and conditions :
+- proposal acceptance:
+- commencement: to timeley date commence service shall, 
+- payment 30 days .software cash delivery 
+- force majeure 
+- disputes and jurisdiction 
+- term contract 
+
+
+4.1 Sci-Bono ICT Academy <notifications@edu-sci-bono-ict-academy.odoo.com> 
+	May 29, 2025, 2:53 PM
+	
+	
+to me 
+ 
+
+Images in this message are hidden. 
+This message appears suspicious. Don't show the images unless you trust the sender and the message.
+Your Account
+fiston 	 
+________________________________________
+
+Dear fiston,
+
+Your account has been successfully created!
+Your login is tshingombefiston@gmail.com
+To gain access to your account, you can use the following link: 
+Go to My Account  
+Thanks,
+________________________________________
+
+
+Sci-Bono ICT Academy 
++27 11 639 8400 | yusufm@sci-bono.co.za | http://sci-bono.co.za 
+
+Powered by Odoo 
+
+
+
+	
+	
+	
+ 
+
+IntroductionCourse Completion Guide Offline Content CertificationsNext Steps FAQs
+Introduction
+________________________________________
+Welcome to our AI Fluency Program! We’ve partnered with Microsoft to bring you an exciting opportunity to master AI. Through Sci-Bono’s AI Fluency Program, you’ll gain the knowledge and skills to integrate AI into your everyday life—no technical background required.
+Our program includes 44 bite-sized videos covering everything from AI fundamentals and ethical considerations to real-world applications. Best of all, you can complete the course in just 5 hours and earn all 6 AI certifications for free.
+Start learning today and be part of the future of AI!
+Course Completion Guide
+________________________________________
+ 
+To get the most out of our AI fluency content, you must complete the courses in the following order without skipping any sections. 
+ 
+We will be tracking your progress to ensure a thorough understanding of each topic:
+
+1. AI Basics 
+2. Generative AI 
+3. Internet Search and Beyond 
+4. Responsible AI 
+5. What is Microsoft Copilot 
+6. AI For All  
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.01: What is Artificial Intelligence?
+Understanding the fundamentals of AI
+Introduction Defining AI AI Intelligence Turing Test Everyday AI 
+Introduction to Artificial Intelligence
+Artificial intelligence, or AI, has become a buzzword you might have heard recently through social media, in conversations, or even on TV. However, it is not new. In fact, you have been using AI for years and might not even realize it.
+AI has evolved from a new concept to a technology integrated into our daily lives.
+At times, AI is portrayed as a force capable of changing the way we live, work, and interact. But beyond the hype, AI is a tool that has been evolving over decades, shaped by the contributions of countless individuals across various fields.
+And AI is not just for those who work with technology—it is for all of us. Understanding the fundamentals of artificial intelligence helps demystify this increasingly important technology and empowers us to engage with it more effectively.
+Defining Artificial Intelligence
+What is AI?
+AI is the ability of a computer system to learn from past data and errors, enabling it to make increasingly accurate predictions for future behavior.
+This encompasses a broad range of activities, such as problem-solving, speech recognition, learning, and decision-making. AI systems can process and analyze vast amounts of data to identify patterns and make predictions that would be difficult or impossible for humans to discern.
+AI encompasses problem-solving, speech recognition, and innovative thinking.
+What Makes AI "Intelligent"?
+So, what makes AI 'intelligent'? At its core, AI is the intelligence demonstrated by software or machines in performing tasks that typically require human intelligence.
+These tasks can include recognizing patterns, solving problems, or making decisions. For example, when you interact with Siri on your mobile phone, it is not exhibiting intelligence in the same way a human would.
+Rather, humans have programmed it to respond to certain prompts and execute functions, such as providing the latest weather update in your area or letting you know your local news.
+A chess-playing AI follows algorithms and strategies, learning from experience.
+Consider a robot playing chess with a human. We observe it making strategic moves, but does that mean it is 'intelligent' in the human sense? Well, the answer is no. The robot is merely following algorithms and strategies it has been programmed with, and it learns from past games through machine learning, which allows it to improve its performance over time.
+Algorithm
+Sequences of step-by-step instructions given to a computer that equip it to solve specific problems.
+The Turing Test
+The question of whether a robot's actions during a chess game equate to intelligence, or if it is just executing a programming process, is not a new one.
+Human A Computer ? 
+The Turing Test evaluates if a machine's responses are indistinguishable from a human's.
+Back in 1950, Alan Turing, a well-known mathematician and computer scientist, asked the question: "How can we determine if a machine is intelligent or not?" To answer this question, he created the famous Turing Test.
+The Turing Test
+In the Turing Test, a human questioner would interact with either a human respondent or a computer. The questioner would then have to evaluate whether it was a computer or a human being that was responding.
+The purpose of the test was not to see if the answer was correct. For example, when asking a question like "what is the sum of two plus two", Turing did not seek to assess if the answer would be four, but more specifically, to evaluate whether the respondent was a machine or a human.
+Turing's Goal
+When Turing created this test, he was trying to reach the point where it would no longer be possible to distinguish between responses from machines and humans, where machines would be able to respond with the same functionalities and nuances that human beings have.
+AI in Everyday Life
+AI has advanced significantly over the years and is increasingly present in our daily lives. Take for instance your interaction with social media apps, like Instagram. The app uses machine learning, a subset of AI, to determine the content to show you next based on your recent activity.
+AI is present in many everyday devices, from smartphones to smart speakers and home robots.
+A similar process is at work when you finish looking at a program on certain streaming apps. The app's AI analyzes your viewing habits to recommend what you might want to watch next.
+AI vs. Fiction
+Even though AI is all around us, it can be portrayed inaccurately, a common occurrence in Hollywood films. Some films depict AI as having feelings or being superior to humans. Usually, these narratives serve to provoke thought rather than accurately represent how humans interact with AI.
+These representations are artistic interpretations and do not actually reflect AI's capabilities. So, while AI can mimic certain aspects of human intelligence, it is important to remember that it operates very differently from human intelligence.
+AI does not have consciousness, emotions, or the ability to understand context in the same way humans do. It is a tool created and controlled by humans, and its capabilities are limited to what it has been programmed to do.
+That is why it is so important to understand what AI is - it allows you to discern fact from fiction.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.02: Knowledge vs Intelligence
+Understanding the key differences between knowledge and intelligence in AI
+Introduction Chinese Room Key Differences Practical Examples AI Applications 
+Introduction to Knowledge vs Intelligence
+Continuing with the question, "Can a machine ever truly be considered intelligent?" In 1980, John Searle, an American philosopher, created a test to answer this question, known as the Chinese Room Argument.
+Artificial intelligence has evolved dramatically from its early conceptual beginnings.
+Correct, artificial intelligence is not a new concept, as it has been developed and tested throughout history. The Chinese Room Argument provides an insightful framework for distinguishing between knowledge and intelligence in AI systems.
+The Chinese Room Argument
+Let's dive into Searle's famous thought experiment, the "Chinese Room Argument."
+汉字 
+The Chinese Room Argument: A person manipulates Chinese symbols using rules without understanding Chinese.
+Imagine you know how to speak Mandarin, but your friend does not. Your friend enters a room filled with symbols and a rulebook. The rulebook states: "When you see this symbol, answer with that symbol".
+You are outside the room, sending your friend a message in Mandarin. Your friend, inside the room, does not understand Mandarin, but follows the rulebook. They look at the symbols, figure out the pattern and respond accordingly.
+When you receive their response, you may think your friend understands Mandarin, but in reality, they are just following a set of rules without understanding the language.
+Key Differences: Knowledge vs Intelligence
+Knowledge vs Intelligence
+This test is intended to show that knowledge and intelligence are two very different things. When it comes to AI, a machine may not know Mandarin, but it knows how to recognize the pattern and answer with a message.
+Knowledge Intelligence 
+Knowledge is information stored and accessed, while intelligence is the ability to apply and adapt that knowledge.
+Perhaps this analogy with Mandarin is not part of your daily routine, but interacting with AI virtual assistants like Siri might be. Who has not asked Siri to tell a joke or share a story?
+At the end of the day, these systems convert our language into something they can recognize. They are constantly searching for matches in their databases, but they don't truly comprehend our language. Let's look at another example of this.
+Practical Examples of Knowledge vs Intelligence
+Imagine you are not feeling well, and you arrive at a doctor's office for a visit. You will go through a series of questions asked by nurses, "How long have you been feeling like this?" "What is your pain like, on a scale from 0 to 10?"
+? ? ?  
+The medical diagnostic process involves repetitive data collection that AI could streamline.
+They would check your vital signs, and then when you finally see the doctor, you'd repeat much of the same information. It is a repetitive process that takes up time and resources.
+AI in Medical Diagnostics
+Now, imagine a second situation: Upon arriving at the doctor's office, an AI system asks all these questions. It swiftly analyses your responses, takes your vital signs, and any other relevant information. By the time you meet with the doctor, the system has already generated a preliminary diagnosis based on the patterns it identified.
+It streamlines the process, allowing the doctor to address your needs more efficiently. This system operates intelligently by identifying patterns within the collected data thereby accelerating the diagnosis and treatment process.
+Applications in Modern AI
+As we have seen, knowledge and intelligence, while interconnected, are fundamentally different. Knowledge is about understanding the world around us, while intelligence is about applying that knowledge in new and innovative ways.
+Knowledge and intelligence work together in AI systems to create practical applications.
+But what fuels this programming? What allows AI to recognize patterns, make predictions, and learn from past experiences? The answer is data.
+The Fuel for AI: Data
+Data is the raw material that powers AI systems. It provides the foundation for both knowledge (stored information) and intelligence (pattern recognition and application). As we'll explore in the next chapter, understanding the role of data is crucial to comprehending how modern AI systems function.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course
+About Privacy Policy Terms of Use 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.03: Data Everywhere
+Understanding how data fuels AI systems and impacts our daily lives
+Introduction Data Importance Data Production Data Refinement Applications 
+Introduction to Data
+Have you ever wondered why data collecting is so important in today's world and what it can be used for?
+Data is constantly generated through our everyday digital interactions.
+Data: The Fuel for AI
+Data is the raw material AI systems use to analyze and make predictions, and you probably produce way more data than you realize, even just through your mobile phone.
+Back in the 1990s, the rise of the internet marked a significant leap in access to data and the use of AI. This era set the stage for the data-driven world we live in today.
+The Importance of Data in AI
+Fast forward to the present, we have no shortage of data fuelling analyses and personal pattern recognition processes.
+1990 1995 2000 2010 
+The exponential growth of data over the decades has fueled AI advancement.
+Just imagine how much data is being created while you watch this video. Maybe you are sending a text message to a friend. At the same time, someone next to you might be on a call. Somebody else has just posted a photo on their social media page while another has started a new video series that piqued their interest on a streaming app.
+The Data Explosion
+Data is constantly being generated with each passing second. Every interaction with digital technology—from scrolling through social media to shopping online or even just having your phone in your pocket—creates new data points that can be analyzed by AI systems.
+How We Produce Data
+Correct... all these actions create new data. Let's explore some common ways we generate data in our daily lives:
+People produce data through gaming, phone calls, watching TV, typing, and even at gas pumps.
+A man plays a video game, a woman is on a cell phone, a TV displays a bird, hands type on a keyboard next to a gas pump. All of these everyday activities generate valuable data that AI systems can learn from.
+Refining Raw Data
+Yet this raw data requires careful refinement. Data needs to be refined because the quality of the dataset used to train algorithms have a direct influence on the accuracy of the AI model.
+Raw data must be refined before it can be effectively used by AI models.
+Quality Over Quantity
+That means that diverse and representative high-quality data is essential to developing advanced AI models. The refinement process removes errors, inconsistencies, and biases that could affect the AI's performance.
+Applications of Data in AI Systems
+Consider a music streaming service. It uses the data from your listening habits, such as the songs you skip, the ones you play on repeat, and the playlists you create, to recommend new music that you might like.
+Your Daily Mix Your Top Songs 2024 Your Time Capsule A New Song For You 
+Music streaming services use your listening data to make personalized recommendations.
+This is a practical example of how data is used to enhance our everyday experiences and how datasets train the AI models to recommend the next song for you. And that is what we use machine learning for, to analyse and learn from the data. But it does not stop there.
+From Data to Value
+Once we have this information, we can use it to train AI models, improve products and services, make predictions, and even uncover new insights that were previously hidden. It's about recognizing patterns and making connections that might not be immediately obvious.
+So, the next time you use your mobile phone, remember that every action you take, every piece of data you generate, contributes to this vast, interconnected web of information. And it is through understanding this data that we can truly unlock the potential of AI.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course
+About Privacy Policy Terms of Use 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.04: Finding Patterns in Data
+How AI identifies and utilizes patterns in data
+Introduction Pattern Recognition AI and Patterns Social Media Business Applications 
+Introduction to Patterns in Data
+Data is constantly being created and refined to train AI models. But what exactly are these models looking for in the data?
+AI systems look for patterns within vast amounts of seemingly random data.
+Patterns
+Patterns are identifiable repetitive behaviors or structures that occur within data. AI models are particularly good at recognizing these patterns, mainly because they have access to a large volume of data.
+Pattern Recognition in Action
+Let's consider LinkedIn as an example. Have you ever noticed how LinkedIn suggests people you might know or jobs that you might be interested in?
+in David Senior Art Director at Microsoft, Barcelona Susanne Software Engineering Manager at Microsoft, Paris 
+LinkedIn uses pattern recognition to suggest connections based on your profile and behavior.
+It is not just based on your connections or job search history, but also on the behaviors of people all around the world who have similar connections or job interests.
+Time-Based Patterns
+What is really interesting is platforms like LinkedIn may look for patterns not only within your professional network and job preferences, but also in relation to the specific times you are active on the platform. For example, many people tend to browse apps during their lunch breaks or after work hours, so apps may suggest new connections or posts at those times too.
+How AI Models Identify Patterns
+This pattern identification does not just occur on platforms like LinkedIn, but with many companies across many apps and platforms.
+#  #  #  
+AI systems identify patterns across user behaviors to predict preferences and interests.
+Imagine the benefits of understanding what users really want or even creating new consumption trends based on the market. This understanding allows companies to customise their services for each user, thereby enhancing the user experience and boosting satisfaction.
+Pattern Recognition in Social Media
+It is about using data to meet the needs of the user in the most effective way possible. Every click, every like, every search - these are all pieces of data. AI models process this vast amount of data to notice patterns.
+Every click on a website provides data that AI can use to identify patterns and preferences.
+These patterns help the AI model tailor your experience, making it more relevant and engaging. It is like having a personal assistant who knows exactly what you need, even before you do!
+Business Applications of Pattern Recognition
+Think about the World Cup. What are potentially the best-selling products before the tournament?
+10 
+Recognizing trends like team shirt sales during the World Cup helps businesses make strategic decisions.
+You might be thinking team shirts. Recognizing this trend of team shirt consumption can provide a unique competitive edge for companies. It could even help in the new development of products or features.
+Machine Learning and Pattern Recognition
+But how does an AI model learn to recognize these patterns? Well, it does so through machine learning. In the next chapter, we'll explore how machine learning enables AI systems to identify and utilize patterns to make predictions and decisions.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course
+About Privacy Policy Terms of Use 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.05: Machine Learning
+Understanding the differences between AI and machine learning, and how machines learn from data
+Introduction AI vs ML Learning Types Mathematical Foundations Learning Analogy 
+Understanding Machine Learning
+You might have heard the terms 'machine learning' and 'AI' used interchangeably, and you may be wondering, 'What is the difference?' Well, there is a difference, and it is important to understand how they are different.
+AI ML What's the difference? Artificial intelligence Deep learning Machine learning 
+Machine Learning is a subset of AI, but the two terms are often used interchangeably.
+AI vs Machine Learning
+Artificial Intelligence refers to the intelligence exhibited by software and machines. Machine learning, on the other hand, is a subset of AI. This means that while all machine learning is AI, not all AI involves machine learning.
+Distinguishing Between AI and Machine Learning
+Machine learning is a type of AI where a machine learns from the data it has been given and can identify patterns in that data. It is also the process by which machines learn from data and improve their performance over time.
+Artificial Intelligence Machine Learning All machine learning is AI, but not all AI involves machine learning. ML 
+The relationship between AI and Machine Learning: ML is a specific approach within the broader field of AI.
+Machine learning uses different types of techniques such as supervised learning, unsupervised learning, and reinforcement learning. The term 'Machine Learning' was introduced by Arthur Samuel in 1959, who created a program that played draughts against itself.
+Historical Origin
+Arthur Samuel, an American pioneer in computer gaming and AI, created a program that played draughts. The machine analyzed the game through repetitive plays, identifying strategies to win and avoid losses. Through playing the game and learning what to do to win, it began to detect recurring patterns and would increasingly follow a pattern.
+Types of Machine Learning
+Machine learning can be divided into three main types: supervised learning, unsupervised learning, and reinforcement learning. Each approach has distinct characteristics and applications.
+Supervised learning X Label: Cat Y Label: Dog Unsupervised learning Reinforcement learning + - 
+The three primary types of machine learning: supervised, unsupervised, and reinforcement learning.
+•	Supervised Learning: The algorithm is trained on labeled data, where inputs are paired with correct outputs.
+•	Unsupervised Learning: The algorithm is trained on unlabeled data and must find structure without guidance.
+•	Reinforcement Learning: The algorithm learns by interacting with its environment and receiving rewards or penalties.
+Mathematical Foundations of Machine Learning
+To achieve effective machine learning, Samuel had to use mathematics. Concepts such as linear algebra, calculus, probability, and statistics play a crucial role in understanding how machine learning algorithms learn from data and make predictions.
+Linear Algebra: A = [a₁₁ a₁₂] [a₂₁ a₂₂] Calculus: f'(x) = lim Δx→0 [f(x+Δx) - f(x)]/Δx Probability: P(A|B) = P(B|A)P(A)/P(B) Statistics: σ² = Σ(xᵢ - μ)²/n 
+Mathematical concepts such as linear algebra, calculus, probability, and statistics form the foundation of machine learning algorithms.
+These mathematical concepts help in optimizing the performance of the model, understanding the relationships within the data, and making accurate predictions. They are the building blocks that enable machines to learn from experience and improve over time.
+The Bicycle Analogy: Learning from Experience
+Need further clarity? Let's consider the analogy of learning to ride a bicycle to understand how machine learning works.
+Learning Phase Application Phase 
+The process of learning to ride a bicycle mirrors how machine learning models progress from initial training to independent performance.
+Learning Through Experience
+When you first learn to ride a bicycle, you might start with training wheels. These training wheels are like the initial data set that we feed into the machine learning model. They provide basic guidance and stability. As you practice more, you learn to balance, pedal, and steer. This mirrors how a machine learning model begins to recognize patterns during training.
+Eventually, the training wheels come off, and you adapt to different situations – riding on hills or through crowds. Similarly, a machine learning model applies what it has learned to new data and tasks, improving its performance based on experience.
+This draughts game and bicycle learning analogy highlight the fundamental concepts of machine learning: learning from experience, replicating results, and improving performance. As we continue to explore AI and its capabilities, remember that all machine learning is AI, but not all AI is machine learning.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course
+About Privacy Policy Terms of Use 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.06: Types of Machine Learning
+Exploring supervised, unsupervised, and reinforcement learning approaches
+Introduction Supervised Learning Unsupervised Learning Reinforcement Learning Deep Learning 
+Learning Methods in Machine Learning
+Ever wondered how you learned to ride a bike or play an instrument? It's all about learning from experience, correct? Well, machines can do that, too! They can learn in three main ways: supervised learning, unsupervised learning and reinforcement learning.
+Supervised Unsupervised Reinforcement AI 
+Learning from experience is fundamental to human learning and machine learning.
+Three Main Types of Machine Learning
+Machine learning algorithms can be classified into three main types:
+•	Supervised Learning: Algorithm is trained on data that's labeled with the correct answers
+•	Unsupervised Learning: Algorithm is trained on unlabeled or raw data
+•	Reinforcement Learning: Algorithm is trained by interacting with its environment to achieve a goal
+Let's break down each type with a simple analogy: learning to play football.
+Supervised Learning: Learning with a Trainer
+In the first scenario of our football analogy, you have a trainer who supervises you and teaches you all the rules.
+Rules 0:0 
+In supervised learning, like football training, the algorithm learns from labeled examples provided by a "trainer."
+They carefully explain that when the ball enters the goal, you earn a point, and when the ball goes out of play over the sideline, it must be thrown in by hand. They explain all the rules, how many players there are, how long the game lasts, and so on. In this case, you have a person supervising you and teaching you all the rules of the game.
+How Supervised Learning Works
+In supervised learning, the algorithm is given a set of input data along with the correct output (labels). It learns by finding patterns that map the input to the output. This is similar to how a football coach might show a player exactly what to do, and the player learns by following these instructions.
+Examples of supervised learning applications include:
+•	Email spam detection (spam or not spam)
+•	Image recognition (identifying what's in an image)
+•	Weather forecasting (predicting future weather based on historical data)
+Unsupervised Learning: Figuring It Out on Your Own
+In the second scenario of our football analogy, you are on your own. You start attending games every Thursday and Sunday without prior instruction.
+? Cheering Groaning 
+In unsupervised learning, like watching football games without instruction, the algorithm identifies patterns without being told what to look for.
+Initially, you are puzzled. Why are players using their hands from the sidelines in a game primarily played with feet? Why is the crowd cheering when the ball hits the net, and why do they groan when it does not? But as you keep watching, you start recognizing patterns and understanding the game's dynamics.
+Clustering and Association
+Unsupervised learning algorithms find structure in data without explicit guidance. There are two main types:
+•	Clustering: Grouping similar data points together (like recognizing that certain players on a team work together in specific formations)
+•	Association: Discovering rules that describe relationships in the data (like understanding that when the ball goes into the net, the crowd cheers)
+Applications include customer segmentation, anomaly detection, and recommendation systems.
+Reinforcement Learning: Learning from Rewards
+Now, let's consider a third scenario, which is like reinforcement learning. Imagine you are practicing penalty kicks.
+Positive Reward Negative Reward 
+In reinforcement learning, like practicing penalty kicks, the algorithm learns from positive and negative feedback.
+Each time you score a goal, you feel a sense of achievement, which is a positive reward. Each time you miss, you feel disappointment, which is a negative reward. Over time, by trying different ways of kicking the ball and learning from the rewards, you improve your ability to score penalty kicks.
+Reward-Based Learning
+Reinforcement learning is based on an agent (the learner) that interacts with its environment, taking actions to maximize cumulative rewards. The key components are:
+•	Agent: The decision-maker (like the football player)
+•	Environment: The world in which the agent operates (the football field)
+•	Actions: What the agent can do (different kick techniques)
+•	Rewards: Feedback from the environment (scoring or missing)
+Applications include game playing, robotics, autonomous vehicles, and resource management.
+Deep Learning: Taking Machine Learning Further
+Remember, all machine learning is AI, but not all AI involves machine learning. Machine learning can be broken down into these types: supervised, unsupervised, and reinforcement learning. But we can go even deeper.
+Input Layer Hidden Layer Output Layer 
+Deep learning uses advanced neural networks with multiple layers to process complex information.
+There are advanced forms of machine learning that mimic the human brain's own method of learning. They take the concepts of supervised, unsupervised, and reinforcement learning and apply them on a much larger scale. This is called deep learning.
+Neural Networks and Deep Learning
+Deep learning is a subfield of machine learning inspired by the structure and function of the brain called artificial neural networks. Just as neurons in the brain are connected to form a vast network, deep learning uses artificial neural networks with several layers - hence the term 'deep'.
+These networks can learn and make decisions on their own. They excel at tasks such as:
+•	Image and speech recognition
+•	Natural language processing
+•	Recommendation systems
+•	Medical diagnoses
+In conclusion, machine learning approaches vary based on the task at hand and the available data. Understanding these different types helps us appreciate how AI systems learn and adapt to solve complex problems. As we move forward, we'll explore deep learning in more detail and see how these neural networks are revolutionizing artificial intelligence.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.08: Natural Language Processing (NLP)
+Exploring how AI understands, interprets, and generates human language
+Introduction NLP
+...
+
+[Message clipped]  Entire message not available offline
+
+
+	
+	
+to Sci-Bono 
+ 
+
+•	Home 
+•	Begin AI Journey 
+•	Courses 
+•	Help & FAQs 
+•	
+•	
+•	
+•	fiston 
+•	
+My account
+
+
+Connection & Security 
+Configure your connection parameters 
+
+
+fiston
+st peace college
+20 percy stree jhb
+yeohvill
+jhb 1030
+South Africa 
+0725298946 
+tshingombefiston@gmail.com
+•	Home  
+Courses   Discover More at Sci-Bono   Contact Us  
+•	
+Follow us
+Copyright © Sci-Bono Discovery Centre | ICT and Youth Development Department 2025 
+•	Home 
+•	Begin AI Journey 
+•	Courses 
+•	Help & FAQs 
+•	
+•	
+•	
+•	fiston 
+•	
+Ranks
+Keep learning with Sci-Bono ICT Academy. Collect points on the forum or on the eLearning platform. Those points will make you reach new ranks.
+How do I earn badges?
+When you finish a course or reach milestones, you're awarded badges.
+How do I score more points?
+You can score more points by answering quizzes at the end of each course content. Points can also be earned on the forum. Follow this link to the guidelines of the forum.
+Ranks
+•	
+Doctor
+10,000 points 
+•	
+Master
+2,000 points 
+•	
+Bachelor
+500 points 
+•	
+Student
+100 points 
+•	
+Newbie
+1 points 
+Badges
+Besides gaining reputation with your questions and answers, you receive badges for being especially helpful.
+Badges appear on your profile page, and your posts. 
+
+Get started
+Register to the platform
+212 awarded users 
+
+Know yourself
+Complete your profile
+121 awarded users 
+
+Certified Knowledge
+Get a certification
+57 awarded users 
+
+Power User
+Complete a course
+46 awarded users 
+
+Community hero
+Reach 2000 XP
+1 awarded users 
+•	Home  
+Courses   Discover More at Sci-Bono   Contact Us  
+•	
+Follow us
+Copyright © Sci-Bono Discovery Centre | ICT and Youth Development Department 2025 
+
+...
+
+[Message clipped]  Entire message not available offline
+2 Attachments • Scanned by Gmail
+
+
+	
+	
+	
+to Sci-Bono 
+ 
+
+Skip to main content Skip to toolbar 
+•	About WordPress
+•	Sci-Bono Online Learning
+•	Live
+•	2323 updates available
+•	00 Comments in moderation
+•	New
+•	Setup Payments
+•	WPForms
+•	Purge SG Cache
+•	
+•	Howdy, tshingombe
+Pages
+Add Page 
+________________________________________
+Call & message for free with 3CX SMB! Activate Now
+LearnDash Stripe Addon Deprecation
+As of June 13, 2023 the Stripe plugin will no longer receive feature updates. We encourage you to switch over to Stripe Connect, however you can continue to utilize the plugin without upgrading. 
+Setup Stripe Connect - Stripe Deprecation FAQ
+Notice: You are using the auto-generated password for your account. Would you like to change it?
+Yes, take me to my profile page | No thanks, do not remind me again
+Elementor Data Updater
+Database update process is running in the background. Taking a while?
+Love using Elementor?
+Become a super contributor by opting in to share non-sensitive plugin data and to receive periodic email updates from us. Learn more.
+Filter pages list
+•	All (32) |
+•	Published (30) |
+•	Drafts (2)
+Search Pages: 
+Select bulk action
+Filter by date 
+Pages list navigation
+32 items « ‹ Current Page  of 2 Next page› Last page»
+
+Pages list
+Table ordered by Hierarchical Menu Order and Title. Ascending.
+ Select All
+Title
+Author	Comments Sort ascending.
+Date Sort descending.
+
+ Select About 	About — Elementor 
+Edit | 
+		
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2018/12/06 at 12:49 pm
+ Select About 
+About — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select All Courses 
+All Courses — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select All Courses 
+All Courses — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2018/12/07 at 12:51 pm
+ Select Cart 
+Cart — Cart Page 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select Cart 
+Cart 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2021/09/17 at 4:20 am
+ Select Checkout 	Checkout 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2021/09/17 at 4:20 am
+ Select Checkout 	Checkout — Checkout Page 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select Contact 	Contact — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2019/03/19 at 1:42 pm
+ Select Contact 
+Contact — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select Courses 
+Courses 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2023/09/08 at 7:10 pm
+ Select Dashboard 	Dashboard 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2023/07/26 at 9:09 pm
+ Select ebooks 	ebooks — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2024/02/11 at 3:03 pm
+ Select Home 
+Home 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2020/08/25 at 10:13 pm
+ Select Home 
+Home — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select Home 
+Home — Front Page, Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2018/11/19 at 7:50 pm
+ Select Instructor Registration 	Instructor Registration 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2023/07/26 at 9:09 pm
+ Select My Account 	My Account — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select My account 
+My account 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2021/09/17 at 4:20 am
+ Select My account 	My account — My Account Page 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select All	Title
+Author	Comments Sort ascending.
+Date Sort descending.
+
+Select bulk action
+32 items « ‹ Current Page1 of 2 Next page› Last page»
+
+Thank you for creating with WordPress. 
+Version 6.8.1 
+
+...
+
+[Message clipped]  Entire message not available offline
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	 May 30, 2025, 12:03 PM
+
+	
+	
+to Sci-Bono 
+ 
+
+Your 3CX Live Chat is almost ready! 
+Copy the following URL into the “3CX Talk URL” field in the 3CX Live Chat configuration page in wordpress: 
+https://1173.3cx.cloud/engineering 
+Use the credentials below to login and start customising your Live chat: 
+Login:https://1173.3cx.cloud/#/office 
+Email:tshingombefiston@gmail.com 
+Password: ∗∗∗∗∗∗∗∗∗∗∗ 
+LOGIN 
+Next Up 
+After logging in, you can view your live chat settings here:
+https://1173.3cx.cloud/#/office/#/office/numbers-and-messaging 
+•	About WordPress
+•	Sci-Bono Online Learning
+•	Live
+•	Customize
+•	2323 updates available
+•	00 Comments in moderation
+•	New
+•	Edit Course
+•	WPForms
+•	Purge SG Cache
+•	
+•	Howdy, tshingombe
+•	
+ Search
+Skip to content 
+•	Home
+•	About
+•	All Courses
+•	Contact
+•	My Account
+
+Electrical
+Course Status: Not Started 
+
+HR Approved Policies
+Course Description
+The purpose of this course is to keep everyone abreast of the HR policies that exist within the organization. It is important to work in an environment governed by frameworks and policies.
+African American carpenter man use electrical saw to cut timber in factory workplace and his co-worker still work in the back.
+In this course we will cover
+•	Disciplinary
+•	Bursary 
+•	Health and Environment
+•	Employment Equity 
+•	Fraud and Corruption
+•	Grievance
+•	IT Governance 
+Course Content 
+Expand All | Collapse All 
+Lessons Status 
+1 
+Safety, Health And Environmental policy 
+2 
+Signed Substance Abuse Policy 
+3 
+Signed Retirement Policy 
+4 
+Signed Bursary policy 
+5 
+Succession Planning SOP 
+6 
+Signed Disciplinary Policy 
+7 
+Signed Grievance Policy 
+8 
+Signed Job Evaluation Policy 1 
+9 
+Signed Risk management Policy 
+10 
+Signed IT Governance Policy 
+11 
+Signed Fraud and Corruption policy 
+12 
+Signed Child Protection policy 
+13 
+Signed Employment Equity policy 
+14 
+Signed Remuneration policy 
+15 
+Signed PMDS Policy 
+Copyright © 2025 Sci-Bono Online Learning
+•	About WordPress
+•	Sci-Bono Online Learning
+•	Live
+•	Customize
+•	2323 updates available
+•	00 Comments in moderation
+•	New
+•	Edit Page
+•	Edit with Elementor
+•	WPForms
+•	Purge SG Cache
+•	
+•	Howdy, tshingombe
+•	
+ Search
+Skip to content 
+•	Home
+•	About
+•	All Courses
+•	Contact
+•	My Account
+Learn from Industry Experts
+Sci-Bono is an accredited learning institution aimed at bringing life to the world of STREAM. SIgn-up now and be apart of a global movement. 
+View All Courses 
+Actionable Training 
+All courses are uniquely designed to educate students and prepare them for the corporate world. 
+Industry Exams 
+Our exams are industry standard and benchmarked to both national and international frameworks 
+Premium Material 
+Our learning material comprises of videos, presentations and workbooks 
+Our Most Popular Courses
+Enroll now and explore a world of excellence. Our platform is versitile and allows you to have the best learning experience.
+Enrolled 
+ECD
+
+Enrolled 
+Cyber Security
+
+Enrolled 
+Electrical
+
+Enrolled 
+Introduction to K53
+
+Enrolled 
+AI Fluency
+
+Be in Demand with Our Professional Training
+We are proud to announce that our platform hosts the best instructors in Africa
+Prof. Mfanelo Pat Ntsobi — Founder & CEO. 
+Build Relevant Skills 
+Our content is rich in value and highly rocommended by scholars worldwide.
+Get The Right Path From The Best Learning Platform 
+Learn From The Professionals 
+Industry Partners
+ 
+
+
+
+
+What Our Students Have to Say
+I have recently completed the inhouse policies course and have found great value in it. I now have a better understanding of my environment.
+
+Mark Mthombeni
+From Johannesburg, RSA
+The great thing about these courses is that they are all accredited. This makes it worth your while. Certificates are issued as soon as one completes their course.
+
+Zasha Swan
+From Australia 
+I'm inspired to be learning from a platform that is aimed at changeing the lives of people around the globe. I have just completed my Cisco Cybersecurity Course.
+
+Frank Jones
+From Japan
+The intergrations are seamless. The learning platform has includes videos presentations and other learning material as well as unique guidance from instructors.
+
+Lester Constance
+From London, UK
+Copyright © 2025 Sci-Bono Online Learning
+•	About WordPress
+•	Sci-Bono Online Learning
+•	Live
+•	Customize
+•	2323 updates available
+•	00 Comments in moderation
+•	New
+•	Edit Quiz
+•	WPForms
+•	Purge SG Cache
+•	
+•	Howdy, tshingombe
+•	
+ Search
+Skip to content 
+•	Home
+•	About
+•	All Courses
+•	Contact
+•	My Account
+L1: Introduciton to AI Quiz
+By ashleyanthonyadams@gmail.com / February 6, 2025 
+Results
+3 of 11 Questions answered correctly
+Your time: 00:00:39 
+You have reached 3 of 11 point(s), (27.27%) 
+•	
+1.	In what year did the progress of AI that can create Microsoft Copilot technology occur?
+o	 1900s 
+o	 2000s 
+o	 2021 
+o	 1950 
+Incorrect 
+2.	Which statement is correct regarding Artificial Intelligence?
+o	 AI cannot provide the latest updates on local weather and news in an area. 
+o	 AI cannot perform tasks such as pattern recognition, problem-solving or decision-making. 
+o	 AI does not learn from past data and mistakes to make predictions of future behaviour that are increasingly accurate. 
+o	 AI does not have consciousness, emotions, or the ability to understand context in the same way as humans. 
+Incorrect 
+3.	What enables AI to recognise patterns, make predictions, and learn from past experiences?
+o	 Data 
+o	 Numbers 
+o	 Text 
+o	 Emotion 
+Correct 
+4.	Machine learning can be used for several purposes, including….
+o	 improving products and services, and blocking new hidden insights 
+o	 training AI models and making predaictions 
+o	 preventing inaccurate data predictions and improving products and services 
+o	 training and adapting AI models 
+Incorrect 
+5.	What is one of the benefits of understanding target user?
+o	 User can customise the service according to the company's preferences. 
+o	 Meeting the company's needs quickly. 
+o	 Improving the user satisfaction. 
+o	 Curating the user experience. 
+Incorrect 
+6.	From the following statements, which one is correct regarding Machine Learning?
+o	 Machine Learning is an essential system that is always used and forms the basis in AI. 
+o	 Machine Learning is a standalone system that can learn and make decisions without training data/pre-processing. 
+o	 Complex Machine Learning models can work without supervision and guidance from humans. 
+o	 Machine Learning is a process where machines learn from data and improve their performance over time. 
+Incorrect 
+7.	The type of Machine Learning that performs automatic trial and error decision-making to maximise the performance of its algorithm is…
+o	 Reinforcement Learning 
+o	 Supervised Learning 
+o	 Unsupervised Learning 
+o	 Deep Learning 
+Correct 
+8.	How does the volume of data a computer has affect the performance of AI?
+o	 The less data there is, the more accurate AI predictions will be. 
+o	 The less data there is, the more accurate AI predictions will be. 
+o	 The more data there is, the better AI performance. 
+o	 Data volume has no effect on AI performance. 
+Incorrect 
+9.	What is the process of computer analysis in processing and understanding human language through text called?
+o	 Speech Recognition 
+o	 Image Analysis 
+o	 Sentiment Analysis 
+o	 Text Analysis 
+Incorrect 
+10.	What is the algorithm that can classify every incoming email as spam or not?
+o	 Classification Algorithm 
+o	 Regulation Algorithm 
+o	 Clustering Algorithms 
+o	 Optimisation Algorithms 
+Correct 
+11.	An example of implementing the Internet of Things (IoT) in the household is?
+o	 Indoor lights that can be turned on and off with a light switch 
+o	 Using a self-driving car 
+o	 Use CCTV cameras that have a large memory 
+o	 Utilisation of sensors on the fridge to monitor the contents of the cupboard 
+Incorrect 
+Copyright © 2025 Sci-Bono Online Learning
+Lesson Topics 
+•	AI History 
+•	What is Artificial Intelligence 
+•	Knowledge vs Intelligence 
+•	Data Everywhere 
+•	Finding Patterns in Data 
+•	Machine Learning 
+•	Types of Machine Learning 
+•	Deep Learning 
+•	Natural Language Processing (NLP) 
+•	AI Algorithms 
+•	AI in Action 
+QuizzesStatus
+1
+L1: Introduciton to AI Quiz 
+AI Fluency
+Course Status: In Progress 
+
+You are enrolled in this course
+Course Description
+The AI Affluency Course is designed to demystify artificial intelligence for learners at all levels, providing a comprehensive understanding of AI technologies, ethics, and applications. 
+It aims to equip participants with the knowledge and skills to implement AI solutions in various sectors, promoting innovation and strategic thinking in business and beyond.
+Key concepts covered include:
+•	A Brief History of AI
+•	What is Artificial Intelligence?
+•	Machine Learning
+•	Types of Machine Learning
+•	Natural Language Processing (NLP)
+•	AI Algorithms
+•	AI in Action
+Unlock the potential of artificial intelligence with our AI Affluency Course, designed for both beginners eager to delve into AI and professionals looking to sharpen their edge in this transformative field. This comprehensive course covers:
+Course Content 
+Expand All | Collapse All 
+Lessons Status 
+1 
+Lesson 1 – Introduction to AI 
+2 
+Lesson 2 – Generative AI 
+3 
+Lesson 3 – Search Engines 
+4 
+Lesson 4 – Using AI Responsibly 
+5 
+Lesson 5 – Microsoft Copilot 
+6 
+Lesson 6 – Impact of AI 
+Profile 
+
+Edit profile 
+Name: tshingombe tshitadi
+Username: tshingombe
+Email: tshingombefiston@gmail.com
+Earned Course Points: 14
+Registered Courses Status Certificate 
+AI Fluency
+AI Fluency
+- 
+Introduction to K53
+Introduction to K53
+- 
+Electrical
+Electrical
+- 
+Cyber Security
+Cyber Security
+- 
+ECD
+ECD
+- 
+Our Most Popular Courses 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Referred  :journey  career center library day  
+Rwiten job readness job    career review book guideline text book  ,  company catalogue 
+Experience,base frame theory practical on ...Competition science career engineering.rwiten job scie Bono and department education . institution
+
+
+	
+	
+	
+ 
+
+5.1.backgroung .
+Experimental..national science career discovery research competition skill career mentor libraries.. education science career sciebono 
+Base framework: selection question skill talen rwiten cvs job skill ...
+5.2.analyse submission : selected phase preliminary ,phase final ..
+-5.2.1. phase preliminary career selected competition presentation topic project meeting requirements and no meeting requirements.selected quotation form ,selected rwiten on library,workshop and lab workplace  report annual statement meeting and not meeting oversee..
+Phase - selected question and answer of guideline career orientation question recruitment years ..outcome of subject 
+-5. 2.2.subject criteria on framework qualification institution and college on national exam matric exam outcome learner career , selected career on test assessment..
+-5. 2.3.selected question criteria on university equivalent award assessment explanation  ucpd and institution criteria post graduate and undergraduate graduate development research papper and explanation letter..
+Criteria career outcome on national trade application on subject offered.natiinal and ncv combination,n 1to n6,nn diploma certificate award ,, regulation and irregularities. And ncv nsc vocational career meeting ,,level career sector seta merseta teta sasseta hasta engineering science , electrical mechanical building civis chemical physic mathematics career exhibition ,,selected career on job 
+Outcome trade teaching trade electrician  mechanical .. engineering and power station championan ,generation champions, transmission energy championan,expos science  on job company meeting.application 
+
+-5.2.4 selected explanation science engineering ....
+-
+
+
+	
+	
+ 
+
+- 5.3.1Requisition for procurement: 
+Selected phase.
+Requisition: number: .................
+- date received.......
+-Department : education, career center ,ICT.  
+- project code : 
+-estimation cost : R 385.000per day .
+- budget funding source :
+- approximately available.
+Hr award bid 
+Resource humain :
+Resource material :
+. description or service |unit|approx|aptot
+- 
+-
+-
+-
+-
+5.4.purpose : submission requested ,inventory discovery 
+Competition championan award selected internal external assessment outcome course on topic science engineering in.
+Career mentor skill rwiten cvs job readiness assessment on career selected hr  management portfolio...
+5.5. Project / programme background : department education career career librari management provision of compety .. maintaining quality of education science career discovery presentation valuable..
+5.6. Analysis and main consideration ..
+
+Financial implications : 
+Item  submission assessment|Quantity|
+- skill 
+.- proposal 
+The chief executive ..
+Recommend not 
+
+
+5.7.Competence assessment 
+Information management system 
+Recruitment 
+Base college and training academy university 
+
+- financial 
+Need submission:
+Fee . estimate 
+-Advanced procurement| hourly | hours | total 
+_- system requirements 
+
+- product presentation 
+- requirements analysis system design workshop.
+- requirements analyse document 
+- system administrator 
+- configure email 
+- assist 
+- create projects 
+- agent setup 
+- configure 
+General ledger .
+- account entry inventory.
+Default order approval 
+- advanced project 
+- customer report building forms 
+Test round 1
+- issue resolve 
+- test round 
+- training round .
+- install advanced 
+Project management 
+- business proposal 
+- data migration 
+Operation 
+- travel time 
+Insurance 
+
+
+*5.7.Quotation form : number/ company 
+- Full name : ----
+- postal address:
+- physical address :
+Company cc reg number :
+- I'd number if sole :
+- tax reference number:
+Vat registration number .:
+Main contact :
+Cellphone number 
+- fax number :
+-email address
+- instruction:
+* Offer :
+Assessment, assignment question phase selector portfolio is book submission 
+-categorie
+Per learner self discovery,peer discover , group discovery, ownership award awareness school, irregularities completed 
+
+Item  description | Quantity| total ..
+- transcript record library dissertation ,130pg| R 130
+- projection mentor libraries learner cvs 
+- planing  case book ,
+- news papers building sheer frame PC 
+- workshop study arch file 
+- award career submission for ..
+* Delivery transport 
+- award saqa degree
+Record certificate book 
+
+Vat ...
+Checklist subt..
+Company , tshingombe and sub contractor.  st peace college and career company saqa , schedule Eaton ,city power eskom , Microsoft,google ,nogada ccma labour ,scie Bono training libraries 
+- campagny 
+Fax  number email address. / Yes / not
+- physical address postal address 
+- tel number contact number 
+- cell 
+- file for. Completed 
+- certificate of uncoureg ciproc
+- valid sars tax 
+Valid bee 
+- is copy 
+- certificate 
+Fulname , tshingombe fiston tshitadu ..
+2019 
+
+____""""""____
+
+Invitation bid
+Scie Bono news letter cyntht moholo ..
+- incitat scue boni centre 2019/20 virtual agm 
+- board chairp ,Mr abbey witbooi ,28th October 2029 ,,key not Mr panysza Ms gauteng.. department education..
+5.8.
+________subject in the national curriculum statement grade ...
+Learn field | elective subject | selected 7, or subject 
+
+- compulsory subject:
+Human social studies 
+Business commerce management studies
+Services 
+- manufacture engineering design technology : 
+9.asset acknowledge form 
+I  full name .../ Surname 
+Hereby accept the following:......
+- here ..
+- .....make model 
+Serial number of the asset .
+- barcode : 
+- condition :
+- sign:
+- it user name 
+______
+Judgement arbitration career labour career subject competition: 
+
+10.Client intake info - walk in center : 
+Name of facilitate: .....consultation date
+- client name surname .... consultant date.
+- client name surname:
+Name of institution school :
+- client contact cell
+- field study : 
+- age :  gender :  ..race ..
+Reason visiting career center please tic the option 
+
+Competition championant 
+Visiting career 
+- subject career choice info guidance 
+- studies skills
+- time management skills 
+- job search skills cv writing  interview 
+- work readiness and employee enhanced 
+- self directed career  career directed career mentor 
+- learner ship employee training info .
+- tertiary studies info bursary application .
+- career info resource .
+- facilitator notes was client issue 
+- was client refered to author service ..
+Referral was internal case ..
+- mediation hand ..
+- how can we improvement...
+_______________
+- workplace readiness : module career 
+Workshop programming development training design 
+
+Development 
+- use of worh 
+
+Question program notes
+Topic career planing workshop overview 
+Question/ answer 
+- wath is career development planning:
+Target audience ,out school workshop outcome steo career value skill 
+Workshop duration : 
+Dhet process framework..
+- steo life aware interest knowledge skill 
+
+
+- discovery your self 
+- exploring your option 
+- making informed career choice take ction .
+- 
+
+
+Activity 1 self assessment skill inventory ,assess marks give 
+Functional transferability 
+People object date deal
+
+Activity 2 self assessment interested inventory :
+Statement ,selection 
+Like 
+Interpretation code
+_______________________
+
+_analyse submission:learner proposal 
+Question learning 
+Library outcome ..
+- project skill engineering and master skill facilitator tshingombe : 
+- scope career center studies library company ,course process.
+6.2.purpose career learner studies .
+6.3 requirement career campagny school tools assessment visited 
+6.4. Operation work system ..lms
+- submission web site ,career data right,
+Item book order career lms portfolio exam papers cvs ,2000pg , Scotland 400pg ,,
+5. Lab career work shop ...
+
+_________________________
+-project : workbook of compilation of formal assessment career project exhibition 
+- question project of low rules :
+Purpose explanation career center expo science journey of self discovery ...
+- section a,b,c,d design worh  research education Audi visual cvs
+2- referral library case book photocopy discovery career inventory job .
+Hr framework close ..
+Tools assessment libraries 
+Entry criteria task ,test booking 
+Is booking | topic | cost | topics project
+________
+Question / https .www
+Topics discovery investor science technical technology engineering sub topics 
+Scie Bono expire science .learn learn ..
+Topics assessment summary pentent inventory claim relate low manufacture process 
+- book invention research papers price..eureka..
+_______
+Question form Microsoft 
+Topics discovery inventory career technical .
+Lesson plan discovery 
+-----
+Magazine
+
+Question learners reading news papers study workshop use computer write xv self career submission..
+Prudence auch
+Award teach library ruling diploma ,outcome judgement attorney v, dissertation 
+Competitor 
+Question : 
+Forward:
+- execution summary teacher career ..
+- the school system 
+- the framework for evaluation and assessment 
+- system evajustyuh 
+Overview prospectus assignment school 
+- reducing cost delivery course ,
+Achievement engagement and success
+- selecting the right technology technical support 
+- open source teaching education technology 
+-: technology cloud base and education technology 
+..
+
+> 
+	\
+	
+	
+ 
+ 
+
+-question  how to build your self a bright technical future..
+Explanation . Consider a technical career let get down how do I play for a his..
+-science centre programme.. week 
+-annual report..
+- intro overview:core business,non core  business , financial 
+: executive summary,science  careers centre,learner career centre , teacher training development,ICT training,support the , organisation, corporation gov,board procurement commite, general inffinforma, independent audit , learning industrial initial 
+________&&&&
+- expo 
+Inventory library expo magazine 
+- career mentoring coach..
+Career learner expo science 
+Escom ..
+Learner name : tshingombe.
+School name 
+Regional : gauteng 
+Project title : the impletation circulum knowledge policy engineering planing product improvement contractuaj agreement with register trainer and consultant engineering electrical and computer science engineering v..
+Question : abstract.
+- purpose : ask factor job outcome transition phase learner phase exhibition phase teach ..
+- method : material and equipment : special guideline assessment formative assessment.
+
+Course< reference readiness job
+ bibliography.magazine nrf nsf ..
+- result nano technology and mining wath is nanotechnology ,what are danger of mining how nanotechnology make energy where ...
+- lesson :
+
+- conclusion : engineering it discovery computer development support to existing prospective club creative participate in 4 ir provide design career job ..
+- research plan template for :
+1. Scientific investigation project experiment 
+2 computer science experiments 
+3. Social science project : .
+Mathematics..
+- scientific experiment..
+- topics : provisional implemented framework policy college school engineering curriculum assessment police education technology teach electrical subject government municipal team training working graduate engineering time frames ..st peace college..
+1.inteoduction.
+Literature review 
+- benefits 
+- problem statement ..
+- research 1 question 
+- hypothesis 
+Method material 
+Ethics safety 
+Reference ..
+Teacher mentor comment suggestions ..
+
+____________________________________
+Library career center magazine textbook 
+Report/ open lab  lab magazine 
+
+Discovery education science competition 
+
+Quotation bid 
+Review literally 
+Textbook 
+
+- text 
+Ordered book | topic
+
+Question technical document information research ...
+Order book review overview 
+Rwiten job ...cook book course module scie 
+
+> 
+	
+	
+	
+ 
+ 
+
+Sub contractor library scie Bono science and st peace college library workshop assessment topics dhet dbe..tvet underpin assessment topics combination learning 
+
+Public library open bare
+- shopping mall library
+- cybernetic telemarketing shopping
+Checkers cna etc  
+- university library biliotech twt ,wti ,
+Dhet ..saqa ..
+- security safety,ccma labour court arch file...report head argument skill, sasseta  seta ,,lms development 
+- career  library job on line ..Eaton , scheinerde,google, Microsoft,expert assessment tech document skill ..city power eskom online ...sars ,sarb on line career dtic dst nrf ,,saps met 
+Epm ...published
+University Atlantic international..
+- technical engineering.isot Kinshasa, unikin,inpp, biliotech on line .. career 
+	
+	
+ 
+
+-resource documentation career guideline..
+
+7.10. question/ answers:  review 
+Mining qualification authority mining and minerals sector: 
+- vision , mission, valuable, continue leaener
+- overview :mqa learning career sector:
+- role is department of mineral resources : mendatator dmr ..
+-
+Summi: scares ...
+Useful for: subject future career , school leavers decided career , skill advisor 
+_ wath is the purpose of mqa : staruoe term act 29 registration seta ..mining ,skill act no..
+- core function mqa ..
+- about the mining sector : sector,mining .
+- why choose a career mining sector 
+How to make career , employee sector ..
+- wath are critical cross ..
+- problem identification and evaluation b.
+- problem identification.mathematics numeracy ,,
+- interpersonal, conflict team working..
+* 10.2 planning in a career in mining minerals sector ..
+
+- scares skills : 
+- occupation  categories.works opportunity mining ,manger professional ,technicia trades workers , machinery operators drivers , elementary workers laboures ..
+* 7.10.understanding qualification in the mining ,,
+- nqf : national framework .
+- ofo : organizing for occupational..
+* Learnerning programmer : 
+Workplace experience programmer :
+What is is workplace experience :
+- what is expected of a learner.
+- what is expected of an employer 
+- identify the company.
+*7. 10.3 internership programmes:
+- what an internership program 
+- what is expected of an intern
+- wath is expected employee 
+* Learner ship : 
+- what is learner program .
+What is expected employer
+- learner sh agreement..
+*Skill program.
+- how to access the mining skill 
+- adult education training foundation 
+..10.4..artisan career options in the and minerals sector.
+- artisans :
+- overview of artisans .
+- why choose the artisan career options.
+- list trade qualification artisans 
+- package ..
+- professional career ,, engineering 
+- learning paths and career paths : 
+* Financing your studies: 
+What is bursary, 
+- company grants ,mandatory grants ,
+* Sector mining learn ,coak base,gold, platinum,diamant,cement ,lime aggregate, jewellery manufacture, extraction petroleum and gases,service incident, vanadium..
+- hard fill occupational | ofo | reason challenge.
+- mining .. geographic 
+- mine planner
+- mining engineering 
+- rock engineering 
+- surveyor 
+- rigger
+- diesel 
+Boilermakers,,
+Geography location ,lack of planning sector 
+___
+Occupational categories: 
+Nqf | occupational catego| ladder
+8.10 to 1| category 1 and 2 : production manager,mining engineering technology 
+- category technician and trades ..mining technician..
+- category 7 machine operator drives : drillers miner..
+- category 8 elementary workers and laboures : mining ..
+- mainstream career ..
+Position | position requirements|| time frames|||| mentoring 
+
+_senior foreman | grade 12 coak ,head superintendent 
+- foreman | 
+- senior operation controller .
+- operation ..
+
+9.7-2 mainstream career operator to foreman..
+- plant production manager ... engineering / 
+9.7-4 career master technician plant _____
+_____
+Answer entry exhibition outcome academic program 
+Program experimental work in order completed employee..
+- to complete structure portfolio evidence meet requirements practice training.. university student..
+-answer learner project insurance b university cost ..
+- intern ..
+- type learning, mineral process, base metal,sand ,rock engineering understanding, hygiene, operation preparation cutting polish braking ..
+Granted abet
+____
+Career | qualification| scope duty
+Plant operator| trade test |
+Engineering| n diploma..
+__________________&&&&__
+\
+> 
+	
+	
+	
+
+
+10.Question answer..
+Reference: science innovation dst ,nrf saasta,ndp 
+-self help guide to my future career in science engineering technology.
+
+- career name :.......
+- what will do in this career .
+- what tools or equipment will I use
+- work environment.
+- work environment 
+- work outdoor, work indoor,work an official 
+- work a laboratory , work in a classroom,
+- work in consulting room
+-what are the personality requirements.
+- wath subject need to take ..
+Who are possible employee for this career
+- name career that or similar to this career ..
+
+- level of study:
+
+- nqf 4 matric  yes ,college or university yes college diploma nqf5 or 1st years nqf 5 ,,diploma ,2 years nqf6,my academic national tvet college  ,how long study ,,you have done little bit if theoretically studies after tvet but mainly practical studies work , professional engineering technician..
+-degre 3 years nqf 7  , bachelor n diploma  have completed time undergraduate or national diploma  , professional engineering technology or science..
+Nqf 8 honor degre b engineering 4 years full time received professional qualification, professional engineering natural science..
+Nqf9 master degree  you studies 6 years have master , professional engineering natural 
+- nqf pdh 10  doctoral degree ,8 years full time research lecture and academy work , professional engineering 
+
+- professional design ,ecsa ,saxnaso ..hp sa,,..
+- finance future
+
+
+
+
+
+- 
+Self assessment questions who I m ..
+- design mechanotechnic equipment.
+-using geometry to design product 
+- using science to develop new product 
+- managing construction project 
+Total score 3 point..
+_____
+One of my best subject at school is physical science 
+- studying chemistry 
+- conducting experience lab 
+- solving complex mathematics problem 
+- researching scientific problem..
+___study the and atmosphere 
+- studying earth from rains and from floods to fossil 
+- studying other planets 
+- collect rock water to conduct experimental 
+Doing geometry..
+_____
+-solving problem with he help of computer 
+- writing computer program 
+- design and installing computer equipment 
+- research the latest computer technology 
+- using mathematics models to design computer...
+------
+Studying human anatomy.
+- doing biology 
+- studying chemistry part degre 
+- treatment people or animal with are risc
+___ studies chemical interaction that occure with a living cell .
+- studying animal behaviour.
+- studying organisms and microorganisms 
+- doing environment science projects at school 
+- studying the process of how an organism forms ..
+
+______________.
+- record results 
+- field | 
+- engineering science.
+- physic chemical science 
+- earth science 
+- computer science 
+- medical science 
+- life science 
+Social science..
+_________
+Reference biliotech 
+
+* Science base based career ..
+National science and technology forum
+Technology engineering...
+- 4 ir related career field .
+- engineering career field
+- medical field
+- mathematics career 
+- career field requirements creative 
+
+	
+	
+10.1 
+
+Reference: nanotechnology public engineering / science technology department science and technology 
+Republic of south Africa..
+- NRF  national research foundation,sassra .
+
+Question/answer .
+Nanotechnology and water ...
+
+- nanotechnology and water .
+- wath isnano technology.
+- how small objective in nanotechnology 
+- where does our water come from 
+- how can nanotechnology make water safe to drink.
+Activity 
+* Nanotechnology and medicine:
+- what is nanotechnology.
+- how does our blood move in our body 
+- what is cancer .
+-how can nanotechnology help to figth cancer .
+-* nanotechnology and energy :
+- wath is nanotechnology .
+- what does  our energy.from .
+- how can nanotechnology help to build better solar panel..
+* Nanotechnology and mining:
+
+- what is nanotechnology.
+- what mining is done in rsa .
+- what are the dangers of mining .
+- how is nanotechnology being used to make mining safer ..
+- activity, activity,..
+- activity 
+Answer nano technology is small things ..mean :size nanometer ,10000000000.,1 billion,10 MN .1 micrometer ..
+Lesson activity:
+-
+Write daily activity need water..
+- parts examination: ..
+
+Lesson battery 
+Electrical resistance , component 
+System 
+- written an investigation question.:
+-;write a hyt for your investigation.
+- procedure for the investigation: 
+Make hypothesis...step  idea .. connected equipment.
+- analysis your data ,brightness
+Conclusion 
+____________________________
+Nanotechnology in electronics..
+- what is electronics industrial: 
+Conductor copper ,modern integrate circuit b , silicone semiconductor,modern television, microprocessor,price.
+- nano electrical : current and future application.
+Origine  computer semi conduct indt.
+- molt electronics.
+- organictligy emitting diode oleds ..touch screens ..
+- improving batteries ..
+- risks and safety issues..
+- key issues to consider.
+- future risk assessment in industrial electronic.  
+
+
+________
+Nanotechnology .in agriculture and food industrial..
+Nanotechnology.
+- application in agriculture: 
+Na agrochemicals.compagny, fugacity plant 
+- nano based sensor and precision in farm .carbon detective nanotube ,
+- nano biotechnology.risk
+- animal feed and animals production..
+- agriculture.
+- safety of nanotechnology .
+______&&
+Innovation in nanotechnology is helping to address south Africa health challenge..
+- diagnostics .
+- biomediy imagine ..
+- therapeutics ,target delivery system 
+- slow release drug therapy.
+- phothermal and hypothermak destruction of cancer..
+________________
+- nnanotech in industry.
+- nanotechnology: l
+- a role for industry: for the costs ignoring nanotechnology 
+- collaborating and industrial innovation . research laboratory..
+- benefits :
+Health safety ..
+Nano facilitate..
+Centre resolution..
+Material semi conduct..
+- characteristics coated particle fuel high temperature reactor...
+-_____________
+- nanotechnology in textiles .
+What is nanot.
+- wath the natural of the textiles industrial,clothuv textiles marketing ..
+_ how ,  national research foundation national facilitate .
+The application of nano material and  nono  textiles industrial fabric strong ..
+- nanofibre 
+
+- nano material to keep clothes cleaners while you wearing them ..
+- nano particle with antibacterial properties,,
+Nano - Ag, particle titanium dioxide tiO2,, zinc oxide..
+- ultraviolet light protection: DNA ,zno oxyde zinc ,, 
+Water repellents clothes ..
+
+- antistatic fabric  crackers .
+- safety wear , palladium ,pd catalytic substance..
+- making colorft fabry from all angles 
+
+> 
+	
+	
+	
+ 
+
+-12. engineering research b,examine problem product solution to problem,exam problem  use natural resources harness force natural use / provide material use machinery equipment optimise information maintain infrastructure organize
+___________&&
+- the allied health professionals council south Africa..
+- the ahcsa mandated term ..
+-; accountability minister health . advice matter Allier professional..
+-;the council mission statement : regulation ,giver activity, legislation,trading base ,maitah. Realistic goal ..
+- Ahpcsa.
+- composition of council: 16 member ..
+- professional boards : Ahpcsa ..
+- council structural: professional board : chine medical , chiropractor,osteopay,homeopathy,naturopathy phytherapy, therapeutics, aromatherapy.messagev
+__________
+
+Review merseta 
+- contents : 
+- seta news , talking notes,
+- view from the top .
+- succes stories : 
+First lady automotive machinist .
+- highly skill man building .
+- feature : workshop artisans ..
+Turning .
+- industrial news :
+Manufacture product registration ....
+
+Teach project energy conservation,
+____
+Question/ answer 
+- about merseta 
+- determine your level on national framework qualification.
+- which vocational occupational or professional are possible.
+- skills program.
+- registration of a skill programme by a training provide 
+- recognition 
+- the difference learner ship skill .
+- tvet ..
+* Subject manufacture and engineering sector ..
+- level 10| framework nqf
+- doctoral degre professional 
+- master degree professional 
+- bachelor honorable 
+- bachelor degree advance diploma 
+- diploma advanced certificate/ occupational level 6 
+- high certificate.
+Nation 
+- intermediate certificate grade 11
+- elementary certificate grade 10 - general certificate grade 9 
+- skill program part qualification.
+- purpose,,: 
+- skill; program company training.
+Learner: description,: learning process theoretically knowledge 
+- condition 
+- process: learn existing employee new determine qualification 
+- training remuneration: employee workplace registration.
+- assessor register company opportunity.
+- a learner is selected through the company ..
+- learning agreement is signed employee tripartite.
+- learning process discuss..
+
+- learner bot completed b
+- learn register b
+-| description| the apprenticeship system well technical including theoretically component trade achievement artisan status.
+-; condition| auto | metal | motor 
+Trade test experience.. diagram illustrates b: quality assurance assessment trade test , subject relationship schedule b..
+- program | nated subject n course | ncv | nqf 
+Minimum requirements|
+- duration to test trade test : n1,years work place learning ,ncv 
+
+- advantage and disvantage: upon completion institution approved practice workplace component national trade test must successful completed an artisan ,after completed n2 learner find with employee a trade qualification ,work praticaj learn program theory ..
+
+	
+	
+	
+ 
+
+--? 13.resource: chieta : chemical industrial education v. .
+Chemical industrial training authority.
+- wath are acarce skill: 
+Engineering chemical engineering, mechanical engineering, petroleum engineering, pharmaceutical Marin engineering sector special occupational tinters flavourist architecture glass special and glaziers and chemical ..
+- learner ship..
+- apprenticeship: professional do if glass and glazing material , cutting and riming security ,
+- ammunition fitter : explode explosion remonve shift earth rock other ..
+- qualification ammunition fitter : 
+National certificate : ammunition fitting .
+- national operation mobile explosive manufacture 
+- learner ship,,
+- instrument mechanician ..
+- bachelor of pharmacy science.
+- process engineering ...
+- what qualification do I need ..
+- agronomist: 
+- chemical production machine operator : manufacture blending , mixing,refining ,priming , granulated,gazing, recrystallization, crimping,packing ,load and transport of chemical explosive .
+
+_______________
+12.1Reference:career isett seta career opportunities guide 2011 learners and leavers , university of technology leavers university leavers
+- school : school leavers matric education entrance .
+- school matric ,bursarry , work environment course 
+- training institute b,ICT occupational 
+Occupational:nqf level 11 to 8 
+-computer network and system engineering 
+- development program 
+- ICT business analyst
+-ict customer support officer
+- software engineering 
+- electronics engineering 
+-computer system technician 
+- ICT support engineering 
+- ICT system test engineering 
+ICT security specialist 
+ICT project manager 
+ICT sale represent
+- system analysis 
+Databae admnis 
+- telecommunications 
+ICT quality assurance ..
+____
+Occupational | recommend it skill|| recommend it skill 
+ICT project manager | language cc java web development skill ado net .asp net window,mobik apply database || leader development project 
+- ICT sales representative || business | sales skill product knowledge product.
+ICT business analyst || business analyst it diploma || business analyst 
+- system analysis | system analysis..
+- development ,sao telephone ..
+
+Task skukk ,design development ,analyse , development internet site mixture creative soft programming, script language design digital animation graphics communication with network , regarding web issues security site control ..
+- analysis programer need production requirements document ,system plan ,encode ,test debugs , document application.
+Research consultant evaluation program identify technology limitations deficiency correct verrir testing , debugging ,,
+- software design modified document installation ...
+- database administrator : plan , develop , configure , maintaining support database management system ensure data integral security backup ..
+ICT security : established management administrator ICT security policy procedure  recover ..
+- computer networking system engineering ,plan  develop deplo test optisn ,state configure networking system operating systsb ...
+ICT quality engineering : plan ninf design. Configure , commissioning telecommunications device networking, system audio radio 2eays micro data satelit digital data  manufacture evaluation compliance drawing approval determine hardware software,prepare interpersonal transformers , circuit breakers transmission line equipment identify analyse problem clarity ,up date ,up graduate new system,.- ICT customer support office , education guideline depot maintenance computer infrastructure resolution of technical problem issues determine bhatd requirements respond installation download b,,
+- ICT  support engineer: development support creat procedure instructions manual,in support process diagnostics..
+System test engineering , write test plan test script test case regression testing uses automated test software application test functional integrate system document results of test 
+
+> 
+	
+	
+	
+ 
+
+-13.1 inseta career guide :
+Resource hed in the right direction.
+- introduction: ever considered career in the .
+- what jobs are available in the insurance: 
+- short term insurance.
+- life insurance.
+- pension funding.
+- risk management.
+- health care .
+-* learner ship and internship offer ..
+- inseta  work offers a combination of theoretically and practical experience that nqf register qualification it for scht leavers matric spend time learning and working in insurance environment guideline mentoring, qualification are national registered and address specific need in  employment workplace all theory in classroom and tuition cost are covert received monthly ..
+- learner ship are generally..
+
+- although there  level 4 long term insurance level 5,6:wealth management nqf level 4,5 .
+- bursaries and work experience programmes offered ..
+- inseta are granted in accordance. Need critical and scarece campagnir pay levies annually can for selected ..
+- work based experience programmes :
+Some qualification mainly tvet college have practical workplace experience before qualification are met  , work base experience ,WBE ideak for you  get all necessary exposure and exposure of the workplace to satisfy those certificate requirements ,this work programme ,include visited to company ,job shadowing various other activities to booster exposure 
+* - insurance broker 
+* Financial investment advisor 
+* Insurance agent : underwriter 
+* Actuary .
+* Loss adjustor
+* - high school subject : 
+Financial services : financial advisor and intermediary service act ,37 of 2002 fais act , requirements person that financial obtain license through fsb financial board license process part their learner ship and internship program 
+- insurance broker: 
+- requirements at institution : 
+- successful completed the level 1 regulatory examination re financial fsb relevant module level 3 ,passing exam proper compliance financial  entry career degree possible learner ship that result various nqf level 4 and 5 qualification employee 
+Career tvet private learning institute.
+- entry must meet , category E,stage covers training, duration 
+- all workers outstanding can enter : employee insurance sector meet course minimum entry , category , criteria to allowance student path | 3-6 month , employee no stipens all age 
+- all workers with outstanding qualification can employer , employee in the insurance sector and meet course minimum entry , category c , criteria to allowance ,12 month employee no stipens bursaries for all age
+- all graduate can enter ,nsc,nc matric plus 3 years diploma degree category criteria ,6-12 month unemployment inseta stipend 
+- all learners nsc/ nc matric English second category A ,criteria entrance , employee v..
+___________&___
+Career guide research 
+- job overview:
+What work will you do : an electrician work in commercial industrial install repair and maintaining electrical system heat light power control signal or fira alarm type building structural b mechanical and architecture and electrical code specifically to determine wiring layout.
+
+- cutting threading , bending, assembling and installing conduits and other types of electrical conductor enclosure and in walls and floor .
+- position maintaining and installing distribution and control equipment such switch relay circuit circuit breakers panel and fuse enclosure.
+- installing data cabling or fibre optic and system and 
+- testing circuit to ensure to integrity and safety..
+- recommend: must least 16 years ,good communication read skills , mechanical ability strength and Manuel dexterity.
+-;the ability to worh at height s.
+- the ability to lift between 11 and 25 kilograms.
+- the ability get  longer job .
+- ability to do very precise work expert and  ability work at a variety of excited task..
+-access or entry requirements.
+9 minimum grade .
+- subject.
+Compulsory subject ..
+- training routes : routes towards being qualified artisan apprenticeship program 2 ,4 years plus trade test ...
+-possible employee opportunity ; manufacture and engineering sector .
+- municipalities 
+- government de department 
+- energy supplier entities
+- industrial companies 
+_____________
+Career guide merseta .
+-what work will you do : a pipe fitter disambiguation repair maintaining fabricate essembles installs and quality assures pipes system in accord with design engineering codes and specifications taking into consideration health safety requirements.
+- a qualified learners will be .
+- maintain pipe system related components applying removal inspection installation technical in accordance with pre defined specific.
+- fabrication pipe system in accordance relevant specific .
+Participate in quality assurance and testing procedure of pipe system and related components in accordance .
+
+- recommended interest and skills attributes.
+/.must be least .
+Must be meticulous accurate must be practical,enjoy working with hands .
+- have mathematics aptitude be responsible and ,be able three dimensional.
+- compulsory b.
+Subject.
+- training .
+- avenues to be qualified artiu, apprenticeship..
+_____
+Construction industry ,large works ,mine,large plant and factories 
+_________
+
+Ref: nyda gov.za 
+
+Mentorship programm:
+
+- practical .
+Process established respective business the first phase of approximately six months facusr on development entrepreneurship skikk identify and evaluation a business opportunities business planning process as well a testing the viability of the business plan .the second phase assist metted with gathering resource to establish the business plan the second phase assist mentees with gathering resource to establish the business the process combine theory and practice to provide basic skills and enable mentees to apply that the learner from mentors respect.
+- the programme emphasis the each mentees play an active role in their development .nyda provide guide learner completed modules assignment..
+
+- who qualifies: to become a mentees .
+-rsa between 18 ,35 of age ,51% ownership in business.
+- must have start up existing business 
+- have micro or small entrepreneurship 
+- must be self motivation and prepared to lead their development process ....-
+- business least 3 years experience in relevance industrial.
+- must be experience manager and entrepreneurship.
+- retired professional.
+- be entrepreneurship development.
+- ________
+Cooperative: cooperative autonomous associate volunteer to achieve common economic social jointly ...
+- kinds of co - operative: housing  cooperative,workers co- operative, social co operative, agriculture co operative, financial  service .
+- consumers co operative 
+- marketing and supply co operative.
+- service co operative..
+* Co operative models:.
+- workers co- operative provides member with employee opportunity and income  member both workers and employee band should understand that..
+- user cooperative: are former entrepreneurship..
+- value co operative.self  and self reliance : members should always rely external help to get .
+- self responsible..members are responsible make their cooperative work.
+- social ..
+- equality : every member must haves and equal ..
+- characteristics of co operative: 
+Co operative are different from their entrepreneurship because.
+User benefited ,.
+User ownership
+Have duaj functional 
+- principle of colera..
+* Co operation registration requirements.
+In order .
+Requisition supporting documents..
+_____________
+* The gauteng youth commission in partneri with gauteng provincial.
+-;making gauteng ..
+-;youth policy advocacy...
+- decision making legislation 
+Through portfolio commi..
+- in youth development and economic opportunity .
+- on job creation  youth cooperative..
+- on education and skills training for youth :
+Education institution ,student learner ..
+- youth wellbeing : test program health
+- youth civic education and participations in democracy.
+- GYC step program electoral process voter registration .
+Life skikk : wide ranging education program .
+- on sports and recreation.
+Sport .
+- on reaching ..
+_____SEfsa training center based in metal industrial herland 
+
+
+	
+	
+	
+ 
+
+-14.WARSETA:
+Career guide:
+- planning your career :step planing career ask ,life orientation or vocational guideline counseling .
+..self assessment focus.
+- interested: path,value, personality, personality types need for retail career .
+- wholesa and retail career path identification  
+Rental ,planner ,buyer
+Order , cash officer clerk
+- credit ,visual merchandising 
+- sake account credit 
+- learner
+Wath  is a learner ship  learner ship struct work base learning program comprise  of 70% practical and 30 % theoretically trading  results national recognize qualification.againsv..
+- apprenticeship is technical system that practical and theoretically trading apprenticeship are different learner ship that job orientation and related to soeciutrade ,good marks selected ..
+An employer offering apprenticeship training training must work learner in designated trade term manpower act get n2 certificate relevant tvet college employment b pass trade..
+- level high education qualification subframe work and Qcto  qualification occupational qualification framework 
+-doctoral degree doctoral level 10
+-master degre master degree professional level 9
+- bachelor honourable postgraduate.level 8and occupational certificate.
+-bachelord  degree advanced 7 , occupational certificate 
+-;high certificate 6  occupational certificate.
+- high certificate 5 level , occupational 
+- general and further education training qualification subframe emalusie
+- national certificate 4./ Occupational certificate 
+- intermediate certificate 3,/occupational 
+-elementary cery2/ 
+- general certificate..
+Retail qualification in higher education..
+__'___________
+
+> 
+	M
+	
+	
+ 
+
+15.Reference: saice , 
+
+construction project management encompasses all branches of civil ..
+-Wath is civil engineering : civil engineering is professional engineering discipline that deal design.
+- who are civil engineering practiners :
+ Relative thinkers and problem.
+- interested in improving quality of life .
+What do civil engineering practiners do :
+Plan design and build infrastructure,examine environment ,carry necessarily ,communicate client supervise prepared plan execution the construction.monitor ...
+- which degree diplomat and what do I need .
+- grade 12 ,4years,post Grady's ,, technical pratique.
+Technical and technology..
+
+	
+	
+ 
+
+- 21. course name | course date | location| cpd accreditation number ||| course presenter |||| contact.
+- principle and practice of facilitate management for engineering.
+-legal liability mine health and safety act ,MHSA act 29 of 1996.
+-road to registration for candidate|
+- road to registration for mature candidate.
+- road registration for mentors supervisor and hr practitioners.
+- basic contract administrator quality control .
+- getting acquaintance with GCC..
+- getting acquaintance with geo synthesis road .
+- getting with sewer design .
+- getting acquaintance with water resources manager .
+- pressure pipeline and pump station design specifications and practice .
+- adjudication and arbitration how to deak with challenge to jurisdiction.
+- project  management of construction projects
+- structural steel design to sans 1016-1-2005
+- reinforces concret design to sans 10100 - 1-20000
+- practical geometric design.
+-leadership and management in engineering.
+- water low of south Africa 
+..- legal process dealing with construction dispute.
+- earthmoving equipment technology and magement for civil .
+- concret for contractor consultant.
+-durebility repairs of concrete..
+- legal liability occupational and  safety act ohsa.
+- construction regulation from legal perspective on.
+
+_________________________
+Evaluation 
+
+-- award categories: 
+Technical excellent category ( 19 projects)
+- community - based category 9 project 
+- international category 6 project 
+- institution awards division awards , individual awards ,and photo competition..
+- project adjudicators: team .
+Project submission for ajucator
+- technical excellent category: 
+- the project shows notable advancement in the application news existing method of design construction project .
+- the project portays the ar and science civil engineering.
+- the project is functionally efficiency 
+- the project was well managed and completed on time .
+- the project environment and community..
+* Summary:: design flats bulk  .m/ s cube project  piling tunelling 5 km route ..
+* Project desct: city town existing , completed ..
+* Route engineering and public liason..
+- barometric loop and vortex drop structural 
+- micro tunnelling 
+- in conclusion 
+
+* Pedestrian bridge : 
+Summary : cable highway ..
+- project ..
+Conct.
+*Construction reservoire water treatment works ..
+12 ml .munuct pumped..
+* Human settlement project ..power house
+* Community water supply project ,,1500 inhabitants ..
+* Upgrading of road ..
+- instruction:
+_______
+*From the president ..qua vadis civil engineer.
+- opinion.
+- railway and harbour engineering..
+- job creation and skills development .
+- collusion and corruption: 
+- fallacy ..
+- ecosystem recovery 
+* Railway infrastructure  academy 
+- module 1 feasibility and systematic design : 
+Session 1 feasibility and geometry design 
+Session 2 track design .
+Session 3 overhead electrification design .
+Session signal design .
+- module 1.
+- infrastructure maintenance management.
+- combination track and ohte session .
+Infra  maintenance  strategy and management.
+- risk management.
+* Track maintaining breakwat session .
+- session 3 track material and maintaining 
+- session track constellation and renewal ..
+- ohte 
+- substation maintaining 
+Static load test .
+- bluff reclamation.. drawing n1.
+- section of quay wall - 30 ft ..
+* Introduction : 
+
+* Marine loading arm versus : 
+. efficiency load loading arm ..
+Design life 
+Safety v.
+
+- pipeline arrangements.
+- installation .
+- flexible 
+- criteria for berth .
+- type and size load arm .
+- comparison of model results with measured data ..
+Modelled changed in bed level bid bay trend are indicai ......
+Movement horizons countourn .. function data 
+- correlation with forcing mechanisms: erosion accretion revealed  astronfj offshore .
+- conclusion v..
+Acknowledge ..
+- acknowledge 
+- points  .. distance.ht atk 
+- land surveyors ..
+- point | distance top | hr lat ..
+* Land surveyor ..
+Coastal engineering 4
+- civil engineering .
+Mechanical engineering 
+- coastal ..
+- results summary.
+Site | range | altitude lat | standay device
+..
+* Age distribution of all analysis responders.....
+
+
+Results of and observat: 0 to 15 years experience and closer to come  categories engineering practice , responsible technical . theoretically technology b..
+- gross annual salary R.R20000 00/ 12 month ..funct number of years experience 0-5,6-10,15
+
+..not regt , register a candiy, professional candidate..status . ..
+_____________&&&
+- news from the saice diversity and inclusive panel : tackle .
+- on the cover .
+- construction and project management:
+- in brief .
+Distribution board ...
+- non stop process
+* Construction stage 1,deck concret pour high road infrastructure.
+- project description: 
+- a grade separed interchange . elimination .in order ..
+- bridge ..
+Walks 
+- piling ..
+Pile caor 
+- temporarily deviation.
+Change order process..
+Contract name :
+- client 
+- consultant 
+- contractor 
+- special subcontracy..
+24.Overview 
+_________
+* Background : 
+- client requirements 
+Pavement 
+50 mm ac surfacing.
+200 mm G1 base
+409 mm C3 subase
+150 mm G7 selected subgrade ....
+- historical review : reinforcement of road studies  ,cost , quantity , transport ....
+- layout of trial section:
+1.lateral restraint
+2 increased bearing capacity due to creasing length shear surface.
+3 tensioned membrane effect
+- verify the effective of geogrid a field test is still regarding essential historical blood testing falling weight deflectinetry .
+- fwd we used verify ..
+- present research : geo synthesis where used weak ..
+- project description : date ..size 20 m section construction m .m control section..
+- results from dco test: modules..
+X8,y5  secan moduli stages ..
+Moduluis mpa .0 to 80 .. pressure kpa  25 to 525 ..no geogrid stage @ ,no geogrid stage 2..
+- depth .mm BGL ..DCP testing   
+- the pLT test plate in relation layer ,kn/ m exerted 450 mm diameter steel plate ,29 stage ..
+- displacement mm to applied pressure kpa .x2,Y5 ....
+- drone usage construction ..
+Introduction predetermined operation remote advance ..
+- drones : gors control ..
+- aerial photography .
+- inspection: building conductive.
+- surveying: survey data gors .
+-* safety on site : officer to communicate emplt.
+- security monitors: security construction .
+- project progress report .
+- advantages of drones in construction.
+- refidity missing component in base plate design : 
+- base plate design procedure : 
+- fastener design regulation:
+- duration of case  project in day :
+- original estimate duration 
+Actually duration 
+- simulated results 
+Minimum duration 
+- mean duration 
+- stabdar .
+- coefft of deviation 
+- finaj duration restjt 
+Simulator results 
+* Proposed construction program..
+_____
+* Parametric optimisation of railway track structure:
+- background: rail track been cost effective environment means .
+- objective: one find ways maintaining acceptable .methode caliber modejb
+- couple type locomotive conf..
+- planes of symmetry plane ..
+Indicating planes of symmetry..
+- project desct: the test capture data defllectimeter..formation
+- maintenance phylt and process :
+Step preventive maintenance, maintenance strategy,predictive , condition monitors 
+Structural condt,mainline turnouts annual,years ,, geometry measure , ultrasonic, inspection safety ,foot patroking ,trolley inspection ,fooplate,maintelune ,,
+- condition assessment inspection process
+- primary intentions: structural assessment, geometry measure,safety inspection,foot patrolling,trolley inspection,footplate..
+- primary intentions: obtain comprehensive set determi , obtain geometry,determine whether set is safe,record and report defect and fix minor,assess ridgin quality over set and record defect ,assess riding quality over set and record visibility defect.
+- methode measure record  parametric and visit assessment, geometry measure machine , visual Data measure and conditions rating ,turnout track quality,whether in safe , condition,of certain component, visibility defect 
+- frequencies , annual for mainline set two yearly ,six ,
+- evaluation criteria : very poor , poor but acceptable,good,very good ..
+Extract from model calculation the condition:
+- set number | odti
+- location section| 
+- inspector date 
+- set type | turnout left hand | 1:12|| reference clause tm 2099|| standard v|• stand ||| max / min ||| field measure condition 
+* Ballast | ballast depth blade area ||mm
+* Sleepers ||sleep blade area
+* Fasterbing 
+* Formation 
+* Clearance
+* Component 
+* Gauge..
+- condition index determination: 
+General condition:
+C1=Wc(C*/(1+fg)+0,6R)
+Wc= criticality weighting 
+C= %of component with 0 rating
+R=%of component with 1 rating
+F= factor for % with 1 rating..
+______
+Ballast = 5Wc
+Sleepers=15
+Fastening= 10
+Formation=60
+Gauteng 5=
+* Element 
+Multiplier factor % repair 
+% 1
+Safety condition : deraillemrnt investigation conductive region ,excessive side crow wear on stick rail , excessive stock guard gao research from other parts also major contributor .. safety condition..
+Cis(S)=C induce 1,expos 1,15+0,1C1S.
+Where 
+C1= condition index ..
+S= Ds+Dg+dg
+Ds = number deflect on switch ,DC number defect for deflective gauge
+Dg = number of defective 
+
+
+- 
+
+> 
+	
+	
+	
+B 
+ 
+
+
+
+> 
+	
+	
+	
+ 
+
+- what is ambient ,air : portion of atmosphere outdoor,air nitrogen 78%<, oxygen 21%<carbon dioxide 0,03% ..
+- why do have to monitor ambient air : legal requirements term magement act 39 of 2004 ...AQM ..
+- how does air population affect : industrial mining v.
+- how do we monitors air pollution. Communication...-
+- measure station measure instru ..
+- what is measured : 03 ozone PM10 particular matter ,than 10 micro ,S0 2 , sulfur dioxide..
+-
+- other pollutants of concern that are measure,,
+- wath are ambient air quality ; wath does. ..
+- what value does the data possess :
+The monitor data monthly quarter annual report..SAAQIS....
+Biodiversity conservative environment 
+_____&__
+- deployment of drought tolerance and insect protected maize to smallhold farmers ..
+- introduction : make farming risk  crop production maize food ...impact negative animal.. season summer ..
+* Aim objective : project private..
+* Methodology: site region hybride mise planted ..good plot analysis gri
+
+* Results: 
+Maize variety was best performance ..
+* Conclusion and extension implications.
+Gain quality good farmers picked gain knowledge on good agriculture ....
+______
+Farmers register campaign : collected coca census of commercial agriculture.daff ..
+- what is the producer farmer register campaign fpfr : is statistics..
+- key appointme council gauteng economic development agriculture rurak development ..
+- key responsible :
+-- rurak chef cooking skill ..catering business fod.
+* 
+
+	
+	
+	
+ 
+
+-23.reference research resource bibliotech ..
+Public open bar ,and shopping. Center magazine research.. reward award comment club .
+* Submission education casebook,case file ,file magazine file chain supply close requirements 
+* Issue title isbn authority text book learning judgement learning attorney bargaining.
+* Reading access memory judge ,only processor record transcript land claim development review court book appeal correct overview small clam master high court clearance sars business close submitted report psira sasseta ..
+
+
+|25.1
+__| Issue title ||| topical resource counter ||| prices ||| order project case ....
+Trade test .. bulletin trade magazine collection 
+
+
+Question/ answering explanation 
+- south Africa number 1 learnerning cover the test officit test sylt k53 || PG 6 license test quality PG 7 ,PG 41regulator ||| R59.00|||| 59.00
+- driver made easy for figth monitor |• ph 33 road test stopping parking inspection examination drawing test cover point check PG 112 ,  order R65.00
+- learner and driver license test k 53 for car bike truck : pgg 33 control of round test stopping ,order R340..
+- Honda civic no 110pg hayen service and repaired include round side made round side and test checkers : weekly check PG road sir maintaining process convers : order 340.
+-knowledge master how thing working ,,vet 14.15 vehicle safety and security pedal PG 22 iron and PG ,18 road ,R 49,95 
+- smart kids science : PG 22 iron PG 18 ,R 149..
+- process instrument technology : PG plastic | R 252,R 149
+-chemistry Cambridge PG 204 ,PG steel work ,1198 examination R 242
+- chemie PG 2g 204 ,,PG 188 chimie gaz ,R 137,5 
+- Cambridge master skill of 2pg 19 ,, PG electronic PG 100 diesel ,R 137,5 
+- invention over time inside ,PG 42 ,,R 92,
+- car road test 2011apriln drawing structural ,R 27,9
+Car ,2011to 2012 ...: science motoring. Mechanical , road test specifications,PG 188 electron tech document, technical stops ,stop star alternator batteries,,driving impression fast fact ..case book drawing Armstrong 
+Layout engineering 
+PG flying ,, PG 180 tech ,,PG dive inject 
+- July 4×4 advent  document 
+March t December PG  document society ,steo manufacture,drawing power fuel technical specifications ,pump turbine brochure civil circuit ..
+- body shaft drawing  development ..
+Max my tube ,
+Car in action ,armed assault methyle  document ..
+- December 2919 magnum  remaneb game fire cleav,knife testing fire results, fire control artiste  order. R 31 , manufacture technologies machine,
+Autumn 2011 ,,
+- engine engine PG document given document ,R30.
+- august : document wallets 
+Flyer ..
+- top car : option test suggestions examination R28,85 
+- case book document 
+- April R28..
+- x kit the definitely preparation grade  11 , PG 146 trade R 189,00>
+X kit grade 12 definition preparation ,PG 236 extrusion ,R 88
+- x kit grade chemistry PG bolter ,order R 201,,.
+- mechanical popular ,PG sky limite ,R29,95 drawing engineering internal combustion refin design ,still building wallet case book 
+- green 2011 . monitors road safer 
+- 2012 trade commercial auto R 25.00
+Certification  other  June page machining PG 336,  
+December , popular balance ..,R18
+-;computing electronic document R 14 ..
+- connection incredible : up grade PG grade PC introduction technology information business communication PG ,R 1000
+- PC format , internet  document architecture ,R 36,00
+- prospectus : information communication programmed high techno information language,PC R 100×4 ,,R 100×400
+- electron : document technology ..
+Epe every day avril 20, document ,R105×9= R3667,409
+- book Epping admn accreditation , PG act regulator ,R100
+- 2010 security book ,nogada psira sasseta learning ,ob pocket instruction ,act explain become security provide ,office patrol access ,reaction supervisor, management ,duty  order R100,
+- security training book education , company guard contract 
+- security book employee car guard 
+- security book customer trolley ,, book report induvuypsira , security training car guard.
+
+- industrial.
+Security training car guard industrial , certificate order 100.rand 
+- security fire arm pain bakk ,note syllabus .
+- security partnership card guard . security book correction, psira register ..
+- trade test n1,n2n6 ..
+Power machine ,
+- hydraulic , diesel thermodynamics ,book test license ,business 
+Fluids mechanical engineering ,motor diesel ,
+- power machine ..
+* Submission appeal close guard motor : 
+Assignment motor guard | subject division engineering technical technology 
+
+- cover provide by police ..
+Issue month | power factor | found formulat | methode 
+- gear box Manuel automatic internal component internal include torque convert gears shaft bearing synchrt valve , service ,body nanuej clutch ..
+- differential all internal component crown wheel pinion  career bearing planeu gears exc side shaft wheel bearing s
+- 4×4 front differential unite gube 
+- turbo blower motor  
+Compressor supercharge only fitted as manufacture .
+- breaju system master cylinder wheel clipper abs .
+- sues service inte euber ..
+- steering power steering all internal part steering box back dusj cover .
+- fuej system fuek pump air flow meter fuek accumulator fuek accumulator fuek distribution warm up regulation excluding fuek injection clown plug trimp bodies carburator assembly and failure attributes total to fuej .
+- cooking system radiator water pump thermo switch 
+- case book 
+- warrenty solution 
+- guard vehicle 
+- cause liability 
+- amount 
+- electrical component starter motor windsct seat motor electrical conversation.
+- electronics ignot all solide. Controller trigger unite .lead soarks
+,plug. 
+- managit unit engineering gears box manat gear box unit engine central unified 
+- camshuft sensor lambda sensor excluded v purchase 
+- driver shaft all component cv joint  excluding rubber dust cover
+- suspension wish vone aligt direction.
+& Cambelt and duller bearing break soring teeh exckt replacement I. number amendment, schedule maintaining..
+- clutch release bearit master cylinder and solve cylinder friction surface clutch  plate and pressure exhausted cataclysmic convert 
+& Casing engineering block gears casing different housing 
+- telephone system telecon. Phone speaker microphone charge and gradient recover power convector ttabsdt.
+- internet access system safe unlir dusting wireless receiver satellite recover power transducer guard 
+- limits of liability converted company motor  guard master classic silver gold titanium iron , plastering thermostat years guard towing car hire nots accomodations parking attendant car cover 
+- medical assistant incident,
+- the insurance cover provided,cover by this policing armed ,,
+- vehicle eligible 
+-setllement 
+
+
+	
+	
+	
+ 
+
+- teat average 
+Assessment sasseta.
+accreditation 
+Credit:
+-fisrt name :
+- last name I'd
+Full security level 
+Explain ,
+Scope 
+purpose 
+
+
+
+- specialist security practices explain the requirements for becoming a security services 
+
+
+- in a security environment..
+- use security equipment.
+- responsible .
+- given evidence to court ..
+-Use security equipment .
+- skill programm 2 : sasseta access control officer :.
+Evacuation and emergency drills .
+- apply basic business ethics in work contech .
+- operate a computer workstation in business environment.
+- officer psira grade c ..
+-Coach a team member in order  self and team in order to develop a plan to enhance team member in order apply ---_occupational health vsafety  environment principal audience 
+- and in defined operation area 
+- performance one instruction...-
+- *security first line supervisor psira grade B :.* 
+- supervisor assessment in a definite operation area .
+- demonstrate basic .
+- interpretation and use information from text .
+- performance one instruction.
+- skill program ..
+- sasseta security prevention description the relationship of a junior management discipline action ,interpret and management conflict with producti0n ..
+- other units standards on offer ..
+- apply demonstrate and understanding of the use of different member base and ne ..
+- describe apply analysis and calculate shape language and investigation monitor the financial aspect of personal business .and ecological right in the field of crime and victimization ..
+- use language and 
+- statistics and probability to critical interrogation and effective
+ -communication and evaluate spone..readiness sign text ..
+- write present sign for wide range if cintesc .
+- meeting ..
+- write ..- describe and apply the manager function of an management function..
+- description and apply the management function of a management function .
+- formulate and implemented an action strategic to deal with risk behavior to promote psychological health build a team ..
+- move tactically on foot in team .
+- conductive and organisational ethic at..
+- attend to and management a collision  management .
+- attend to manager a collise .
+- nanage risk in business .
+- transport a prisoner.
+
+> 
+	
+	
+	
+ 
+
+-25.1 reference: pleading index ..
+- retriview file appeal records file move achievement.
+- power attorney appointment petitioner notice motion judge president honourable submission analyze case  login file refund amount order no debater creditor .
+
+Explanation experience court labour 
+Doj ,ccma high court , security private sector policy private .,low relate test award ruling 
+
+- number | description document|| PG 
+- development sector bargaining council procurement  skill pg1-150
+- notice of motion petition petition affidavit|| PG 1-150pg
+- bid close argument record retriview file supply head argument.
+- notice of motion bid || 1-25pg
+- apply for leave to appeal ruling regulation head argument|| 1-15 PG 
+- judgement leave to appeal||1-24pg
+- transcriber leave to appeal be for the honourable madam justice secretary ||1-7pg ..
+- set down.  || PG 
+- rescission ruling. || PG 1-3,,1-2pg
+-list  other employees || 1-2 .
+- enforcement record || PG 1-2
+- order checklist  || PG 1-2
+- affidavit in support services by registration||
+- affidavit in support services by register ..
+- index of leading||1-4 PG 
+- notice of motion proof of service | 1-10pg
+- application certificate case book || 1-10pg 
+- application conduct cancellation | 1-13 PG 
+- form submission analyze | 1-14 PG 
+- application conduct form employee||1-14
+- application social development |•1-14
+- application competence coid uif | PG 1-9
+- casebook learner work book section case book learning..
+- casebook work labour head submission file record .| 1-19 PG 
+- ID diplomat attestation life birthday certificate translation copy Dr congo ..
+- bookepin email..
+- discount valuable 
+. estimate cost proju record 
+- order book .
+- order desct title isbn authority file .
+Order review 19 rand land notice motion no order copy month summary banking ..
+- bid submission 
+
+> 
+	
+	
+	
+ 
+
+- agreement judgement leave to appeal order petition reason bid submission memorandum skill .
+-data of first issues: 
+- document type : learning programme agreement 
+- revised b
+- document number ,ETQA ..
+- settlement agreement and draft order 
+- motion proceedings excluding urgent matters .
+- case management.
+- application to review awards and rulings.
+- application to review award and rulings.
+- application for winding up trade union or employer organisation.
+- index pagination binding and general preparation.
+- heads of argument 
+- postponement 
+- practice note in motion proceedings 
+- urgent matter
+..
+- genet provision 
+* Statement of case ..
+* Description ..
+* Admnis ..
+Acceptance of Questions..
+*-______________________
+- submission.
+
+Fp m seta ..fibre process manufat sector education and training authority..
+- learning programme agreement 
+Learner details 
+- name :
+- surname:
+-ID number 
+- Learning program title
+- learning program I'd number 
+- learner status , employee 
+Fund by seta 
+* Employee details.
+- registered name of employment:
+- contact person 
+Telephone 
+- emat
+* Training provide details.
+- registered name of provide 
+
+* Learner programm ..
+Name of learner programm :
+
+- department of labour registration number of learning program 
+- commencement date of learning program agreement 
+- termination date of learning program 
+- occupational that this learning program is relate , organization framework occupational ofo 
+- name of qualification .
+- saqa qualification I'd .
+* Submission criteria 
+Certify copy of learu I'd docuy attached|yes||
+- copie of three original appreciate agreement for apprenticeship frome the application 
+- copy medii certificate apprenticeship agreement .
+- agreement signed all parie 
+- employee correct ,address ..
+
+*Term and conditions of agreement:.
+- legal .
+- right of the learner : 
+- receive induction the learner programm.
+- access to requirements resot achievement of the specified outcome structural learn as well practical experience activity of orohi.
+- received a written statement results 21datd  final assessment 45 working days learning final assessment.
+- in the case learner .receiver learning program allowance ..
+- seta ETQA ..
+* Duties of the learner...
+- carry out all occupational related work related work employee requirements practical experience activity specific in the learning.. available .. practical workplace ext activity learning program.
+- attended all theoretical learning session and practical learning activities with the training provider
+- completed time sheet and project and participated in any assessment activity that are required for the final assessment at end of learning .
+- undertaker all learning relating to learning .
+* Right the employee : requirements the learner to :
+- performance duties in term of this agreement 
+- comply with and regular concerned workplace police ..
+* Duties of employment : 
+Comply with all duties in terms of the sill development act and applicable legislation including .
+- basic condition of employment act 75 of 1997.
+Labour relation act 66 of 1995, employee equity act 55 of 1998 
+Osha act 85 mine and safety ,
+- compensation occupational injury and
+Unemployment  insurance act ..
+* Provide facilitate and resource for specified practical experience experience activity of the learning program.
+- provide the learner with appropriate education and training to competently performance .
+- conduct in job assessment b for specified workplace experience activity cause to be conduct 
+- pay the learner the agree learner allowance for the duration ..
+- apply the same discipline grievance and dispute resolution process to employee 
+- submission record as requirements by ETQA body .
+* Duties of the training provider : 
+- right of training provider: 
+The right access the learner portfolio of evidence and workplace learning related assessment.
+- duties of training provider: 
+- provide the structural learning specified in the learning program 
+- provide the learner support requirements.
+- record monitor and retain details if the education training provider ..
+- ensure off the job assessment for structural learning component specific in the learning program or cause in to be conducted
+- ensure that assessment again the outcome of the qualification associate with learner program is conducteyat end the program.
+- issue written statement of results in respect learners final assessment for qualification associate with learner programm whirin 21 works days of assessment to the learner seta and eqta accreditation ...
+- suspension of this agreement : the employee and learner have agreed in writing to suspend the agreement ,learner has requested on good to suspend the agreement and the other parties to the learu programme agreement have had opportunity to make presenting.
+- learner employee setting reason  
+* Termination of this agreement : termination date stipulated in part B this agreement.
+
+Learner has successfully comply the final assessment and fulfilled all requirements workplace experience of learning program .
+- learner is fairly dismissed by the employee for reason related conduct or capacity as emplt .
+- seta approves  the termination of the agreement in term  program regulation ..
+* Dispute : ccma .
+- the interpretation or application of any provision of this agreement the learners contract of employment or sectoral determination made term 18 (3) the act ..
+- termination of this agreement in case .
+
+____
+Database of fo m seta learnerships
+Current ETQA | learnerships I'd || credit || nqf |||| linked qualification ||| linked to ..
+.
+
+______''_&&&
+* Merseta granted c ma strategic goal s 
+Monitoring and evaluation: 
+Ccma has established a system that it monitor impact it's offers  goak fairs democracy 
+- strategic objective || sub objective score 
+- entrench the role of the ccma in the labour market |. |. 
+- building skill to achieve professional 
+- delivery excellent service rooted in social  justice enst balance  quality 
+- enhanced and entrench internal process and system for optimal deployment of resource .
+- enhanced the structural that will enat optimt imply of strai .
+- entrench organt supply .
+-grand total ..
+.__________&
+- operational focus || target / objective |
+- pre councillition heard | hear 10% more jurist refered .
+- pre councillition | settle %  more jurisdiction 
+- con / arbs heard / jurisdiction referral process
+- councillition heard ,close more all conciliation including 
+- settlement rate | settle more arbitration 
+- late award | statutory requirements to issue award 14 
+- postonent adjournment : all process
+- average turn : concillt place 
+- average turn around arbitration | 
+______
+Job savit .
+Mediation section outcome 
+Employee like affected | total retrench | force. Retrenchment | voluntt || job 
+- training lay scheme .
+Number job case exercise done seta training commenced not yet completed lay ..
+Number project  
+National skill fund process 
+- totaj application involved number company trade union work 
+- statement of financial position :
+Capital and resert 
+- non current list
+- current liabilities 
+- equity and liabt .
+Fixtuy equipment intagiby 
+- cash and cash equivalents 
+- current assess 
+* Public sector award ,award silver in category best reputat in legal sector .
+* Nomination as of the top tree organx legal sector years in citizev
+
+
+
+...
+
+[Message clipped]  View entire message
+
+
+	
+	
+ 
+
+-26.reference:
+- department labour.
+- purpose: of this form 20 requirements designated employee to  imply an employer equipment which plan achievement b.
+- the objective to be achieved for each years of the plan .
+- the affirmative action measure to implement as requirements 
+- under representative people design group identify analysis numericaj goals to achieve 
+- duration of the plan , longer 
+- procedure monitors and evaluation the impletation of planning 
+- internal in workplace , include senior , responsible for monii .
+- employee details trade name :
+Dti registration name :
+- paye sars 
+Ref
+- industrial sector : education training development 
+Produce 
+Postal address 
+Name surname .
+- barrier affirmative action measure : analysis was conduct in consulting 
+- top management,ee manager,all member 
+We feedback,and input during ee meeting forum 
+- policy recruiting procedure || procedure || practice || start date 
+- adversity position 
+- selected criteria
+- appointment 
+- job classification and grading|| staff placed in incorrect job levels ||| implemented policy and practice job  rectify job level 
+- remuneration and benefit|| no guideline on work of equal  value equal pay  and institution culture re discourage salaries counter policy community 
+- term condition 
+
+* E aE awareness : present employment equity training awareness session to 1000 employee requirements of 7,2 of code good practice prepare plan ensure meanifug consultant ,anti discrimination awareness .
+- recruiting and appointment : under represent designated group  goal target.
+-: evaluation : forum meeting minute attendance registration .
+- review composition .
+- affirmative action measure : implemented if affirmativ identification audit process.
+- record keeping : format keep system utilise retain prescribe document 5 years said will be reviewed updated quarter .
+- all employees will have access their completed 
+*Performance and evaluation ||,some employee di find help motivation applied review performance system 
+- succession experience planing |• deficient skill development new employee and deficient monitors to staff turb ,monitor and review staff
+- discipline measure : 
+snapshot of the current work force profile  disability .
+Make ,femsj foreign national total.
+- top management senior 
+Qualified expert.
+-management skill
+-work environment facility | discipline arbitration  students disabled facility people and access
+- training and development | lack of employment participate initiative diversity anti discrimination award a month all employees.
+- qualification workers 
+- junior management ,skikk ,semi skill discretion ,
+Unskikk and decision making 
+Temporarily employee 
+
+
+	
+	
+ 
+
+-27. reference:
+Unity work designation issue commissioning assessment supply judgement training skill development.
+- Event title : course protection of personal information act .
+- full description : the protection personal act n4 of 2013 popi will directly affected your business although the act not yet in operation the legislation has hinted act will full swing in the near popu in self is very technical and comprise chapter ..
+- module introduction inspector.
+- need data protection law in south Africa prevailing international .
+- general condition: general condition for lawful processing of personal information .
+- specific condition .
+- specific human resources condition for low processing of information.
+
+- practice training.
+Practice 
+Solving scenario .
+- Question and answer session.
+Full description : disciplinary hearing are common occurrence the the workplace and part parcek of the manager and shop daily employee fair practice registration .
+- role of your disciplinary code procedure.
+- code conduct .
+
+- Reporting misconduct.
+-collecting evidence source of evidence 
+- consulting witness and intimidating witness .
+- unwilling hosting .
+Different types evidence how affidavit documentary evidence .
+-:
+Event title : workplace disciple ..
+- counseling of employees 
+- incapacity poor performance.
+- grievances and grievance procedure.
+
+*Title| description || type. ||| Action
+Anti corruption fraude policy : a policy assisting and employee to deal with prevent corruption fraude in the workplace.
+- code of ethics business conduct : a code of conduct regulating ethics and good business conduct and standards requirements of employment when conduct ..
+- discipline : 
+- code procedure with appeal process : procedure setting out the principal discipline  setting
+- discipline code procedure : procedure for employees information 
+- discipline code with  disciplinary procedure for employees 
+- discipline and procedure .purpose this policy company the employee 
+- incapacity due to ill health injury policy : to ensure that employee medical performance.aim ..
+Purpose of this policy to create company and employee to ensure fair and equitable treatment of the employee 
+- incapacity health 
+- master document ,a ..
+Manager : management of files .
+- police master document management : template for human resources involved document an information sheet .
+- policy religious holiday activity b..
+Policy the managing of poor performance .the main of policy is assist human resources employee prevent of and the effective management ensure poot not deak with misconduct but incapacity  management insure them .main this ..
+
+- recruitment policy  . purpose provide fair guideline implemented sheet best recruitment practical in a compi ,give guideline pratique compagne b
+- standards conduct..
+...
+
+
+
+	
+	
+B 
+ 
+
+- 27.reference ..
+Nsf 
+- summary of program requirements:
+- introduction:
+- programm description: 
+- award information :
+-eligilibilty information.:
+* Proposal preparation and submission instructions .:
+- proposal preparation instructor:
+- dues dates
+* NFS proposal processing and review procedures :
+- merit review principle and criteria 
+- review selection and process
+- award administration information 
+-* notification of award 
+* Award condition 
+* Reporting requirements.
+* Agency contact .
+____________
+Answer'
+..
+Innovation technology engineering mathematics education , economic ecosystem career k12 entrepreneurship.first class ,,ICT workforce..
+- initial h1b visa progu research development..
+- designing innovation that meet test program goak .formal informal ..
+- in ovativd use to 
+- use engineering technology use meaningful learning ..
+-innovative learning experience: interested career science education engineering technology ICT career innovation v.key features scholarship b..workline ..
+Pre k-12 grade range teachers ,instructor , mentor coaches administrator...
+* Work force devt job future , ICT workforce the future .ICT topics ..
+* Description how innovation advanced knowledge ..
+* Strategic for broadening ..
+
+- Measuring outcome through high quality research : research component that measure outcome innovation relative increase .. engineering science and ICT
+* High - quality reset design: to achieve term long proposal ..
+Advanced school literature ..
+* Project evaluation : 
+Proposal are expected to describe the mechanism will successful project development knowledge...steps that aspect ..
+- formative evaluation activities are designed to document the carrier .
+- essential clear description requirements component: 
+- articulation of evaluation question .
+Relevant to the project scope of work : 
+Wath does the project need to learning.
+- delineation stipulation .
+Project propose address  overstu.
+- description of how the project plan use evidence feedbsc.
+- dissemination of finding : creative community baudiancd ..
+Chanek.
+- project types : compiling object ,sound literature question research design ,appropriate data collection evidence , education professional development association b grade appropriate ..rand d synthesis conference v..
+* Exploring theory and design principles.
+- project draw litert..
+- up to three years up to 4000000..research description early explanation..
+- development and testy innovayv
+- scaling expanding ,,.- conference project ,build capacity ,, 100000
+- conference proposal submission 
+- antici type of award : 
+Estimated number of award ..test 22 and 30 award level..
+- 6 to 8 award exploring theory and design innovation ,40000.
+8,to 10 
+ award ..
+- eligibility :
+Proposal preparation submission full 
+- additional solicitat review criteria ..track advanced studies v..
+International graduate , novej 
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 7, 2025, 7:23 PM
+
+	
+	
+ 
+
+Price
+...
+
+
+
+
+	
+	
+29.1 
+
+- techi support : resource center is expected provide technical.support to facilitate projects success in devet and articulating innovation that strength knowledge of interest ..all stages of project life soan technical.limited ..for education facilitate emergency ..
+- disseminate : resource center is expected to synthesis and disseminate  of stakeholders work includes  portfolio internal ..
+- broadening oartication in the  pi community broaden ..
+- relevant : expanding under presented ..
+* Project summary : over it statement.
+1: statement on intelligence merite of proposed ,
+- statement on the borders impactcontent emphasis design implemented evaluation participate grade level studen project ..
+- project description : section vfullt 
+- project over : rationej proposal must address potential impact . Pathways student career proposed innovation different student teacher v.
+- results :
+- expertise management. Successful..
+* Reference..
+* Biography sketch 
+- special : information sypplenter .permit data plav post doctors research mentoring ..
+-budgerary information :
+- other budgetary limitations.
+Major research equipment purchase are not supported limits purchase of equipment software probes specialized ..
+- full proposal deadline ..
+Aubmi ..
+- fast lane ...for proposals submitted via grants .gov ..
+- nsf proposal processi and review procedure :.
+- acknowledge for review science engineering or educator  office , review penalised ,,selected suggest name  invited selected officer discretion submission b
+
+- award administrator information : 
+Notification of the award : grant office agreement progt administering verbatim copie ,, award  condition notice ,grant condition
+- report requirements..
+: principal invest submission anuek report project 129 days , failure provide finaj project report outcome ,any pending proposal  identify examine forbst , electronics projecy
+...
+
+[Message clipped]  View entire message
+
+
+	
+
+	
+	
+ 
+
+30. reference 
+Security training or the outcome of training application official approved methods and procedures act an objective manner ..
+-;employ any practice actually knowledge insight the person undergoing the assessment or testing .
+- must take reason step to ensure security training b...
+- reason provide to person entitled in term of the act undergo ..
+- security services providers installing service or repairing security equipment or performance function monitors .
+Must  performance all his or her function in reasonable manner trustworthy and competent manner 
+- may not install service or repair any security equipment if the client possession or use thereof inquiries reasonable in the circumstances to verify the lawfulness of a client possession and use of security equipment as contemplated in paragraph ..
+- may not install service repair or modify any equipment if the or she would act unlawfully in doing SI ..
+Installation if has been acquired in a lawful..
+
+- reasonable know is faulty untrustworthy defective.
+- poses an unreasonable risk to legitimate interest of client ...the effective use of the security unless information in circumstances to eliminate or minimise any risk of harn to client results the service rendered .
+- what is purpose of the liquor act ..
+- purpose of the explosive act to consolidate the laws relating to the same importation  and the use of explosive.
+- dangerous weapon act dangerous weapon means othe fire arm ..
+- any person who is in possession of any object fire arm or replica of fir arm contravention of the provision of any notice issue be quilty of an offence and liable on conviction to the penalities ..
+- explan the requirements for carrying a firearm in a public place ..
+Section 84 of the fire arm control act 60/2000 ..
+- trespassing section 1(1) of trespass act 6 of 1959 provides that any person who without the permii .of the ..of any lan building part . own building that is no occur enter shall be offence ..or be upon such land .
+- list schedy 1 offences as mentioned in section 40, 42 of the criminal procedure..
+Concept of lethal force is dscrt in line with coming law principle.
+- the consi court judgement has clarify rsa law a personal carrying out an arrest may use force which necessary overcome resistance to the arrest or to prevent person concerned from fleeing ..
+- a person carrying out arrest may use force an they only shoot fire or similar weapon if the reason ground for believing that suspect posses immediately threat of seriously body harm to them ,or threat harm to member of public ,that the suspect had committed a crime involved the infliction of seiouse harm ..
+- the walterd judge impatient only the use of lethal force ..
+- where suspi criminal not inflicted or threabed seriously harm it is hustiable use lethal force. 
+- explain the legal requirements when using lethat I force private self defense.
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 9, 2025, 5:49 PM
+
+	
+	
+ 
+
+31.1.Reference: master court jurisdiction , indexing pleading ,in execution of sale property...
+Sector court order reason commissioning order record 
+- sector xviii : applicant head argument ,notice refund affidavit bid ,notice motion low term filled , submission power attorney ,rules logic ,
+- sector: Xiii-xv legislation commencement submission mission court .
+- skill development applicant bargaining council at attorney set down power attorney office head.
+- skill development applicant director council applicant commissioning award order direct  compliance notice.
+- skikk development response nogada contractor rulling .
+- skill, development respondent ccma labour rules regulation notice motion 
+
+- award certificate default enforcement.
+- skill development saqa library 
+Buyer order 
+_____________________________
+- public library workshop:
+* Function task inveudetail || execution operator inventory|||| checkers yes/no.
+--
+-labour relation a south Africa ,jr  rossiw ,isbn 094006579 order book preface  forward ..
+- explanation : 
+- introduction 
+- the development of relay labour in rsa 
+- the era of adverse ° herbaria .
+- the code termination laboures relationship in rsa chao source .
+Labour relai.
+- the common low and labour legislation for education 
+- the rules of natural justice .
+- the contract of employment the labour low labour relation education .
+- chao individual employment relation  introduction .
+- definition .
+- employment right of education right of or education 
+- duties of educators 
+________&
+32.Ref: user license , part director direct social work and , order R 200.
+- introduction.
+- social work an overview 
+- direct practice v
+-client culture society and social close special .
+- question assure factu
+- assessing interpersonal system .
+- envy system 
+- interaction personality biophysical functional physical health..-
+- asaesserung  use and abuse effect drug alchok and the fetus diagnostics.
+- using  interview skill to assess  possible alcoholism.
+- use of instrument and procedure assess alcohol .
+- conveying assessment drug.  Abuse .
+- conveying  assess find ti clinic 
+- psychiat cognitive perceptuat intellectual judgement .
+- intellectual judgt.
+- real  testing  .
+- flexible value. 
+- misconception:
+- self conception interaction between cognitive emotional control range emotional.
+- appropriatneaa of effect , decorations .major effect 
+- assessing  children and adobe behave functionning  motivation event involuntary ,culy factor , culture norm differential individual and patterned
+________
+*Industrial administration manageriah ,jbattin .
+Orefat for firtg acknowledge list .
+- general framework  ..
+Chapiter  complexity of management part one principle and general and growth of management through .
+- order 37786655 ,open 
+_____
+33.1Tpm 
+* Feature of tom structural for overall equipment effective and defect preventiin system the Toyota production and relationship between.
+- Terrotechnology and logistics maxit equipment effective equipment , equipment used half 
+- breakdown and minor stoppage 
+- acceleration determination the determination of equipment prevention 
+- maintaining breakdi five counter measure  for zero. Breakdown license operation of automated errors equipment investigation investigation development visita organization for implemented the twelve step development steo 1 announced decision  top many decisions ,step estably created step  basic. Formula implemented and stabilizer basic formula 
+-step  automanomouse  maintaining  maintaining programm.
+- step development program fully and are ton small group activities integral small integral .
+- evaluation the maturity of small group activities the truisb for application procedure proceductive 
+33,1reference 
+Safety road teaher
+Human dignity.
+- taking and responsible action .
+- identification of criteria
+- phylosophic if life 
+- incalxulationroad safety in various level of human existing .
+- coexisting human relations and safety the relt of understanding conclusion.
+- the relt .
+- the original of technology and it imolicat and education responsible.
+- seeof responsible an education.
+- the task of school.
+- the requirements of the schools 
+- road safer and indolent in accident.
+- accident accordance degree in rsa from 1977 .people 
+- people .conclt from statistics the cost of accidents cause .
+- poor training ,alcohol involved .
+- personality defect 
+- poor vision fatigue
+- possible solution to the problem quest list..
+* Traffic training in the second school ref to training .
+Introduction;
+- content:
+The traffic situation 
+- the involved
+- traffic training method 
+- certain method reqt with road safety method must comply
+- content method for training traffic youth level ,abuse among the young .legi enforcement 
+- element of natural .
+- traffic hours and denst trait method conversation planing:..
+________&&
+Duty 
+Driver you mark the right of ways but other edge.
+- compulst .
+- stop : you must stop if the director sob a traffic officer or sign road 
+- personnel form animal ..
+- general  duties of driver and passages .. travel backwards ..
+- leave a vehicle unattandes with setting to brake other mother prevent ,move off from a stationary position if it safe portion ,,
+________&
+Introduction programm study 
+Programm security b.
+- role I ject functional title work study duty ..
+
+Learning programm is part qualification is general .
+- purpose learning 
+
+
+
+...
+
+
+
+	
+
+	
+	
+ 
+
+- activity guidance English stand self 
+- knowledge synchrony decision 
+- choosing mariagf pation
+- intri bala. 
+- tertia education .
+- social conduction 
+- relation human 
+- the work 
+- corrected attit..
+______
+* 35.1Referral education the me venter 
+Referral education 
+- chao : one pedagogy on its part persoet history of education origine 
+Devet signify
+- .1 orientation introduction greeck idee
+- introduction 
+- the sophistic concept of man
+- introduction the sophistic concept of man
+- Socrates idee of knowledge 
+- Socratic idees of knowledge .
+- aristoletian idees in the infrastructure of education if stoics relief 
+- roman idees 
+- ecart Christianity august view of man' 
+- medic vok idea 
+- humanistic idea
+- pedagogy become scientific 
+- pioneer of pedagogy 
+- founder of pedagogy the history education v development 
+- intro.
+- emery on the further devt.
++ Methodology of the hist..
+- orientation 
+- aim natural reason problt .
+- general  minded future oriented .
+- factuality indivt..
+- aettu target .
+- methu u restaurant .
+- complexity present and future .norment..
+- professional competence personality enrichment.
+- comparability distinguish.
+Methode and approach.
+- basic. Scientific methode of investigation ..
+-provinciaj .
+- regulation pertaining to the control in regulation 
+____--
+- referral second David Eduard psychology 
+,- introduction of psychology.
+- psychology definition.
+- methodology of psychology test natotistic  observation testing the experimental I method the clinical methodology .
+- theory in psychology b function of theory 
+Hypothesis test verification modification 
+Explanation of behavior education 
+- explt patterns past 
+
+- phylosophic influence.
+-schools psychology present philosophy , motivation , working biology 
+Search visitor time attention analysis.
+- neurologist attet in habitant via negative vlisteb visual .
+
+____
+36. Referral: teaching the practice of nursing of a text in text nursing didactics time ,jellir, nursing 
+- univey of in conct .
+- content 
+- preface 
+- nursy education and the 
+- Philly of nursing educt 
+- the scope of pracy registered enrot
+
+
+
+
+________________
+37.1 referral:
+-award and decorations of security personnel .
+- basic diagnostics pre employment testament.
+- bomb threat response.
+- code of conduct,,code of ethics , 
+- phase construction floor of third floor .
+- declaration of policy 
+- duties and responsibilities 
+- first aid basic life.support training.
+
+-;lecture in gun safety.
+- management commitment commitment conduct and ethics.
+- program of works
+-proposal .
+- psis profile 
+- psis recruiting and recruiting hiring .- refresher  security drill
+- refresher security guard training program.
+- refresher security guard training , 
+- program instruction and proper handling of fire , troop information and education.
+
+- award and decorations secure ..
+
+* Division vof high level waste repository safety ,officer nuclear material safety and safety 
+Subject : information system security officer appointment letter program issy  duty ,operating  system and software ,mainu procedut include completed,,create seoat dutid review auditing ninise risk of elimination oppoy to conceal errors or irregularities and ensure that no one India control all phase of an activity or transat creating permission berries irregularities to go undetected ,, execution opert 
+________
+37.1Combat trinonome .
+- effective : material. Bousol
+- observation research on workplace activity of enemir of population information recruiting acquisition .
+* Composante of execution .
+- relerage of limite of sector surveyor possibility of visual zone .
+- identify of point of relerage .
+- cut of zone  fare and no fareway.
+- determine zone dangerous point clocking enemies .
+- ensuring permanent insert continue ,undercontrolev..
+* Patrol marching normal ,,running for dangerous space ,ramper for escape view cut ..
+Keep contact trinomd ..
+- mask emplacement vzone of fighting , keep tools in discretion ..
+Ensure .
+-covef  soeciy protection Vue aerinev effect ..
+* Combat of trinomd ,group order Chief command if chief if 300m ,609 m ,,natural armored  multi qualification ,,fatansun replacement of zone natural enemiev,, application of fire objective repere initiative end ,, FAMAS , fight small distance 200-300m ,face vehicle of combat infaterie ,,,,char angle of shoot , defensive adverse ,,
+
+
+- school of Infaterir ..
+-manuel of user section regiment 
+Planing diffusion..
+* Delegation military department of major state  infanteeies.
+* Arme blindee cavalerie 
+* Artillery 
+Genie ,train 
+Transmission 
+Commissioning of army if earth 
+- instruction center ..
+- training open..
+* Reserve library of army of earth total .
+* Summary ..
+* Partie 
+Preliminary .
+* Cader of employment activity guide..
+* e :750 km speed medium of  tactical fly 180km/h distance b frenchisable ..450 to 559 km 
+Weighting fly 3hours autonomous 13tone combat speed antiship 269km /h ..
+Armored ,mortrs fire arm gun antiship ,,effect munition 
+Motier if 81mm llr 45 kg 3 fardeayx ,tube plaque base unity fuse ..
+- porter : 5750 m charge ,fa fusee ,situation munition b,1 uf = obus piece180 ,1D1,489;grouot chaque consimanmation shoot neutralisation : 39;obus / 1h discovery v48 obus  personnel abrite effect , dusctruction , bo seeing ..
+-training : direction ,but input on line cuts observation , principle of series of 2 obus fm make ..
+- objecty series 50 m ..
+Centre A,left ,right code ,
+Dan's millimeter,left right ,far no far south north est oursr ,
+Shoot relerage ..
+In commander..
+* Missil antiship,anticharv,long distance ,short distance ,eryx
+*Composition : weight porter fly 
+Post of shoot ,4,7 kg 50!in 600km m on trepied ,foot ,
+- 4,3 kg 50 to 300 m on in head Mirabel  munition ,,
+Speed maximum of following objective cible : 100 milliemes distance arm of missil : 50 m angle of negative ,45° positive ,39°  speed to employment ,31° ,51° ,18 m second outcome tube ,,245 m / sec in end of fly Mirabel detection 2600 m ,1200 m identification b, autonomous ,600m autonomous v,2 a 5 heures piles dotation per group cie ,cuev= 24 vab ,12 
+Totaj : 27 missile Mila composit :300 to 1900 m post shoot kg ..
+- 50 m ..
+3120 m front of sky 209m ,d eclairement
+
+* Missil 21 kg  ..
+- diameter ,309 m,99 
+* Simulator ,RS ac ,siteryx : simulator infrasy of selector bpersonal training..
+62 computer instruction b,61 consol  monitor ,printer video ,, 
+
+* Equipment : trvm ,134 post amplifier of 100 w game freqt post earth , defense b message ..
+* Consignment ruling fixe level  cellular 
+Shoot no authorize ,,cover fire no opeb ,authousation installation friend attack ,,
+Tri ripost  ,,open fire on fly attack force or instant friend ..armed ..
+Gn29 nm..
+* Cooperation interarmes ..
+* Arme blindee cavalerie artilli genie ,akat topogry point particuy series ..
+* No revenue posiy transport protect , collection .. measure bfilter ..
+* Detection alertev,reacted ,
+- orange ,blue ,neurotixique,
+- agent chemical type delat symptoms neurse phisgen ,sufficant toux coffing inflammation noose and difficulty respiratory stress tahite ,,eyes go out of zone of fighting n,difficulty heating ,, decontamination protect ..
+- acide cyanhydrique ..
+* Light ..
+Projector : 400/800 ,,,400/1200 m
+* Observation nigty .
+
+* Distance practical of shoot arm ..munition 
+Employee RC x39 ,ofk ,ac hl 200 , iec ,ac - avh 1500, l
+Aveuglelment 
+
+* Renseignement,, information bnumericah .
+Neutrallisat destructy eclairement aveuglelment.
+Materiej .mass 36 t ,55 .
+- armement ,c20 ,c crazy ,tourej ,7,62.
+* Carburator 892 l , transmission, performance max 65 km / h ,71km / 85 km/90h..
+___&&
+Fly ,elicipteor..
+* Les stac system of telephone automated campaign multiplexer networking nspeed 39 customer , simulated ,19 customer blind line 2wire ,2,4 km and radio zone atac ,, prepresenth ,, battery reception antena volume interface .porsoire pedal blocage  box ...
+* Tableat band frequence mode of pas poid porte pikes 428 ,459mhz ,19w ,khz ,vhf , 
+* ORGANISATION transfer , evacuation center ,register nMd ..
+Search file evacuation ..zone ...
+-model dudcht : .
+Material major ..
+...
+
+
+
+
+	
+
+	
+	
+ 
+
+- composante role of chief  executive position patrol direction 
+-help memory chief section of infaterie.wirk document approval.
+- summary :
+- tactical 
+- cooperation interarmes .
+- armement .
+- optronics 
+- transmission : vi NBC .
+- information, renseignement 
+- logistic
+- health .
+- comportment and administrator langut .
+- tactical mission .
+- symbolic and represent 
+- control of  public 
+- evacuation of population consign 
+- collection .
+- the mission of safety of mission offensive .
+: light visibility ecklaur
+Harcej knowledge clocking peak point cover flanc guard fixe reduction destruction antiship attack 
+Under control objective 
+: mission defensive of mission commune ,control zone no allow defense close escorte survey way .
+* The process of combat office Cader employment of ..
+ break 
+, embuscade break hacej handling help ..
+* Missil particular mission guidance , execution operator zone contact move infiltration colone guidance itinerary non fleche jakonage pilotage if vehicle isole of point passages .
+* Mission of escorte , escort if authority,escorte material logistics no tasking of knowledge...
+" .. definition of different rebric ... message ,reel = suppose obs = suppose precision  aerien surface medium means ,can ,sub mission ,mortue ,bombd generator high 
+Defense accessories herisson ,4099 m 
+Cavalier ligature baruemer cheval piquet corner if tube ,1.60m barrier triple .
+- obstacle .: generality , obstruction a, road bridge  tunen pylones neutralisation ... possible of combat combination type of obstacle , fire value  ,.
+Mine explosive .
+,pente , neurotixique inconue ,cellulose 
+* Neurotoxicology .
+..
+Mine antiship sntichst  horizontal marking ,ideny ,mass of explosive ,6,5 ac ah 
+- mase total of 13kg ,
+- performance : 70 mm
+Of blindage ,diameter ,19 cm ,a 80 m 
+- mia. 2 hommes ,19 MN 
+Localisation ,pick  visible order .mise en place tress of security fixe balissafe ,2 metre if sole but  discrimination ,survey miach , armement of grade axe survey repli , national authority attack ,z ..foxt place estimate : ...*
+* Detect chemical level of , accountability b national origine number incidence ,alpha fr , ,,
+Knowledge sector .
+Observation position .march emplace font and back food ,post fn 
+* Defense material accessories : time 100 of networking ,10 element ,39 pick of 1,59 70 cavalier ,129 m of rice ,1kg of wire ion  ligature ,1 group of 2 hoi ,39 element piquet ,1,59 m ,149 cavalier ,249 m of rinces 5 kg fil , contrin ,,
+* Decontamination immediately personal toxicafiin liquide visage utiliuv..
+- fumigend ,obus rideaux 1599 counter  ,no traumatism stress  fatansun , movement ,
+- transmission .
+* Armement vetement personality : ,
+: author prlton lighting and invest ,7,63 mm mikd. ...* 
+* Artillery structural system type characteristics missil ,zone defense ,I observation ,means ,porte 18000m porte 49km , ,sayer 100km . ,1000km, .
+* Artillery acquisition : regiment ra drones aerien  army air satellite ,
+- drone characteristics summi observation : speed 750kn/h ,rayon action 209kn autonomous  fly altitude capacity ,sdtu tactt interesting ,speed 2h  action real time tv image infrared ,
+- geography , 
+Metrology 
+- geography; mission realisat help thematiy card topographic.artery autonomous and ,39 ,49 t canon tracts , equipment 4humain ,42 shoot bullettrm 10999 peleton of piece tractor 4×4 ctrack ..
+* Stability of air t°  hygrometer instable ,19° legers me ,cover sky , stability morning ,after noo. ,nigh shoot , telemetry vehicle observation material specific 
+...condii meteo
+- uniform : 1:,papers sector back of combat ,survey ,shois ,1 dise of ,food , plastic ,2 liter decontamination hygiene water lunch box ...recharge gaz radianetre dur ,car antibalistic ..
+- dosimetr electronics contrin ..
+- measure hygiene practice conserve,body ,toilet aooer ,hand after toilett hand food nursing ..degree magnetic ..celcuis , station earea , ,1 persone ..
+- conduct ..
+Code conduct  vehicle  time operation chief oassay keep function transport discipline 
+
+
+
+...
+
+
+
+
+	
+	
+ 
+
+- 38.reference :
+ cabine making for chatil by ward attack home craftsman.
+- the kit took
+-cabinet constructor part 1
+- construct part 2
+- entering inalaying ..
+- drawing cutting list mark our timber cabinet  work .
+- glue fitting etc
+,- typical cabinet design handing planing ..
+------;-;
+* 39.1Referral:
+ building pricing  guidence the construction industries .
+
+_______
+Feral / rock gem polishing Fletcher a completed guide to amateur lapidary order R2-899/
+- introduction :
+- I cutting a pebble in half .
+- diamante blade know scale pulley motor and  drivers bels ,tank and coal cutting table and 
+- last mine check cutting your first pebble sharpening the table .
+- the slab saw cutting your first slab blade  sharpening and sleid cleaning .
+- grinding wheels  grinding your performance using performance in jewel parking .
+- how to Cabo cho.
+- the stones sharping the done cabochon form .
+-the stones sharping the done cabochon  . with v.
+-  drilling a hole in store .
+- equipment drilling the hole .
+- 7 . simple vfaceting .
+- performance the stone faceting or forming the stone 8 gem collecting the rules success igneous rock summary of rock for summary of likely .
+- gemstone hunts in igne ge..
+_____
+
+
+
+______
+The n construction cost development professional v..
+| Grade || wage ||| wage|||salary 
+- grade 2
+- skill work
+
+- semie skill work
+- general work .
+_________&&&&
+* Eny propriettie of bbok and solide  sorrion of rock strength of rocks.geology papper national technical 
+- rock weather sol forma to ion day metallic soil type in .
+* 19 ground water as matters bears matter  management coak  in rocks as water and bimetallic ground in Africa puping test dragging .
+* Sitting of works building found .
+- found dams cutting minel embarkment subsidence .
+*Rock in construction use rock disable.
+- characteristics sans , concrete agregats two days ways agree of  source of stone..
+- geological maps .
+- sedes profile drawing convention mao symbol .
+- structural diil the form out diverse.
+- the solution of structural problem.
+- problem of strike competing outcome fault.stratgraphic ,truck  borttod , problem conformittes and accurate section isopac .maps ,
+- fault section and projection .
+-interrescting plane introdt to the fault development section parallel fault verification locating displi .
+- block pay shoot.
+- section 2 mineral identification.
+- crystallography.
+- the internal structure of crystal symetrie
+- notariion ,
+____________
+*40.1 Reference: chemical engineering : coul university 
+- fundamental of energy balance.
+- introduction .
+- conservative .
+- potentionel energy ,work nomenclature energy calculation of specifici mean heat the effect of pressure on heat enthalpy of reaction effect of pressure health formation comprest and extension recovery heat exchanger heath excht network , temperature reaction low pressure ..
+* Flow sheet .
+- introduction flow slee presenting 
+Pictogram present block diat present of stream flow rate information to be layout precious of data basic of calcui process service util , equipment identification Manuel low sheet calculation basic sheet calculation  flow sheet simple  computer aid flow diagram simple material progress ,the development of simple estimate infraction coefficient mass
+A mass balance costing project evaluation 
+- introduction accuracy and purpose of cost estimator fixed cost escalated.
+Cost estimate fixed ,infkatii,fixe cost ,inflation ,rapide capital cost estimate methode the capital cost estimate methode the factorsk methode of cost estimator to ion long factor depile factor estimak ion purchase summary of the factiral methode operating estimak of operationing cost ,evat cash flow and cash flow diagramfg time  value ,return calculation discount allowance per information analysis.
+-;8; introduction the pidiaggo ,symbols ,symbols valve secret pump , mechanical design ,wall thickness pipe support ,stressing pipe , selected dislocation cl reacti.
+
+
+
+...
+
+[
+	
+	
+ 
+
+- 41.2. studies of combat engineering ,field  artt infatet ,armor final report was writ to devt one overarching training , seven Mos this year battery has acceptabt capabii to identify candifor ..*
+*List of physicallt demanding task by mos .
+- cms physical task
+- cmts performance.
+- predictor test perfori.
+- regression coefft if test battery 1 .
+- regret coefficient of test battery 3 
+- accuracy of test batteries.
+- physical domain propot 
+- summary of reqt for predictive test .
+* Diagrat and photo under fire similarities.
+* Diagram and  photos of the casually evacuation 
+* Photo of the casualty drag simulation .
+* Diagram and photi load main gun simulator v.
+* Diagrams and photi if stiw ammo simulation .
+- schematt of the Illinois agility test 
+- percent of tested soldier completing .
+- army physical fitness test .
+- basic combat trat..
+- Bradley figthing vehicle .
+- criterion measure task simulation.
+- field artilt ammunit supply arm ..
+- high explost.
+- heart rate .
+- military entrance processi station 
+- military purpot anti tank ..
+- one  station  protection equipment.
+- rate perceio expert .
+- subject matter expert :
+* Doctrine commando ,USA army research institute ,
+
+* Background,: 
+* Soldit in the combat requirements demanding job , muscular power endurance watd readiness .
+- duty  . 
+Criteria ..
+* Introdt : pre employment test battery physical parade  development .
+- tradoc : revit material training ,matter expert ,sme results back, caporak soldier serfent first class completed surveying .
+- task idevthth .
+" Transfer ammo ,ammutbfield artillererie nwith supply vehicle : record.
+* Standay 2 round ) min or 39 round in 15 min .
+Load main gun (19k) ..
+Load the 129 mm main gun Abram tank : wear 49 lb task specific equipment b,dynamite  round
+..medicinal bakk ..
+Metronome sounding rate of 120bpm, completed down section,
+
+Statistical analysis:
+Descry statiscal  performance soldit test predactorvtestv,score ,order create score bscakd carry , battery darav, ergonomic bclass soldier passing , validation v,0,55 -0,55  test calibur equipment b,19k forct. vpredictor 
+______&&&
+45. Reference: 
+The home security  floor lighting :
+- door an windows safe one youth bulgasao for acciy .
+- content : 
+- 1 barrier again break chaine fence line .
+- low cost secut for house 
+- corrective surgery for vulnerable door .
+- barring the door the basic lock bolts 
+- putting in a better lack .
+- security window again forced entry .
+- safe voult partness with the hose.
+-the  technical for welding b steej grille .
+- 2 silent sentire lourd alarm.
+- choosing a simple but effective warning system.
+- how to snake cable through the house .
+- how electronics alarm worh two basic circuit
+- control and switch to by pass sensor protection car and it content 
+- defense against .
+- defense against fire .
+- easy ways to make your house  hard ..
+- walls and floor contain a blood .
+- puttt out a small fire with with extinguisher .
+- safe exite from an upsty.win
+- wath to do if break out .
+- coping with every hazard .
+- easy to build fence to make stairs .
+- keep it knif and poison out reach adapying .
+- house to need the inform .
+- safety check list  don't link switch unplug 
+- secuy front door fire rating for building materials .
+___________&&
+* Hand gun for self deft : hand gun self defense:  ,R10 
+- 1.trauning methodes.
+-2 . introduction :
+Shooting practice b.. training b.
+- physical  mental verbal training nated instructed  observation b.autigenic training b
+3.aims of training .
+- inspecting  equipment clothu recognizes fault ,gun steady mental preparation boeint of impact b, 
+* Training | schem | stage |™1
+- tempo of improvement in performing failling betting with training end of training.
+- 3 looking after your gun preparation for completion general distance nerve preparation table , morning exercise nourishing transportation your riffle the completion 
+- safety on the shooting range .
+- checking clothing and rifle .
+- autogenic training .
+- preparing your rifle .
+- testing ammunition in
+- testing ammunition .
+- guning the weather conditions .
+- the competition it self .
+- rules regulation.
+- warning shoots ,
+- first shoot . autogenic trat , autosuggestion,
+__________
+46.1Reference:
+Honda civic haness
+
+Engine:| specificatt || decarbot |||
+- removal dismenting examination ||| reassembly , replacement fault 
+* Cooling | specificatt|| water pain
+- draining  flushing ,dilling ,radiology /) fanbelt temperat antiduej fault .
+.* Fuej system and carburatiin b: specifications bair cleaning fuel tank  ,// water tank belt temperature 
+,- ignit system | contact break  condenser distrt | spark ignition fault finaj , fault duagtb..
+* Clutch and  actually bin mech | Mremovan dismount replacement b| inspector vrelease bear fault.
+* Gears box automatics transmission 
+Maintaining ,centre beard  universal join 
+* Rear axle | removal emplacement v| drive pinion  ails seak finaj assembly.
+* Breaking system | spect bleeding front brake collise front front brake dusj drum ,hand brake cycle vacun ..
+* Electrical system |™soecificat, battery dynamo alternator starter ||™windscreen lubricant maintaining routing maintvand service ..
+- suspension and steering || special print hub front axle stability ||| rear suspension steering brack  
+* Chao  general v operation with engine 
+Manuel test  checked living 
+* Introdt ti the sadeu first road side repair vif car jumps startub identify leaks towing ,
+- 1 week check  unders check point engine level oil coolab level brake and lunch fluid bscreev master fluid level   build , fuse .
+- tyre condition and pressure .
+- windscrt lubrication fluids and tyre wiper .
+- norm horn maintaining b.
+- light wiring  routine maintenance and service maintu diagrat and service  fault mainy .rear suspension , steering entand associate system engineering car repair procedure ..
+- engine electrician system .
+- emisstvand engine control system.
+- breakinf systb, suspension and steering ,body equipment body woibtrimad fitting body electrical system,writing digrsn ..
+* Dimensions and with .
+* Buying spare part .
+- general repair procedure v:
+* Jacking and vehicle support.
+* Radio casstt unity .
+* The system unity 
+- tools working facilitate b
+- that test check fault finding .
+- technical term .
+- safety first .
+- general bhazard
+- scandal warning  
+
+
+
+
+
+...
+
+[Message clipped]  View entire message
+
+
+	
+
+	
+	
+ 
+
+48.Reference:EPE  printed circuit board service...
+Epemg ,,/ elector 
+Order code / project || Quantity|| price 
+- practical electronics 
+
+ circuit wizard : pcb
+*- issue || topic.  ||| notes .
+-may
+Moisture alarm| get ready for a British
+- Quiz machine | revision stop 
+- battery voltage checker | for all your portable gear 
+- solar mobile phone charger || away from home school b
+- theft alarm | protect b property 
+- wailing siren flashing light |™alloween 
+- frost alarm || beginning 
+__________________&
+- project title || order code ||| cost 
+- time delay ..
+__________________________&
+Road test :  car
+
+Test summary ..
+- specifical: engine , engine output , transmission, wheels and tyre ,break ,steering , suspension ,whell
+
+- test results :
+- maximum speed .
+
+- acceleration 
+- overtaking ,
+- fuel .consumption .
+- breaking test : 
+- geared speed 
+- performance factor :
+- test condition ;
+* Power and torque | engine speed
+
+_________&&&
+* Casebook : car  garage..
+Motorbook ..
+Months R2000 book vouct engineering transplant b, results bv8;,,
+
+
+
+
+
+
+...
+
+
+
+> 
+	
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+49.Reference: notice  appeal 
+- department of government: 
+-  representative : 
+- notice appeal results follow employee refuse to comply a ccma guide award and order of the labour enforced .
+- notice appeal  order .
+- issue .
+| Issue award certificate award certificate || core award || credit award reward || time record award period employee operate task •| achievement ||||
+- sticksge probation Manuel correct award ||| prix case book award .
+* Manuel ruling practice labour | priced notice vat price reward amendment x notice || quality page normal urgent 30 page x 1 copier || projection cost written order cost review order juft appeal .
+*- ruling lra | R 50000 award notice |• 1×page 
+* Ruling lra  
+* Ccma ruling  rescission ruling award || R 5000 compliance ,4× PG 3 ,R15000 agreement .
+
+* Award ruling rescission award order director.
+Form ruling purpose instruction ruling .
+* Ccma ruling | 3 page .
+* Labour guide ..
+* Certificate outcome ccma | 1 page x5 
+* Notice compliance book ccma files 
+Elizabeth lerumo pg ..
+* File .
+- files ncouncil bargaining agreement.
+Compliance:national council bargaining private security 
+Private fund police security.
+
+- files pension .compliance:
+
+- files psira compliance :
+- files humain right . Compliance:
+- files doj .. compliance: notice motion 
+Order notice.
+- files supu ..
+- land reform court development ,ests ,, security tenure extend integrity..
+Record department labour file ,and labour court..
+
+
+-49.1 reference: sandf as workers : ..
+Military bargaining council , militaire arbitration dispute  ruling , 
+- channel command structure and recommend single including represent , structural provide , activity 
+* Limitations ,can't aligned or affiliated political party ,cannot to ather trade union ,cannot strike , not negocie close shop ,member sandf officer defense legislation at all time , activity shakk be not funded by department of defense , compelled to sign undertaking relating to the non disclosure classification information.,access to restriction base military reason ,
+..
+- dispute about collective agreement .
+- dispute resolved procedure: in order to resolved dispute..
+- failure to appeal : 
+- 15 work day arbitration award reason council b copy final ..
+- the board shall not make an arbitration award that has financial implications for state as employee that outside the mandated position of employment b.
+- if an award cannot make as results if a limitations contemplated sub board submitted adviu report to minister and information each party that such submission has been made ,any arbitration award in term regulation become bidung ,calender days after date award if minister has not tabled award in Parliament that period after date tabling the award
+- review high court. Granted , submission petition 
+
+...
+
+[Message clipped]  View entire message
+
+
+	
+
+	
+	
+ 
+
+- 50.1.reference: library bibliotech 
+
+Dhet ../ saqa explanation 
+*Portfolio evidence low 
+*Assessment: curriculum and policy 
+*Assignment: course syllabus topics
+*Assessment: policy nated 
+
+*st peace college and afric institute police .
+* St peace college tvet : nated topics : 
+And research field nated ncv , combination..
+Question answer self assessment,group assessment,class assessment 
+
+St   peace college skill job experimental:
+
+- guideline orientation pratice learner.
+Or
+___&&&___
+51.Reference:
+
+1.portofolio file poes  saqa : evaluation of foreign qualification :pg1-28//
+
+Pg2-41
+- name : tshingombe 
+- screen B1 database:
+*|| Application form on line | no submission ||
+- quotation payment  country original 
+| electrical engineering schools qualification entrance || 
+- higher education qualification || submission certificate||
+
+-||final award degree diploma ||submission.
+- transcript of academic record reflecting each of years .
+- country specific Drc school leaving certificate .
+- comment explanator leaving :
+- certificate mathematics info ,attest ispt , 
+|| South Africa qualification .
+Design non relevant ,skill development b,saqa 
+|| Total : saqa application 201911130002 does not our requirements and is being returned to you with an explanatory letter ,please ,please wait for this before contacting saqa ,kindly provide physical address ,to refunds@ saqa ,two work day.
+__________________________
+Director foreign qualification evaluation and advisory services 
+
+*.new tarrif for evaluation of foreign qualification:.
+*1. Saqa application guideline and form . update march pg1-3
+Section application form :
+I who's is making the application : 
+Qualification holder , family , personality , register , immigration practical lawyer.
+- title : tshingombe 
+- name : tshingombe 
+- surname: tshingombe tshitadi .
+- postal address ,
+* Who hold the qualification : 
+Date birth in supplier ,
+- full name of qualification bholder :
+Electrical matric grade 12 diplome, mathematics info , senior,
+Pedagogy technical award .
+- professional motoring ,
+* Study history of the qualification holder muster completed 
+*|™Name if qualification || award by institution name |||>country ||| attend : from to | completed.
+1. Electrical matric .|| Iti kitomesa || Dr congo ||| 1997-2001
+2 mathematics info
+3.pedagogic techno
+4. Professional motoring|
+
+* Why do need evaluation .
+- home affairs ,general work visa ,critical skill visa , cooperative visa , employee ,, employment , professional licensing ..
+
+
+* What would like us to with the results .
+- will pick them at the saqa office 
+______________
+- reception of application . 201911130002
+Name : tshitadi fistos.
+Surname: tshingombe tshitadi 
+Date of birth : 10 Nov 1982
+Email: tshingombe 529@ gmail.cim
+- cell 
+- priority: medium 
+Amount recei: R 450.0)
+- date of receipt : 2019-11-13....
+__________________
+New application submission bcurent : 2020001305049.
+Payments amount 
+: 202001301350405
+- amount :2200.zae
+- transaction :2029-01-39,,13:22
+Customer : tshingombe , in case of delayed transaction button 
+_________ 
+- 202001305040/20191113002
+Non compliant 
+Dear sir / madam ..
+Proof payment , application for evaluation of foreign above mentioned does not meet all saqa requirements for stipulated if d application material qualification online , therefore been returned to you ..
+Include 48h ..
+- final award school / diploma ,degree certificate 
+_______
+Certificate of bid  saqa invited 
+
+-|| unity bid learner.             ||Checkers bid 
+
+-sectiin 1: invitation to bid and bidders particular 
+- invitation to bid 
+- terms condition for bidding 
+- bidding structural 
+- declaration of interest sb
+Declaration of bidderspast scam practice 
+- certificate of independence bid determine 
+- general condition of contract 
+- section 2 requirements and speci 
+-;bid requirements .
+Special condition of tender contract 
+- total cost of ownership pricing 
+___&&&dfqeas .
+
+
+- good day .
+May please elaborate on how I may assured  in relation bti application of foreign your foreign qualification in relation submitted ,2018/11/13 and non compliant due to the following reasons.
+- outed application form , consent form not , transcript not submitted, incorrect amount. Mett ,king regards lungike mnisu , administrator office ,
+* The verification team .south Africa ..verisearch ..
+___---
+*53. Reference: topic's  information learning 
+
+Portfolio evidence low case study college portfolio evidence.
+Award diploma explanation mark and low outcome , 12/1/2023.
+Author: student and learner: tshingombe tshitadi.
+- college student and high education qualification dept university.
+Engineering electrical learner research low motion week career outcome .
+Order:R5000. 
+Price low 
+Pg1-1000 total value topics assessment.
+Nated ncv ucpd 
+______
+Content :
+- 7-8 award  
+Award abstract st peace college tvet engineering.
+- portfolio. 
+Foreign institution 
+
+
+
+
+
+...
+
+
+
+
+	
+	
+ 
+
+-54. reference: 
+St peace college 
+- filing : 1-10pg
+ learner : tshingombe 
+Moderator 
+
+Assessor.
+- assessment police requirements: engineering electrical 
+Explanation design condvr 
+.. credit subject|| requirements filing content submission ass.lok ass engineering electrical ||| core elective fundamental | credit |||| total mark .
+_______
+Full name : tshingombe .
+Email address : tshingombe 529@gmail.com
+- country enquiry : Dr congo .
+- purpose of enquiry: high education department exam irregularities @ dhet .gov za ,n3,n4,n5,n6 
+- institution details : st peace college and Africa institution police .
+Web address : https storage Africa 
+- institution physical address : 19 ..
+King regard  directorate foreign evaluation and advisory services saqa
+- the national qualification framework ( nqf) act 67 of 20008 madate saqa to provide foreign qualification evaluation and advisory services ,which it does in accirdat with the policy criteria for evaluation foreign qualification with south African nqf ,as amended 2017 ,section 29 of policy and criteria stipulated the requirements that a foreign awarding institution must meet for it's qualification to be recognized..
+_____
+PG 15.
+Explanation make model didactics learn self time table design: time table subject class studies engineering curriculum assessment police and assessment engineering integrity exercise book note book completed system manual disciplinary learner conduct guideline outcome...,total..record award attendance.. system .
+* Explanation :  case registration attendance record sheet amendment week comply invigilator,surname ,week,I'd number ..
+* Design analysis grid for test must pre assessment 
+| Subject level learning object/ fin / short response / medium / 
+* Knowledge and understanding | applying. || Analyse synthesis evaluation || investigation discovery design | total criteria close 
+_____________
+* PG 3  : section guideline: 
+- college basic advt filling diolome bassesmebt .
+- section , installation ..
+Design university b.gradyat diplome .
+______
+
+Register /saqa online 2010002013812/2004006064381/20110074343332:,high , education 
+- final award degre diploma certificate submitted 1stg
+- no provisional certificate or unofficial statement 
+- st peace registration : certificate no COm18269001/.
+- nated dhet I'd ,n diploma and nn diploma certificate: national  examin 201002023812/200400696481/20110074332
+..
+Suplementaire. . 
+Referral registration final record .fee .
+Electrical engineering| durat| reg / fee/ deposit / monthly / totaj ) extension home 
+Semester 1,2,3,4,5,6,7,8, ..
+Term 1,2,3,  
+_________________
+- st peace college / faculty eny ,time table ..19pg..topic 
+- design educare didactics ,eginimetrt engineering design time table ,methodic protection ,policy asset Poe submission ,analyse framework regulation ,amandemen 
+- Poe evidence portfolio .
+- activity least , document ,docket 
+Subject / low oytct amandety  approval..
+* Calander method meeting reqt submission caos isat ...
+Trade theory electrical text book  ,exercise book , electrtechnology ,book 72 ,note.
+- industrial electronic book 72,
+- engineering science book 72 of note ,
+- mathematics book 72 of x2,note book assessment ,.
+- assessment infiltration book 72 of ,note ,.
+* Attendance time course subject days student duty prevent lesson.
+Time ,| m | w| f | t |s
+____________________
+- st peace college and aip
+* Faculty : electrical engineering.
+* Time table , study : tshingombe .
+* Moderat facilitate ,seta security vtraing 
+- training performance train . management electronics ..
+Explanation award degree ,full . .
+* Question / answers : instruction guard installation rules savs san give safety answer qyet advice keep clean intelligence notice  papper . 
+Explanation qualification b: health 
+* Attendance time engineering council subject .
+- test award cert ,oract theory test trade internal external submission.
+* Question answer book engineering , Ana , planning , discover ,invest 
+- portfolio evidence schottische low outcome implemented battest assessment value added. 
+| Test score marks| evidence low give || evidence poes reasoning ||| evidence quotation .
+- mathematics : low limite | motion comparison test value , || 
+& Engineering science || f= g a ..m. || Compare two force  tear two frequence | compare fundamental 
+- industrial electronic ,.
+- electritechnic .|€ 
+* MarkSheet scale check guideline.
+Module subject || weight ||| scale ||| averat coverage completed btesr .
+* Test trade name center external submission subject..quest book mastering skill and devet
+* Test trade requirements subject.
+* Test trade task subject 
+* Test trade ioerau .
+* Test trade evaluation maug
+Low add subject  basic advanced ,filing low ,system low phase criteria ,fabric tear  , subject billing ruling value add , component 
+Subject module total faculty topics value ..total requirements outcome ,total task outcome value ,total operation engineering value , Master skill 
+* Score total curriculum.
+* Pre asst police , militaire, engineer in 
+Assessment warenty ..
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 12, 2025, 8:51 PM
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- reference: portfolio 
+* Practice theory guideline career ,
+Refet activity practice guidence college practice xounset principle management practbnote class ,tvt circulum instruction internak ,continkise asst icass vrepoet programme ..
+Introduction ,4 planing b,section  coursex..
+Content page docket 
+...
+
+[Message clipped]  View entire message
+
+
+	
+
+	
+	
+ 
+
+-55. reference: 
+St peace aip , faculty engineering 
+Time table, 
+PG,,1-90
+
+
+Moderator facilitate instructor , sasseta seta security safety ,stragues .
+- trainer performance train training ,manage electronics system assessment .
+-practical theory guidence career vocational .
+- reference acti practical guideline college prat counseling princit manat ,teach lecture note practical class .
+- tvet curriculum instruction  icass guideline for report 191 programme
+- content page docut docket || crit module.
+- planing for internal assessment 
+- the icass marks compot
+- assessment for different modes of delivery 
+- setting of assessment tools
+- moderation icass marks
+- evidence of teaching and asst
+- monitor of implemented 
+- conclusion :
+- trimester natural science engineering 
+- semester subject general business and services 
+
+- Anat gride .
+Pre assement  process and checklist .
+- post asst moderation process and checklist .
+,, trimester task for eny .
+Semt subject plan ..
+- recordsheet  semester .
+- subject total terb 
+75 - 78 lecture days .
+Business 1 test or assignment external incorporate ...
+- types  subject level lecture 
+-test , assignment , internal .
+Duration ,mark allocation ,
+- total mark allocation short medium response ..- knowledge , application, analysis and problem solving 
+- criteria examiner moderator analysis grides ..
+Content coverage weigy spreadsheet .
+Hode senior lecture v ,
+- files item  
+Space registration teacher .:
+- content page .
+- class regt
+& Subject syllabus.
+- subject works schedule / work plan 
+G lesson plan and teacher resource of additional support requirements by college academic policy .
+- Evidence of review .
+- previous question papers / revision / addii exercise / homework,activit ,worksheet..
+___
+** Policy academy st peace ..nqf l6..
+- resolving of crime : 
+- focuse diploma , officit in the detective service division b, department of safety sector ,saps , member privat institution v..
+Content  skikk performance police function .
+First semester , criminal investigation , administrator and communication skills , information management v,
+- practical trading  resolved of crime is vocaty course , practice police visite , patrol arrest procedut ,search procedure , evidence collection , preservation 
+Presentation .
+Practical 70%of syllabus ,theory asst contribution 39..
+Module : 
+- crime scenes and incit .
+- investigation methode and technique.
+- vehicle crime investigation ..
+
+* Career opportunities diploma policy : area security and surveillance ,
+- private security.
+- saps :
+Metropolitan police .
+- community policing .
+- national intelligence .
+Privay investigation 
+____ ass 1 activity ,st peace .
+Police introduction science .technical career 
+Explanation low portfolio evidence assessment identify.
+- section career orientation profile finsnaciah ,
+- selection process ,choose a career answer .
+
+- question rewat living leave .
+- student guideline counseling police opportunity.
+- policing excellent talent .
+- police material study career and fire arm career basic advay filling .
+- career understand job skikk opportunity job duties that what requirements .job 
+Correct job policing , retiremy ,police ranking ,
+,,_______&&&&&&&&&&&&&&
+
+* St peace portfolio .39 pg 
+Name : tshingombe 
+
+Assessment : formative summative portfolio. Guideline 
+Welcome st peace ,
+And engineering guideline career code conduct 
+
+- self assessment self evaluation.
+- 1 question: wath undestand code conduct : 
+Answer ..
+Write good thing discovery 
+- list learning 
+2.
+3.
+_______________________________&
+By tshingombe tshitadi students 
+--st peace college,   PG 1-70
+Saqa/.   research 
+Research saqa qualification 
+Final award certificate , academic transcript , original ,sworyb 
+- final 1th,2th 
+- curriculum assessment framework saqa qualification authority 
+Institution verification qualification quality control assessment summative ,formative , suplementaire extra time
+High education rsa department.
+- curriculum: n4-n6,,
+- content page .
+- topics :
+- abstract : overview national system examination and qualification framework overview : system rural land energetic.
+1.purpose : commissioning.
+2.topics ,circular research question rural energy ..
+2 .system case study.
+
+Power class work base learning 
+- 4.topics ,case study project support 
+5:topics 
+6.topics 4 defense land reform electro energy rural system 
+Topics 7.research methody .land reform ..
+Real , imagine 
+- advantages field:
+- disadvantage :
+Synthesis and field application.
+- process diagram 
+* Framework 
+
+__________________________
+* Research saqa .1.-50 PG on line information..
+Index topics comment 
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 13, 2025, 4:50 PM
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- st peace college registration form .
+Portfolio,for framework 
+Collection database information 
+Recruitment online reference / PG 100
+* Stationary 
+College b stationary management system 
+*Code alpha ,project report submitted in patial fulfilment of bachelor of computer 
+Application .
+Acknowledge .. information college .
+- introduction to system 
+- scope  system 
+- proposed system ,
+- fact finding technique 
+- feasibility 
+Hardware software requirements 
+Design 
+Digrsn 
+Data flow ..
+College need ,,pai etc 
+_____
+* System post development cost .time frame  building systems , development process phase have system analysis .
+Requirements: hardware software ,processor speed ,1gh ram , key board Lazer ,operar system visual studies vb net data base network..
+_____
+No item  quantity 
+
+
+
+
+
+
+
+Dhet 
+Stationary examination 
+* By study : tshingombe tshitadi 
+* Section A,head .
+Dhet stationary 
+* Report on errors in marking  guideline ,name marking center ,
+- section desct if error recommend chief ,
+- number of marked affected.
+- motivated recommend amendment...
+Marking plan engineering studies n1 and .
+Mark sheet ,category, irregularities, guideline..
+Office .
+___&&&&&&___________&
+-st peace college 
+--prensentation oral 
+Topics : engineering studies 
+And business studies engineering,and language business English.
+- st peace college ,1-60 PG 
+By tshingombe fiston, kekeletso .
+1.2. topics : orak presentation asst test .
+1 2 introduction learning engineering electrical thing about.
+2.topic learning engy time table assessment.
+Design table allocation mark , module award dioloma engineering electrical time.
+
+- abstract : development project cvs .
+- modeling and assessment for engineering electrical time table allocation project , engineering v: foundation system 
+3. Topics : 
+Lecture note ;
+- course home :
+Syllabus.
+- topics lecture note :
+* Introduction : engineering learning .
+* Framework and analysis tools : module 
+* Framework .
+- field trip .
+.
+- project preparation v..
+- case studies of models and assessment in policy : 
+- topics training learning institute polit assessment ...
+* 10 .topic project : 
+Create found circuit cell wath happen found wire research vprensent class , introduction test class with .
+______'
+* Activjty framework | mark allocation | module || rating || check byes || yes || no 
+_______
+* Task || timeframe || type of assessment activity || scope of asst || suggestions marks allocation |||| % contribution to year mark /)
+1. Term | test prat 
+
+2.term
+
+3. Term 
+Total ..
+Department high .
+Marking bmemo .
+Topics  ..
+Icass 
+Isat level .1,2,3,4 eny
+12.topics : 
+Drawing make labell diagram ..
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 13, 2025, 7:38 PM
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- reference: PG 1-50
+St peace college 
+- tshingombe fiston 
+Memo tech 
+Database students:
+- abstract .
+- document v.
+- summary 
+PC
+
+Textbook n1 ,n2,n3,n4,n5,n6 , engineering studies ..
+Subject bject outcome total completed 
+Self assessment, assessment ,input and out put . feedback 
+Foundation formula design
+Exercise homework 
+*1 purpose memo.
+Question/answer 
+
+1-A-A.../ BB .//CC//DD//outcome A+C+D+E
+Design circuit formula fundamental basic 
+Inventory claim.
+
+Circuit resistive .. conductive,semie conductor, Kirchoff motion low.
+Serie parallele ,mixt 
+
+Trade theory el| industrial electronic|| engineering science ||
+Circuit inductive .
+Circuit capacity 
+,, circuit mixte ..
+Ac ,DC courent circuit machine
+Transformer 
+Measure 
+Diode , transistor thyristor 
+Total balance matrix line output ..
+* Question cpd  learner .. development circuit conductance , impedance b, engineering electrical.
+- applied engineering science to master skill engineering 
+- * purpose to trade , basic trade theory fundamental design 
+* Requirements 
+- operation trade low rules skill to skill 
+- advantage .. disadvantage  of component b
+Rating field subject .
+* Applied to applied skill resolved physic mathematics to skikk electrical panel ,, ..
+________.
+Engineering studies 240 month nqf ,.applied saqa to isat practice purpose isat ,ent topics operation grinder .
+Sub task , activity ,time frame manufacture b,size time ,marks resource b, ..
+______
+Division job , division operation equipment phase preliminary phase ,semi time compey , cycle recycling.
+,,
+Time competiy ...- scale module ..
+* Cpd qualification b:
+Statement v of works experience ,logg book ,6 years /2= 3 years equivalent job , 
+- work where appropriate applyt packing  lubricant to assembly in standard .
+- where appropriate applying packing sealing ,
+- inspector checking bfinal where appropriate returning final assembly ,1th,2th ...
+- qualification integrity 
+* Undertaker material cable leaving b, conductive labels b,thermo copper insulation b
+* Correct formula b.
+R=✓resistivity × length ÷ across section diameter length gauge module dielectric test ..
+- gaz liquide ,solide .
+Q= permeability insulator ,
+- chemical PVC polymer vynic court, appropriate ,
+- A= i× u×t..test
+.. module trade to trade skill report trade , test modules bsafety fault b...---
+__qualificatiib  electronics , undertaking numeration ,
+Diagi..
+Cpd qualification : electronology ,, ..
+Procedures component b..
+
+** Laball trade skills..
+* Outcome project total design matrix card completed..drawing sharp function mathematics band engineering science function work job input output 
+___________&
+
+Reference 
+: st peace college 
+Practice.lab workshop topics total component , manipulation test experience subject make things 
+Inventory manufacture:
+ engineering electrical control trade engineering ,supply trade engineering 
+Design layout linear engineering 
+Area = 7,5 = 15,75× 2,1= 15,75 cm ,
+Volume = 6× 139×3= 780c ,8 turn / 9 turn ..
+Breakers transfo , breaker , measure instrument switch make .
+- control panel wiring campare switch way , engineering dimensions phase single v
+- electrolyse energy..
+- disct investigation make trade circuit serie parallele condensator tube triodev
+- comparator weastin bridge , manufacture resistor..
+Comparator..test wire bending trade manufacture resistor make compont
+___&_________
+Reference textbook ,assessing college st peace
+Text book project , total circuit investigation , book experimental ,project exercise b,teach note .
+Conductor , insulation, magnetic b, investigation vdata electrical wizars 
+* Unity bscience bfind 
+Content component | skill | asst
+..
+
+* Teach board
+...
+
+
+	
+	
+
+ 
+
+56.1.Reference:
+St peace college.
+Student: tshingombe tshitadi 
+Topics./  120 PG 
+Information data systems completed 
+
+
+- practice engineering electrical practical worksi and laboratory project,
+-; practical workshop and  laboratory projection engineering engineering electrical practical workshop and laboratory projection , investigation conduct detection b, traffic vehicle patrol , assessment stationary wiring table discovery fault find protection device b installation safety b.
+- electrical wire logic system ,control system , electrotechnic, electrtechnology, mechanical ,n1,n2,n3..
+* Research drawing wire electrical circuit connection test .
+- college trading b practice making things 
+ College industrial practice engineering test .
+- examination evaluation library discovery.
+Author submission: tshingombe tshitadi
+Learner and educator; 
+* Construction electrical ,
+Installation : task , installation topic built automation , system control system 
+Performance occupational skill ,
+-;related funct , fabrication insert
+- communication an mentoring technicial.
+- insert service mainttet ..
+* Electrical trade test : vocational subject : explanation importanc..
+- engineering fabry .ncv material .
+- learn outtb, .
+*
+Explanation, shap reason btrade mathematics..
+
+-; explanation mechanical reasoning 
+Tool using on wood puling
+-;, explanation bpoint circuit ,,reasoning career circuit trading ..test ..
+Exercise 
+_________
+
+_______&&&_&
+56.1Reference textbook 
+Information.129 PG
+Engineering electrical practical circuit component development assessment in lab ..
+Specifications of electrical motor .
+Fundamental cincei 
+- electrical motor basic ,concept torque , mechanical benergy ,system connection series parallele , 
+- insulation and material insulation vmaterysh   sysfeb is 
+Rated ,duty  state ,
+- control  diagram system v,contactor ...motor option ..
+Explanation n... system m control ,...
+
+____
+St peace college 
+57.Reference  48 pgv
+Information Scotland  sqa curriculum 
+
+
+
+Engineering science assignment n4 ,skill 
+Course  engineering b,
+System approach , simple b.
+_ assessment , description authority 
+Engineering b
+____________&&&&&&&&&
+Practical engineering electrical practical workshop laboratory projection ,
+Research drawing 0 outcome subject 
+Career in phase
+
+*Engineering scient completed 
+Mathy linear basic fundamental engineering, f= ma + mg ,,
+V= u +at ,= p= w×✓tb,,fu ,equation algebra ,linear  exponevt ,
+Ax ×✓by = ,
+a.ax+ b.v .y = ..
+* Theory trade electrician electi ..
+* Assessment policy ruling value poes ,iff ..
+-;design planing research field ender planing b, development bcimoon device protection v,idee ..
+* Policing crime resolve ..crime  incident vehicle , collection crime info ,, 
+
+_____&
+ 
+
+
+...
+
+
+
+> 
+	
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+58.Reference: 
+St peace college: 
+PG 1-86 
+Practical engineering electrical - practical workshop and laboratory projection engineering .
+Police engineering engineering electrical practical workshop and laboratory projection engineering investigation conduct detection traffic vehicle patrol , assessment engineering wiring table discovery fault find protection device rules safety .cony wire logic , control system electrotechnic electrtechnology mechanical, research drawing wire electrical circuit connection test , college..
+- 
+Oral assessment value engineering electrical total table | check out in 
+- student table relevant ..
+
+* Type of assignment 
+* Project type | possible information needs ||| relevant resource .
+* Visiting | campagny historical , operation process statistics ||| company prospectus , annual report 
+* Investigation | legal theory process state art problem possible solution research current debate | textt , journal article ,govert scientific industrial participate.
+* Research | details information the topics theory recent research ,rest methode || textbook , journal 
+* Theory,curry state of the art , previous b..
+* Established topics 
+Introduction method or technology b
+Your project .
+- compared results ...
+* Project , report 
+* Topics approach , outcome ,conclt .
+- title : 
+Weak title 
+Anat
+Interbr 
+Assignment 
+Protection 
+
+____
+Totsj subject matter expert 
+* Reproduction || application || analyse || evaluation ||| compare test 
+
+Subject submission evaluation .
+Learner outcome | value weight || reward || reward certu 
+
+Electrtechnology 
+Electrical trade theory
+Electrtechnology 
+Logic system 
+Devit protection 
+Engineering science
+- industrial electronic 
+Engineering drawing 
+Modi
+General aims
+
+Files assessment st peace 
+Description number : 600961135179
+Engineering science 10 page 15070391 comply
+- knowledge | undersi|| application |€ evaluation ||| 
+* Weight value of module .
+Module | description || weight value %
+_ safety precautions 
+
+Mark allocation time table | explanation theory 
+- module | explanation design drawing workshop lab..
+_ module  || code || objective |||criteria 
+Workshop 
+Hand tools b
+Material: recall section | relevant tools hr | recall different battery  sabs
+-recall 
+Join conduct 
+Soldering 
+||• test battery , manufacture specificat correctly ,ahere 
+Tender..
+Installation mountain 
+- switch board
+- motor 
+Flexible.
+Ac machine.dc machine
+Wiring connect.
+* Certificate level.
+
+
+
+____________&&_
+59.Reference: 
+- textbook:
+- st peace .
+PG .1-51
+- author submission : tshingombe tshitadi :
+- self assessor moderator student .
+- learner teacher and educator assessment ..
+- 
+ ,saqa reference award degree diplomat .
+Equivalent ,45..
+- test trade industrial exam college assessment time table activity.
+- archivist number : 01/052020 legal policy .
+- award degree diplomat certificate high education saqa framework policy .
+- submission : practical test engineering electrical write execution filling registration ,set down judgement assessment value 
+Information: 
+
+* N1 saqa is 67109-nqf 1
+* N2 saqa 67375 , nqf level 2
+* N3 ,saqa I'd 67491nqf level 3'
+Saqa qualification I'd ,,saqa title .
+- 
+- assessment criteria 
+"Practical participate work group test brainstorming 
+Planning check 
+Topic training .
+* Traine .
+- completed 
+_____&&&@
+*60.1 Reference: 
+author submission :tshingombe 
+- pg1-60
+* Material equipment African .. institution police department 
+* Requirements manufacture trade training train license 
+* License fire arm .
+- exam papper topics 
+- cv letter question 
+- company support learning 
+- wrong model
+- filing subi
+- basic to. 
+* Workshop lab completed library case book 
+Subject b,module  book answers b, requirements operational steo remanufactured..
+Explanation drawing support integrity on module support engineer electrical 
+..
+...
+
+
+	
+	
+
+ 
+
+- 61. 2reference: 
+St peace college:.
+Tshingombe tshitadi 
+- test trade industrial exam college assessment time table activity ,12 module semester time table engineering electrical , portfolio 
+Archive number 01/0520029 legal policy assessment 
+- award degree diplomat certificate high education saqa framework.
+- submission , practical test engineering electrical write execution filling registration ,set down judgement , value pg1-248..
+Student tshingombe tshitadi 
+
+.name 
+Learner : ,,
+* Caps curriculum and assessment policy statement  document grade  .
+- foundation phase ,grade
+- intermediate phase grade 
+- senior phase 
+- fet phase / 
+N1,2,3, 
+Electrical technology b
+
+- electrical technology , senior b certificate caps , 
+Background, overview, general aimf ,
+Time phase allocation , foundation,intermedy senior
+- intro wath is eleci technology 
+Requirements for electrical technology 
+- career opportunities in electrical technology 
+- teaching annual for technology 
+Subt  totaj ..
+Week topics
+Grade 
+* Engineering national vocational v.. assessment tools instrument b.
+Ent ,lecture , record report 
+
+*
+.
+Design nated cover policy time table didactics.
+Subject || assessment task||| mark allocation || | content |||| program
+* |1|2|100|| resistivity, magnetic, batteries, electrical circuit modules measy instrument, conductor , insulation control |||| week study module completed submission week 
+* Engineering science  | 108,118 ,129 
+* Mathematics 
+Engineering drawing 
+* Engineering n@ 
+* Electric ..
+Drawing label, explanation wire power meter squared v
+- completed explanation bsub station maximum allowed number support distance post ,main circuit breaker , insulation, 
+- 
+Assessment tools marking assignment schedule allocations covered .
+* Subject electrical engineering.
+* Module lesson plan ,and daily .
+* Time table 
+* Topics 
+Learner outcome objective .
+- to identify 
+- to explain 
+- to describe 
+- to mm demonstrate..
+To analyse ...teach activity ..resource 
+- resource acti
+- teacher .
+.. subject : electrical engineering .
+Bibliography saqa
+
+
+...
+
+[Message clipped]  View entire message
+
+
+
+	
+	
+ 
+
+St peace college 
+62.1Reference.
+Tshingombe b..
+Information learning..
+* Criterion :.* Resource .. write evaluation ,web base student opportunity v..
+Measure power of learning ,score 
+- a candidate ability to process reason logically ,
+- criteria attention skill test 9-12 minutes,test  concentration.
+The test is ...
+- test mechanical aptitude ,39 minutes test designy  application to install maintaining and repaired ...
+- critical skill test measures skikk entry level position that basic computer 
+
+...
+
+[
+
+> 
+	
+
+	
+	
+
+
+- criteria skill test.
+-critical basic  computer program..
+- criteria basic test , minutes 40 question assessment math grammar , spelling and language skill screen entry level overall trainability.
+- typing test : one minute test measures typing speed and accuy .
+- typing test measures speed candidate ability numerical al data entry.
+- excel ,the excel test is 20 item exam that measure proficiency Microsoft excel it take 10 minutes to complete.
+-word measure an application proficiency in Microsoft word test contains 20 item .
+- power point measure candidate .
+- computer literacy internet knowledge test 29 minutes test consisting of two tasks multiple choice questions task takes three minutes ..
+- sales achievement predator assessment measure carsctery trait ..
+- customer service aptitude profile posiy .
+- employee bpersonality  test measure twelve environment assertiveness, competitively .
+- workplace product profil assessment screen level bcandidat ,trusi reliable measure competivnrs ,
+- criteria personality inventory ,test base level candidate bopeb  extroverst, conscious agreeable extroversion neuroticism job performance..
+* Criteria band ather trademarks are the property respective trade holder  
+* License electrician asst ..
+Award 
+* Licensed electrician theory ( let) exam test board range of knowledge 15 minute in total ..
+* Licensed electrician practical test split in four part ,a practical btesr spit wiring box and switch men system,,sefe work
+* Free test 
+* Electrical class license technicial record trade school b,an supervisor work.
+
+Apprenticeship assessment.
+- trade apprenticeship aptitude test
+- test time. 10
+- question.  10
+- pass score.   80..
+* Eia elevator industrial  test .
+Test time 
+* EIT test 
+* Assessment ' 
+Apprenticeship usually ,17-25years
+- how mutch apprebybget paid .
+_ .what are characteristics of integral the apprenticeship process : 20⁰ hours skikk class room theory .
+- wy are the advantages of going ..- the apprenticeship : 
+
+- advantages use prepare material : up to date material , fujj simut practice test ,practice whitn exam ,
+- construction maintaining electrical component repair test data 
+* Topics asst report daily,log activity, report schedule book 
+* Subject translate..
+_____&_&&&__
+6.4Reference ,st peace college :
+1. Topic 
+
+2. Assessment .center .
+- study the assessment center process ..
+-;read books leadership manay.
+- prepare orak resume practice 
+Interview 
+- preparation for specified scenario .
+- prepare intervit ..
+
+* Tag ,command staff ,job , leadership ,police exam , policy job and career..
+* Modeling and assessment for policy ..
+* Course description : policy information information policy description student development band understand of quarantine technicial policy process ,case studies b, course ..
+- problem ,due session risk assessment b modej creat framework , risk assessment b, assessment risk , facilitate,draw modej power point skidec base risk ,, management.
+- case studies chemical ,case study , lecture b
+* Summary and application : synthesis term project ,course..
+* Ses | topic|| lecture note
+Introduction 
+- science a policy 
+- brief overview.
+* Frame and ansli tools ,:.modej for science 
+Modej for policy . infiltration effective policy ,.making ..
+Modej exhibition, museum bof science.
+- framework science ,policy and the public b, framework risk , precautions , projection preparation v..
+*Case studies model assessment in policy..
+Project check point .
+- rains negotiation ,
+- case study fishier ozinfv
+Country negoy role outcome .
+* Learn pathways understand assessment if requirements learners ,level 3, 3',, assessment v, accreditation v,type cresy ..
+Award in assessment the worh environment, in relate vocational..
+- lecture vs lecture vs professional 
+Module vs module , subject assessment circuit term .. warenty ..
+
+- ___&&&&&&___________
+* St peace college:.
+65.2.Reference. 
+1-120
+Information: assessment 
+- saqa award degre diploma , equivalent 45% ,50% ,1th ,2th , equivalent 
+* Safeguy vulnerable adults policy.
+- content 
+:- introduction.
+-safeguard vulnerable adults policy .
+- immediate action to ensure safety 
+- recognize of abui or neglected 
+- physic abui
+- psyi abuse 
+- financial and material 
+- actions to be take ..
+- confidential .
+- internal verification .
+- appeal b procedure BB..
+On going review b..
+Group country working.. profile st peace .
+- the rolesof assessor .
+- moderator processt 
+* Assessment team 
+* Pract methode processing a veht.
+Finger print investigation technicial search sense approxt comon 
+- international operation target trafficking of stolen vehicle motor .
+- rsa police annual report b
+- modej for prevention of corruption related
+- human factors investigation into effective bof traffic related search ..
+* Policing  question assessment college distance 
+- saqa unescu learning pathways 
+* Formative assessment , summative finaj assessment 
+" Feedt.
+*Procedure for learner with difficult 
+- external accretion
+- responsible development 
+- judging feed and support candii on assessment 
+- contribution internal quality improvement process .recording assessment.actuvity
+Role and responsible of 
+-- carryt.
+- monitor quantity assessor .
+Sample .
+Meeting ..
+Frequencies activity award body requirements.
+- new qualification 
+- evaluation of procedure 
+,_____&_&&&
+St peace college 
+Sciebono,,
+
+
+Policy 100,PG
+Saps regulation.
+Lab policy forensic detective..
+____
+St peace college 
+66.1Reference.1-70pg 
+
+Examit evaluation library discovery 
+Submission : tshingombe tshitadi.
+- learner teach and edu ...
+Practical engineering electrical 
+Assessment search assessor course ,days course.
+Explanation police sector , college polichbv ..
+- instructor role ,,
+Link professional framework b. Investigation programm 
+Time 
+Profession context
+National occur .
+- outcome.
+- learning content .
+Delivery recommend,
+- trainer role ,
+Mao .
+
+- training cycle b
+...
+
+
+
+
+	
+	
+
+
+- st peace college engineering ..
+67.1Research drawing wire electrical test practice 
+PG 1-69pf
+Information..
+* Study of police management int system ...- 
+- reseat  report : .....
+Specifications: ..
+Report municipal force Canada  ..
+- target information processing b..
+- technoltb,news , communication systems.
+- internal  operation b, system release .
+- central record stored case access retrievah for ,statuscib..
+& Specific standard for law e recordt management system ,
+Use case , diagram , analytical support crime , tactical analysis extend ,tools forecasting ,, 
+- role ,,base report .
+- report accident crach .
+- report property evidence 
+- interview report ,
+- case management report biling  warrent use case diagrams b.hov ,case aggregate report agreement b,ways cfs warrants , incident report , traffic data , property data ,and weapon ,query retriever b must query on indicator date ,, security system ,search quer ,,, secymy system tired password authority authenticator non repudiation, technologies biometrics bebtey Dara ,, 
+- use case diagram , administrator system maintaining data geofile mainy is validay location address law enforcement ,zip code ,x,y,z bindi basic
+- softy police advantage v..
+- invalude complain .
+Citizens for 
+Valid information 
+Is completed .
+- missing person.
+-,missing forb 
+- requirements.
+- testing system design..- program and code homes security..
+- information electronics citizetv
+- age , birthday , complaining 
+Forb  policng record .
+- stop check form ,delit serve ,check  I'd .check ..
+- admnisty .
+
+- compkay for invalid criminals ,is 
+- data dictionary..
+
+- implemented steo challenge and cost estimator..
+- estaby ,portaj web , cybernetic criminal,insert configuration of networking b, maintaining support ,help facilitate b, inadequate information infrastructure bpolice system ,lack of awareness of police and citizet..
+- no accept if inft communication ,.. criminal I'd , delivery stop. 
+* Wiring 
+* Police siren diagram..police interceptor modified , 
+* Controller police wiring 
+Harley ,police special vehicles..
+*Traffic light control  system ..
+Traffic. Light circuit timer ic 555 
+Component requirements.counter ,diode ,Les ,resist, variable,,construct working 
+
+
+...
+
+
+
+
+	
+	
+ 
+
+-68.1 reference: police trade engineering 
+St. Peace college:..
+Basic police education structural ..
+Saps annual report..
+Safety ...
+- introduction to policing practice ,
+
+____________________&__&___&_
+St peace college information 
+International 
+Electrotechnic commissioning 
+,
+
+Purpose : standard for and related ..
+Headqt... history , full member ,voting affiliy technicial commity
+- * electrotechnic .- content 
+- introduction.
+- general requirements for peer assessment.in ca system 
+- use of peer assessment.
+- acceptance programm 
+-national accreditation 
+- unified assessment 
+- unify assessment.
+- peer assessment requirements.
+- application of iso ,iec 17040.
+- assessment type.
+- assessment 
+- recruitment of news assessor ..
+- appointment of lead assessor.
+- cab peer assessment fundamental forward .
+*Introduction ,the iec conformity assessment board ,has formal policy that requires ..
+- fundamental element for operating a peer assessment ..-
+- assessment process. Schedule vopersted by ...
+- to accepted for participating schemes operated qualification procedure ..
+* IEEE,, transaction..
+___________
+
+
+MEMS ,, micro electronechy system .. nano electromechanics..
+
+* History ,types,silit, metals, ceramic,
+Basic process , deposited process , 
+,- physical deposit, chemical deposit , patterning, lithography,
+- electron beam ,ion bean ,ion track technology, x ray lithography, diamant,
+* Etching process ,isotropics , ant isotropics, hf etching ,electroche micak etching ,dry etching,vapor,plasma , puttering , die prep, 
+- memes : manufacture technologies.bulk micro machining , surface micromachine,thermaj oxydatiin ,high aspect ratio ,silicone ..
+___&&&&
+St peace college 
+
+69.1Reference: 
+Information 
+Material didactics lab open , workshop 
+
+Manufacture 
+
+
+Electromechanics..
+- winding .. rewinding ,coiling machine ..
+
+- transfo ... assembly ,motor assembly asychry
+- insulat test  ..
+Supplier. Unity power numericaj
+ electrtechnology ,test rotor stator
+- _____
+Electrical machine open lab 0,2 kwg system module studev low voltage,module pane 
+
+Electrical panel studies 
+
+
+- electronics panen numeric logic panen combine input output ,..flip foo ....
+Composition panen addition sustain multiplex , demultiplexing ,and ,4 na d input output ,bir ..
+Gate 
+. network connection , wav installation reseat ,
+Calculator  network interconnt atn ,framework ,ipz address , ion routine ,routines panen algot , struct routey ,test ICT panel module , connected ,texhnicB ip telept voip test ,.
+.* Panel thermotronic ,refrigeration system , research experience ..
+* Lab genie biomedical 
+___
+School genie v..
+- instrument measures ..
+- electrotechnic.. fundamental b..
+
+____
+- engineering pedagogy : 
+
+- sector : counseling , training ,multi media social,
+Level ,code rime : responsible pedagogy conceptor ,act develop competence..
+- engineering pedagogy master platform lms ,chief project technology pedagogy , platform pedagogy ,chief project e learning  expert video ,support ,, 
+& Portfolio , network ,web ..
+
+* Summary : 
+..
+Master pro ,ion multimedia..
+Master pro , defense ingenieur ..
+Master pro didactics and engineering v.
+Master pro reseat  learning and teaching science technology ..
+
+* Responsible direct , ingenieur responsible pedat , code rime ( 22213) is 
+
+
+
+...
+
+
+
+> 
+	
+
+	
+	
+
+
+- technical engineering 
+ 70.Reference: ..
+St peace college .
+* Article scientific and technicial,news technology data information..
+* Resource document; , innovation,COVID ..
+* Laballe and quality marking : marking ce ..
+_ * certificate of a product.
+- old  norm.
+- normalisation of industrial ..
+Mechanic construction norn:.
+- evolution  of Norman 
+Pluri ,,
+-multidisciplinaire  construction mechanic ..
+
+* Wath is norm technical..
+- typologies if norm
+- status if document, statutory of document France ,,internal..
+- wath is necessarily of norm ruling , 
+* Norm ruling ORGANISATION 
+- ruling ,directive ,,
+Minister arrest norm marketing..low rules...
+* Offer 
+Introduction : context .
+Definition 
+Different case engineering ,
+- phase ent founder.. engineering investment..
+* Study of pre engineering..
+Studies of site implemented 
+- pre - charge note of pieces booking 
+- calculation previsionan of product workshop 
+- pre selected principle ..
+** 
+
+
+...
+
+[
+
+
+	
+	
+B 
+ 
+
+-71.reference 
+- st peace college ..
+PG 1-46
+- registrar form 
+By  studen : tshingombe tshitadi 
+Information learning..
+Data learner ..
+
+Manufat .design guide , tutorial thermoelectric..
+Large inventory of premium quality peltier module , 
+Wikipedia..
+Background information ..
+- a typiy thermoelectric system.
+- thermal schematic.
+- design process.
+* Estimate heat loads
+* Define temperature.
+* Choosing a peltier element 
+* Choosing a tec controller.
+- choosing tec controller .
+* Heat sink .
+- fan 
+* Example calculation .
+* Temperature sensor .
+* Power sut reqt .
+- test your setup.
+- thermoy cooling assembly ..
+
+Peltier cooler applied accros device  
+Contents :
+- operating principle.
+- construction 
+- design .
+- materials.
+- identification and characteristics.
+- strength of weaknesses .
+- benefits 
+- disadvantage.
+- performance .
+Consut product industrial 
+Public..
+* 
+
+
+* Binary additional: 
+Binary system :
+- binary substrate 
+- binary arithmetic b.. circuit diagram 
+72..reference
+
+* PG 1-40..
+Telephone ...
+* ------;
+Information gazette , dhet gov n4-6  notice  training .. lecture pory of assessment tools ,and  education  program , program department ..marker. Programm  or any other . marking center ....
+*____
+* Education  computer base ICT  years learning v,comparat  analysis of software to conduct computer test , majer ,bank over text book module lines .
+
+_______________________________&&
+73.Reference: 
+Portfolio and files submission: 
+Memorandum 
+Textbook completed self assessment 
+Homework,class work evaluation 
+MarkSheet ,test 1,2 term topics : 
+N1,N2,N3,N4,N5,N6, 
+Exam paper 
+
+Exam papper previous, question and answer marking ..
+*
+St peace college .and
+* Higher education training depat higher education and training republican of south Africa.
+* Marking guideline.
+National certificate electrical trade theory , 5 PG ,,
+* Question papper consist 5 pages ,formula sheet 
+Time 3hours,marks ..
+* Answer .
+* Instruction and information.
+* Question relating to the wiring of premises must be in accordance with the sabs code of practice.
+* Candidate will be penalised for untidy illegbble work .
+* Read question carefully and answer what been asked ,
+* Question answer order subsequent of must not be separated .
+* Rule off on completion of each question .
+Mark .
+- rule off completion of each question,1mark 
+_____
+* National certificate engineering science n1(15070391)
+X papper question papers 10 PG 
+* Instruction and infot answer ball question 
+- read all the questions carefully .
+- number the answer according numbering system used in the questions papers.
+- answer must rounded to three decimal 
+- all calculation must have following three steps . formula replacement answer .
+- gravitational acceleration shouk 2,  
+
+
+* Industrial electronic n1.
+- question papper 5 page and formula 
+* Mathematics n1.. marks 100
+26 November.
+* Instruction and information .
+- answer all the questions 
+- read all the questions carefully.
+- number of the answer any order but subsection  of must be together .
+- round off final answer to three decimal place unless indicated otherwise. 
+______
+7.5.Reference.. portfolio file 
+St peace college and dhet ,
+Ekhuleni tech .....
+Past exam papper memo , cost order R300,examin access R 1000 
+N2..
+* *Engineering drawing N2..7 page ,,
+
+* Marking guideline consistent of 9 pages
+
+* National certificate ,electro technot N3 ,time 3 hours ,marks: 100
+Instruction information 
+- answer all questions v,read question carefully v,number according to number system in the questions .
+- the correct information must be copie question papers st,
+- rule of after comply must be done in pency .
+- the sketches  diagram must be neat reasonable large and fullt labelled .
+- the answers must worker to three decimal places ..
+- use the correct units for ..
+PG 23..
+_ mathematics certificate n3..
+- N3 electrical trade theory 
+_______
+National certificate electrotechnic N4 ..non programmable calculator may used ,
+Question papers consist 6 pages a formula sheet 2 pages..
+**Marking guideline .
+N4 ..marking guideline consistent of 7 pages
+ ..
+N4 . entrepreneurship and business management n4 , question papers 
+N4 mechanotechnology
+N 4 electrotechnic 6pages
+N4 industrial N4. 6page
+N4 mathematics 
+N5 engineering science
+
+...
+
+[
+
+
+	
+	
+ 
+
+N5-n6 exam paper,and mark guideline 
+St peace 
+- n1-n6 
+St peace college portfolio.
+1-33
+* Assessment outcome st peace college band aio activity low exhibition pe exam ..
+*Expert intelligence ruling 
+
+75..reference
+St peace college 
+Portfolio , 
+Formal technicial college instruction n1-n3
+Part (N4-N6 ..n diploma ..
+Icass term engineering .
+Subject || week || week 
+Lecture science engineering studies .
+Analyse gride..
+* Process      || responsible || timeline 
+* Criteria | examination || moderation 
+- cover page || 
+- page .
+.. criterion 4 ,cognitive ,
+Criteria ,yes / no
+
+- subject || assessment task || assessment took ||| content ||| duration and mark allocation || assessment date 
+
+Task | time frame || type of assessment the duration alloct | scope of assessment ||| contribution icass trimester |||
+
+. subject ...
+Years ...trimester
+Icass trimester MarkSheet||| class marks task || final icass mark - rubric for the assessment of practical task business studies 
+
+
+
+
+Assessment guideline ,
+Moderation of assessment , internal moderation ,periods of validity v, assessment requirements ,type of assessment v,baseline assessment , collection evidence record ..
+
+----------
+--st peace college:
+76.Reference:
+Tshingombe tshitadi .. certificate 
+Additional information:
+Assessment center irregularities:
+Submission 
+
+
+Time table exam papers1-46.
+Test 1: mathematics / faculty engineering electrical 
+Preparatory phase and selected orientation assessment n4,n5,n6 , certificate preparatory ,/ diploma criteria continuing supplementary.
+- time 3 hours .
+Subject ex...
+1. Explain:    ...........100   award mark
+2.discucc 
+3.explain .
+4 calculation 
+List 
+- statement.
+Calculate.
+- calculate .
+Drawing and explain
+- investigation 
+- analyse ..
+
+__________
+79.
+St peace college 
+Dhet ..
+ portfolio evidence of low 
+PG 1-98 ..
+
+
+Irregularities final papers  exam 
+Submission 
+Additional information:
+- I'd n final award  dioloma 
+Question / and answer mark ..
+
+...
+
+
+
+	
+
+	
+	
+ 
+
+* 78.reference 
+st peace college..
+Portfolio evidence low.
+Portfolio exam ..
+
+1-78 pg
+- test trade industrial exam college assessment time table activity college ...
+Exam previous papers st peace college 
+By tshingombe fiston..
+* Supervisor in industry ..n3..
+N1 to n6 .....
+______________
+St peace college ..
+1-96 pg
+Application registration ..
+Irregularities  letter register submission final n5,n6  n diploma award certificate.
+..
+Portfolio evidence ,,police institute ..vs 
+Information..
+Instructeur .
+Exam policing ..and engineering n diploma 
+- administrator and communication skills exam ...
+* Exam papers ..
+* Management information 
+* Management system information 
+Portfolio learner guideline information and document system inventory 
+* Supervisor portfolio evidence .
+
+* Portfolio planning : evidence low dures .. portfolio evidence ..
+Files
+
+* Computer practice n6 ..
+Information system .
+* .. evidence low..
+* Assessment engineering course assessment summative continue test , 2 years semester .
+- scope ,topics ,off engineering v..
+* 
+* N5-6 exam .. mathematics 
+
+St peace college ,dhet nated 
+Question and answers:
+
+* Electrotechnic, electrtechnology, industrial electronic,power machine, engineering science , industrial electronic..
+- control system..
+______&______&__&
+* St peace college filing 
+79.1Portfolio.
+* PG 1-50
+* High education department saqa ,st peace portfolio 
+Tshingombe 
+Award  n diolome 
+50% , 50/100.. equivalent.
+Name surnt accreditation minimum.
+I'd / name qualification // provision / move file in our ..
+- subject file studer 
+- test circt nice  ..
+Test operation , 
+- tools assessment mark checks : instt .
+- volt , statement of worh programm b....
+* Resource hume learner .. finalize.
+* Problem sector ent..
+* Abstract school.
+* Hypothesis : low phenomenal .
+* Acknowledge: 
+** Synthesis .no record irregularities ..
+* Purpose : planning  structural multiple 
+* 2.1 purpose operational step : operational research : examination diploma b..
+* Research abstral purpose : not meeting finaj instu regulation .. final 
+* Purpose ,exam center workplace power a.
+Supply meter square ..
+- engineering case study ..
+-.puroiae advantage disadvantage research trade in panel wiring skills ,purpose reason..
+
+Switch engineering 
+* Design panel  test operational , ac ,DC verification ,,trs semiconductor,test operational transmission v..
+** 
+Statement of work experience logbook..
+Code trade .. issue bn 360 credit ,180 are award to experimental training for achievement n diploma ,,
+______
+80.1reference 
+St peace  college ,and a
+Faculty : electrical engineering 
+* St peace   college assessment engineering b,filing 10 PG 
+Foreign institution , 
+- inquiries 65946..
+Saqa enquiry response two days further research ....
+_______________
+Letter saqa 
+Dear tshingombe  ..
+- section 29(a) of policy and criteria for evaluating foreign qualification with the south afrt as amend ,march 2017 stipulates the requirements that foreign. Award institution must meet for iti qualification to be recognised.
+- saqa bases the advice below on infot curry to  saqa reserves the rigfg to change this advice ,should new authoritative information come to it's attention.our online application documents stipulates the following in terms schooling qualification, saqa accepts only school leaving qualification issued by official examing , certificate body in  country of origin ,and not by school where based on external examiner.
+- no certificates  of evaluation will issued for for school leaving documents other than those in respect of completed national school exit qualification issued by the relevant authorities ..
+- therefore ,only school leaving qualification correctly awarded by the authorized national examination body in the  Democratic republic of congo will be recognised and not school leaving documents issued by the the school itself ..
+- please note the purpose of this overseas institution email is to give some direction regarding accredited and non accredited foreign institution for purpose of recognition and acceptance ,by saqa for foreign evaluation ..king regards  authentication service saqa .
+* The national qualification framework nqf act 67 of 2008 mandates saqa provide a foreign qualification evaluation and advisory services which win accordance with the policy and criteria for evaluation foreign qualification with the south tnqf as amended march 
+2017 section 29(a) of policy  and criteria stipulated the requirements that foreign award institution must meet eits qualification to recognized 
+
+...
+
+
+		
+
+Portfolio evidence low base saqa enquiry b/
+
+
+
+	
+	
+ 
+
+Portfolio evidence of low verification coverage..
+Discovery.
+N3-N1/ grade 12... business English, physic, 
+Grade teacher phase police traffic safety security , exam questions metric open ,master skill engineering matric ,time ,, 
+*Designing model  didactics : subject ..term 1,2,3
+1 evidence low organisation supervisor planing ,
+2 low supervisor management v..
+-loa design system cloud Police management system , regulation size poes docket ..
+- low poes evidence police operation ..
+Low  system engineering fundamental explanation distribution system noise bonding shiejd light discharge v fault protection communication marking priority output physical architecture product element decision database  input archicad decissiin  control , verification low thermo electrical operation  manut performance vs curren max  controk  ..
+- Poe evidence low  mathematics rult term nomination trinomiaj polynomial factorisation sign  different product quotien low additional substrate multiplication division low of exponential power low trigonometry . Triangle algebraic identify low limited low continuity function low derivative  function existing relationship  low .
+- Poe evidence low physical engineering low system international low  unity relate meter kilograms litre Newton pascak amperage  joules celct kelvin meter second kilometr voltage  per ,evidence low static kinematic dynamic reasoning low force acceleration ,low if cylinder .low strength 
+* ,poes  evidence low electrical trade theory  electrical commissioning eic sake sans ,skill engineering outcome ,ac,DC machine serie exciting independence shunt compound load operation design .
+Character load power sign ..
+
+Low explanation generating supplier low inductive phase ,,test crime prevention low ,
+Total  grand skill development..
+Low operational requirements trade nated and ncv combination ....
+Assessment explanation low rules ..
+
+Irregularities material scripted and backlog sita project printed ,, career.
+Outcome..
+Operation trade low, construction,trade requirements phase trade low compared close code 
+Theory and practice trade code low ..
+
+
+. 
+
+	
+	
+ 
+
+- st peace college 
+Ref 
+ application form  
+ n diploma,, reference ..
+- workplace experience...
+* Letter .
+- academic information.
+Examination number | name instructional|obtain ||level || date passed acknowledge..n4,n5,n6... 
+
+____________________________________
+St peace college  and dhet
+80.1Reference: 
+1-3 PG
+Application NN diploma  and write job ncv combination nated and .. application.poe 's 
+Theoretically and practical on job 
+And function of function ,, function grade trade to workplace experience 
+Aware ,reward , irregularities job leaver awareness job on trade framework qualification n diploma.
+
+- name : tshingombe fiston 
+- assessment curriculum outcome .
+
+- 1.1 file running job employment vocational guideline.
+ID flips 0016910025
+- project , photography drawing , curriculum vitae , document design , homework financial legal wall documents .
+- 1.2content  PG data academy 
+
+- 1.section examination is results statement letter appeal ..
+- section letter data lms experimental 
+- info add back log  item workplace cvs 
+- management information systems and learning 
+- vocational guideline total theoretical bass framework total grand entry exhibition.
+- practical school management .
+- orientation class practice file store room cvs .
+Learner .
+- psychometric learner facilitate career job cvs write mentoring cognitive analysis synthesis evaluation.
+- technicial document archive file library case casebook review program page order price  work job .
+- choice career job hr.
+- personal training . issue license ..
+* CSD treasure supplier ID R016921978
+DTI: invoice .
+- R& D tax incentives reg : 2013/0344989.
+
+- civic ,
+
+...
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- seta  lms ,I'd =127952
+- assessor moder 
+- sasseta psira verification.
+- sarb: ID 61095446 vocational rules.
+- sars :SF7478: TM portfolio maintenance.
+- Microsoft ID: 9953174 ,Azure dev .op I'd 
+- scheinerde  I'd / 607069d9-fa26-423a-9d8c-d810df173a87...
+- bill material I'd ..
+- modicon plc configuration mort ,tech exper assessment 
+- eskom I'd : drop file 
+Off autg = 9a2334e83af@afc6dec30difc6,Dec 30dif59,
+-city power : badge ..
+Compliance city power
+- regional revenue
+|Designing description file ||.  Check|| no
+- destination description files .
+- total faculty career guidance rwite career outcome.
+- total experience: content 10 pocket 290pg
+- pocket section 1- file examination  25 page ,1-25 PG..
+A) statement N1,N2,N3,N4,N5,N6
+B) allegations irregularities letter .
+- C)in studies .
+D) statement swiorn affidavit,
+E)incidence report resolve complain .
+F) record academy transcript 2100203 812
+G) results 202311 release pass all subject letter qualification.
+H) cup exempted mark university capacity development letter minister transcript . registration . bachelor minister Lund's marking maraca .
+J) devt tvet guidance ma..
+K) evaluation foreign  qualification quotation 
+L)st peace  college certificate award electrical safety experience theoretically practical section .
+M) record training scheinerde certificate ,2 PG certificate of completion work experience.6 PG.
+
+N) Alison learner record certificate : diploma cpd certificate , engineering studies security detective police  forensic diploma platform 
+- meeting aluminum lms assessment .
+- certificate book mark registration up met police metropolitan police  career engineering ,isc candidate official candidate transcript  trailhy tableaux 
+IP  candifat property certificate original.
+- R) ID. Homes affairs permit 
+Cvs
+Pocket section 2 files 25 PG evaluation resulted complain case wallet document .
+A ) complain ,B case incidence dhet record 340311006003192 Microsoft.
+C) saqa purpose accreditation non credita saqa record outcome explanation letter ..
+D) procedure evaluation copy final saqa graduation diploma nqf national framework qualification outcome letter , ratification letter saqa employee experience relate Dr congo school leavers ,Qcto .
+F) outcome complain intelligence service inspector general  investigation cvs Poe record from datase ..
+G) Doj case civil ..
+H) cs treasure incidence close tendered supplier resolved ..
+J) congratulations test plan evaluation case book Microsoft incidence resolved 5 visual case support ..
+- pockets section 3 files 22,
+-A) letter completion practical t
+B) appeal statement results award.
+C) record transcripts irrey .
+- pocket section 4 ,files record sheet schedule irregularities registration time table , additional final years calculation vweigh ..
+- pocket 24 PG metropolitan 
+Section A) on line submission for : 1-5546-24 data right .met uk .
+- B) intelli property IP license MIO 327,24-0100certife copie copy answer submission  affidavit career city power topics visited site ,on line .
+- pocket 6:18 PG memory drawing .
+Project design : theory exam outcome draw .
+A) label outcome skill development subject,skill practical from work engineering practical theory trade nqf ,6 Scotland qualification trade skikk practical level ,67 work experience occupational .
+- pocket .city eskom project implications job curriculum experience visited ,city power eskom .
+- eskom science under key learner word process ,relay issue along license research.
+- cvs experience bibliotech libraie company.
+Pocket ,8 ,12 energy power electronics power project discovery design job ,job simulation theory machine instrument research job file job assembly job book ,ac ,DC machine , energy ,energy power transmission generation cogeneration , economic advanced .
+- issue license , algorithm ,I'd employee , issue certificate exam file , 
+- guideline vocat interview total career guidence accreditation choice field .
+- years achievement scored career faculty engineering electrical studies guideline test interview rwiten 
+- faculty policing traffic paralegal test career.
+- faculty business educare education career teach assessor moderator 
+
+- faculty it ICT 
+- vocational orientation statement interview company .
+- total grand engineering career.
+- talent engineering subject studies engineering senior staff , cognitive,scale waiting analyze, synthesis interview notice ,
+- practical school orientation practical office school room  practical office school class homework class ,
+- theorie
+* Portfolio : practical rules discipline discovery 
+___________________
+
+
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 19, 2025, 4:16 PM (13 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+Inventory prizes award literature and Nobel research prix litterary word key
+Explanation letter course subject 
+Discovery circular n diploma nn diploma printer ...job . Code trade national and ncv  job  company .award poes 
+Prize award.irregularities regulation.job 
+Prize awareness 
+Prize award framework qualification assessor facilitate moderator discovery
+___
+
+* Portfolio Parliament alert*award
+_____
+
+Notice motion  ruling dhet policy framework 
+
+* Prize letter nomination secret creative 
+Arrested ministerial..2023/1226 low
+Appeal statement results award degree diplomat .. institution academy police and national skill national trade registration 
+Notice motion low ,saqa meeting 71638 policy ..
+-Legislation education dhet  deputy minister dhet dbe and nrf nsf low rules amended nated and ncv saqa Dr congo leaver school regulation agreement phase circuit/. Dtic sarb cpic sector dme,lms .. private sector eligiblity,bill amendment prize code trade manufacture low training sector engineering trade operation skills 
+
+- administration education/ education dhet  
+- education social dhet government ..
+- method research course initiative project creation registration national award awareness .. conduct assessment ruling notice motion ...
+
+Creative allegat to Qcto  saqa retain ,letter to authority minister for results  investigation..
+___________
+Prize letter award ..
+Irregularities material irregularities 
+Letter record acat and transcript academy : to dhet deputy ,, create ..
+- weighting of course engineering 
+Industrial electronic, industrial, engineering, electrical trade theory, mathematics , industrial electronic,
+Mark guideline error low : 
+Create low contribution workplace asst  
+Low not appropriate stationary and marks retain ..
+____________
+Prize award ..
+Created record academy years transcript / buchelor engineering 
+Ucpd and 
+Create arrested minister is 210002023812// 2023/11,, release  college 01/02/2024
+
+ 
+Incident INC00025277051 report have been resolved assistance .
+Dhet , N3, qualification  achievement , complain response.. 
+Compliance ,person /minister / municipalities dhet ,,
+Notice motion low 
+Letter sita  appeal career backlog project appeal irregularities.n4 ,n3 subject fail candidat rwiten 2 subject fail , pendy rwiten 2
+Creative job ....
+Prize inventory..
+______
+Prize award 
+
+* Automated reply letter explt theoretically practical base . experience 
+Call center  dhet gov .za Omni microsoft.cin..
+- thank for contact dhet .regard nn diploma nated and ncv enquiry .news issue , replacement or combat must submission 3-6 month , waiting printer.. appreciate..
+
+___________
+Prize award 
+Screen saqa explanation cv
+
+-Evaluation of foreign qualification 
+-Team B
+-application check list
+* Documents 
+|Application forms| submitted| not submitted 
+| Quotation payment reference number  signed correct  amount not  submitted,short
+| Certified copy I'd  ,yes submission 
+Signal consent form ,yes
+* Document issued in original country 
+|Document in foreign language| yes
+* School qualification general university entrance qualification 
+| Issue official if application if not original 
+Relevant bord minister education | certified certificate,certified transcript , subject list 
+*High education qualification 
+| Final award degree diploma certificate | 1th submitted ,
+
+Not provisional certificate or unofficial statement 
+Transcripts of academic record reflecting each years of study   | 1th not submitted 
+- official statement from institution.| 
+
+* Country neco ..
+Exam certificate / report 
+* Country Mozambique 
+Minister
+* Country china 
+Ambassador 
+* Country Dr congo school leaving certificate 
+Baccalaureate 
+Attest the reussit aux baccalaureate ( relieve individual de note ) bulletin note
+- diploma d ' etat submission 
+- non  compliant..
+* Profession member / design short course 
+- short course 
+- saqa .
+
+____''
+Screeners initial 11.2019
+___''''
+St peace college 
+Award certificate in electrical 
+Follow , safety 1,design db ,socket outlet ..
+______
+Dhet  ,rsa 
+Statement of results 
+Exam number 
+Tshingombe tshitadi 
+ fiston 
+Industrial orientation n3, plant operation theory , electrtechnology , electrical trade theory..
+- industrial electronic, electrical trade theory , mathematics 
+_____
+Dhet
+National career advisory portal 
+Ncao value question results..
+Item | desct 
+______
+Incident CDs treasure ..
+Resolution.
+Description.
+__---
+Training theory practical experience company..
+Scheinerde r electrical 
+-eaton 
+Microsoft 
+
+
+
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 19, 2025, 9:19 PM (13 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+To: st peace college and institution.
+Date subject letter .
+To concert serves confirm Mrs was participate in the workplace integrated learning program research assessment irregularities exat nated ..
+- dear client  thank you for contacting nqf information center nic , please note if need assistance with evaluation of foreign qualification you can assist.kindlt note thate I have referred your e
+mail to the evaluation team  to assist with the process you need following ,king regards nqf information centre ,nic saqa Pretoria 
+___________
+* Re : / award dioloma certificate MarkSheet transcript letter experience theoretical practical engineering n study outcome .
+___"
+Re: letter explanation theoretical practical base .n diploma award engineering electrical,jxl6wjl
+- dear Mr/ Ms fiston 
+Thank you for email.
+- please note that application for evaluation is done online. 
+- attached are the guidelines for the application and the country requirements be ware that the maximum turnaround time for connection of the evaluation process 90 working days .kindly note that our system is not compatible with the IP phone ,ipad ,and Mac book ,your are advised to use device ,ensure that your fault internet browser is google chrome and that ..
+_____
+
+Price arch internet 
+
+Re: release results statement and finalize award diploma , irregularities case ..
+Support @ archive Zendesk.
+The internet archive team internet archive ...
+It's dispiriting to see that even after being made aware of the breach weeks ago ,I has still not done the due diligence of rotating many the apu keys were  exposed secret ,as demonstrate by this message Zendesk token perm to access 800k + support ticket .whether trying to ask general question or request removal your site from way back machine your data is now the hand of some random guy if not me it s be some ..
+________
+
+Life on scheinder
+
+Customer notification : 
+To value channel partner .
+Document envelope : I'd 2872DD67-435C-4079-A408-3DE7221E2254
+Subject : price increase on power products family announcement letter:
+Dear value customer : dues to increase production cost on our MCCB family product division ,we are compelled to inform your a price increase on this ranger as you are aware ,we have maintained our price on this range for the last two ( 2 ) years  in lieu  this will a 6% price increase on our MCCB ,moded case circuit breakers family product which includes compact nsx compacts ns ,compact ins / imv ,go pact and cvs this has made after careft consider of current condition and variouse cost factor v.
+New pricing structure will come into effect on the 1st January 2025 we understand important of these products to your operation and assure you that this decision has not be taken light our commitment to delivery exception value and support unwavering .
+- we appreciate your understanding and continue partner bteam ..
+Rsa 
+
+Talent acquisition team 
+*Schneider electric talen application ..power  system medium voltage intern role team application impressive selected to continue b,will keep resume ,, 
+Training and university college o
+Fiscal years 
+Graduate 
+Theory practical on job
+Case support load 
+________
+Eaton talent 
+
+Update around application  the job has been filed , commercial finance manager appreciate v
+Heating support 
+- engineering production.sucessfuly 
+- market Eaton 
+Produce project : 
+
+_______________
+Microsoft team  price
+Recruitment 
+Microsoft career  unify candidate poison applied AI engineering continue b up date
+____________________________
+Career metropolitan. 
+
+Request an intellectual property ( IP) License 
+- date : 15 December 2024
+
+Your details . tshingombe fiston 
+- company engineering tshingombe / peace college 
+- e mail 
+- phone ..
+- request an intellectual property IP license to use  a trademt belongings to met mayor office fo policing and crime mopsc ..
+Pg1-33
+Career ..job ..
+
+* IP MIP-329-24-01000-000
+Pg1-20
+* Request an intellectual IP license . 
+Date 27 June 
+MIP-318-24-0109-00
+* Request an interview service met office for commercial purpose such a research for book 
+*MIP - 319-24-0109_99
+Ask us a question about using the met 
+* Data right official .
+Dear tshingombe fiston , freedom of information requested reference number 01/fou/24/040452M..
+Decissiin reason ,act  proof address 
+-
+Apply to attend a misconduct hearing :
+MMH-3919-23-0100-000..
+- contact the fire arm license .
+FA-36838-23-0100-09
+- explosive regulation b
+- cnr - 50615-23-0100-00..
+* Expression of interest withdrawan 
+Met recruitment team . Dear tshingombe you have successfully withdrawan your record of interest from our system if you ave decided this isn the role for you  still interested in joining the met please a look a t other opportunities we  currently got available you can view our career here  many thanks the outreach team ..
+
+___''_
+Salesforce trailblazer 
+
+Career 
+* Https// prod- uk - a online tableau .com / #/ site / tshingombe fiston 30a602d47
+User traffic view count project Chile 
+
+
+* New Zealand defense force recruiter trade rank country combination ,career  military experience  profile 100%
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 20, 2025, 4:16 PM (12 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- st peace college 
+Reference: 
+Information management system 
+Learner on line  computer outcome online data system web published network page ,Facebook ,online line 
+Mbit information 
+Presentation 
+- certificate of achievement ,,
+In recognize of outstanding accomplished and contribution engineering , electrical compliance , assessment police conduct engineering and competent submission portfolio marks value completed week daily time table ,,,job experience 
+- pg1-1 file:/// st peace CD index certificate st peace .htm 
+- gift certificate : 
+Learner feedback note cash redemption value note ..
+Pg1f 16
+- st peace college assessment police ,and assessment engineering policy .
+Time table engineering police subject module trade ,
+Compliance affidavit ,code conduct ,
+- case studies : ECSA  rules of conduct registration  case .
+____________&___&&&&&&&
+* St peace college 
+Reference: guideline 
+Orientation policy 
+  Practical brigade sector police assessment examination evaluation library discovery ..
+disciplinary .
+Pg1-10
+* Assessment policy engineering weigh value saqa award degree dioloma supplements meet or not meet ..
+Bookmark description|| mark word min | re mark max || n1 to n6 
+Topics subject | 109 page , knowledge analysis discovery not || note book copybook exercise book review page covered extra book information || comment feedback award 
+* Trade theory electrical 
+* Industrial electronic 
+* Engineering science 
+" Engineering drawing 
+* Mathematics 
+*Electrtechnology 
+* Business engineering 
+* Organisation industrial 
+* Level write electrical 
+*Assessment police level 5/120)
+Traffic  low , management framework 
+Exam papers 
+Total value 980 PG , award ,× 1 award , outcome ..
+Reportserie number || nature occure ||| action take corrected ||• record transcript 
+
+Drawing design mark 
+__________
+Bright st peace report 
+Purpose meeting on duty academy ..
+Ob  book incit book safety politic munii permi building government ...
+Pg1-3
+
+_______
+St peace college 
+1-10 page
+Register form Microsoft 
+Event registration 
+Personality information .
+- student number : 
+Student first name .
+- student last .
+
+Leave sick .
+
+- it  device request form remoke work ..
+- expense  form 
+______
+St peace college 
+
+Reference : compat sector private supply close tendered open close private sector engineering and policy private sector assessment .
+PG 1- 10
+Services providers tender
+Curriculum information desk assessment police stationary information system design ..
+_______&__
+St peace : college and institi .. academic students brigade .
+-sectir st peace integrity guard academic officer police academy ..
+Purpose topics :
+- recruiting .
+- job requirements .
+Rank office 
+Faculty 
+________
+Time ..pg1-29
+..1.1 company marketing circulum assessment cash industrial trading and business support .
+1.2 statutorial : low labour relation skill industrial trading support services engineering .
+Vision 
+Missy . submission 
+______&&
+Program st peace college visual basic 
+- assessment engineering electrical information management system communication , administration skill manat delivery framework work 
+- assessment 3 topic subject 
+_______&
+Invitation to bid .
+Part CDs  invited bid requirements of the name : 
+-bid number | R0169241870| closing date | 2023/09/2
+| Are the accredited || if yes  ||| are you based supplier the ||| 
+Totaj number of item offer ||
+* Certificate of independence bid determination 
+_______&info @sabs.co.za ..
+- subject subject 
+- online 
+_ council planners .. statement query v..
+* ECB ,, electrical conformance board of sa 
+___&&
+St peace college 
+81..Reference 
+Portfolio 
+
+City power application form for trade assistant .
+Personality details:
+- surname: tshingombe -tshjtadi
+- first name : tshitadi 
+- age : 
+- I'd 
+Gender .
+Do you have disability.
+- are you a south Africa citizen : yes / no 
+
+- do you have a criminal record : yes / no 
+
+Qualification .
+Other qualification | name || qualification certificate || year obtained
+ 
+* Cvs  tshingombe tshitadi cv 
+PG 1-2.
+Summary : scope research 
+1.2 abstract :
+- experience : engineering electrical city power ,st peace . portfolio  evidence 
+_ administrator training and resource humain 
+2.resume and cvs :
+Course : engineering electrical work experience 
+- title / position : 
+Portfolio evidence based assessment practical topic st peace college , project research saqa .
+- award degree saqa award ..
+- panen wiring engineering , 
+
+
+
+
+
+
+...
+
+
+	
+	
+ 
+
+* 83reference: st peace ..
+Department health 
+
+* Appointment if a service provider to supply and deliver ,rdx 320 vacuum autoclave . part 
+1.introduction :
+2. Background:
+3.scopes of the project:
+4.purpose .
+- budget  project 
+Time frame :
+* Pricing schedule ..
+Name the company 
+Quotation number 2022/NDOH-0809
+Closed time 
+.item | description of goods || part number ||| quantity 
+
+* Supply chain management  dube.. confirm  our system whether it right product..
+_______&_______
+Your CV critique ..
+- cv means give honestly ward assessment some job search  job seeker competing  review.
+- visual presentation and organisational: point .
+Cv writing : career summary is not strong ..
+Digital read ess : cv is format  19% cv ,applicant tracking system , correctly .
+- CV scan test results  you can next  step ,team top cv  rwite land interview .
+- a professional written keyword optimized ,learn ,an experly 
+- A .CV ,cover letter linked profile written ,60- day interview ,see our success ..
+Most resent employee 
+____
+St peace college..20 PG..
+
+Application nsf skill fund 
+- company  phase 
+Project 
+_____
+Ref 
+The dtic  invoice : information PG 1 . referred back cancejn 
+Question 
+Form dtic project 
+
+___&&
+St peace college 
+PG 1-4
+R&D tax incentives :
+Reference outcome the application 
+
+*Dashboard .
+Overview .
+Companies:
+Projects:
+Company linking : 
+Annual report: 
+Project submission b
+
+* Dst...research and development ( R& D tax  incentives notification of change report 
+_ project programm 
+* Technology and human resources for industry program thrio  PG 1-5
+_________&
+* Reference: 
+St peace college:
+Pg1-4
+- QCTO.
+-working group wG nomination form . qualification development / review 
+1.1 nomination for the appointment as working group member proposed ..
+.subject matter expert assessment .
+Stakeholders grouping | yes
+Employee from industrial.
+Employee organisation 
+- assessment expert .
+- regulation bodies 
+- statutory.
+- training provider .
+Acceptance nomination group .
+-.declaration by accepting nominees 
+Quality partners
+_______ 
+QCTO ..
+Page 1-5
+* Scoping report template .
+
+* Scoping meeting .
+- preliminary details of qualification intended for development : qualification type , qualification title ,nqf level , credit v
+Preliminary details of skills programe intended for development 
+
+*6 analysis of stakeholders consulted for scoping met.
+- classification |number of participants where meeting 
+- work place practice .
+- professional body statutory .
+- employer associate 
+- employee associate 
+- education and training provider public .print
+- assessment specialist examiner moderator experience 
+- curriculum development specialist .
+- teaching and learning special.
+- Qcto occupational qualification part qualification skill programm evaluation checklist .
+- section qualification 
+-qualification skill | types || title desc|| 
+* Name surname contact project 
+* Name contact subject matter ..
+QCTO  .record of feedback evaluation moderation 
+Evaluation date 
+Peer moderation .
+Oeerd 
+- sect : criteria | sme response || 
+Section completed  the curriculum document of qualification part
+* Rational 
+* Purpose 
+* Entry document b.
+Rules of combination b.
+Soft skikk includ
+Foundation learn 
+- Qualification document report template : 1-3 
+*_____
+QCTO 
+With regard of n certificate please direct dhet ( n4-n6 n diploma inquiries or umalusu.. n3 or ncv  certificate ..
+The institution in question is not registered under the dhet  check college  Qcto ,,,  nqwako 
+- please Qcto Des not issue any statement results 
+
+- verification client request rejected  certificate register ,own certificate 
+- I have copied our QA unit ,they will be able to respond to you accordingly b.
+Director system monitor labour market intelligence 
+__________
+St peace college saqa 
+- reference:
+- 90674 national n diploma engineering studies statement of work experience logbook
+Statement of work experience 
+Instruction:
+Program code
+Saqa qualification I'd :
+Saqa learning proy
+* Learner details : name I'd number .
+
+Company name address , supervisor.
+
+Trade test  work in technicial .
+|Ofo- code || trade     ||. Code 
+Air condition refrigeration 
+- refrigeration mechanotechnic 
+- electrician
+- electrical mechanotechnic 
+- armature windu
+- trabt 
+- cable joined 
+Instrument techn
+Special 
+
+* Component : db design ,cabmr ,ds electrician. .
+- 
+_____________
+St peace college - saqa
+Reference 
+N diploma award dioloma 
+Research :
+PG 1-57
+Name : tshingombe tshitadi 
+Reseat career implemented circular saqa qualification engineering electrical ..work experience theoretically pratique assessment ,
+Saqa institution foreign transcript  requirements graduate award nqf high certificate no meeting leave school expended assessment 
+
+Submission | name || date || status ||| electronics certificate 
+- 200
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 20, 2025, 9:53 PM (12 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+-submissiin | name | date || date || status
+- 202303115021|| tshitadi fiston tshingombe || 2023-03-21 , pending | engineering electrical 
+- 202207125014 
+- 202207085055 
+- 202211165081
+
+*Engineering electrical where appropriate apply lubricant ,packing .
+Material in accordance specific operating , inspection checking final assembly , where appropriate signature evidence that , obtain v following , readiness vrecord , obtain errors , checking electrical equipment v, remove vrecord test undertaker electronics equipment.
+- adjusting and calibration assemble ,returning and testing repair  
+Selected 
+Terminology inspection ,metrology ,standard, calibration tolerance measure 
+Visual inspector 
+Mountain wire control release 
+Summary : current  making  
+* Report : accreditation course 
+Resource 
+* Back of the invention :  replacement defective electronics compont
+* Summary : present invention methode replacement v, provision bonding 
+* Basic connector .,type connector  classic.
+* How to use desoldering compound. , soldering ,heater  component 
+* Quality standard code : elementary performance vbold 
+* Manufacture skill.
+Performance criteria 
+Selected correct 
+Technicial drawing .
+-1 drawing check validation against job requirements or equipment 
+- interpret technicial  assembly or object recognize , dimensions are as appropriate v field of employment 
+* Purpose .
+To describe the procedure for creation review and approval of product related .tearing storage handling .
+- to describe the process filing sister architecture , description vdicgbf f ,
+- product number specificatt ,
+Writing  routing  ,I tain  and resolving the comment charge planned to control document.- control the final document review approval routine , maintaining master files quality insurance..
+Document change request b.
+
+Material control..
+* Detail draw , assembly drawing bfir instruction manual 
+Schematic assembly drawhv , diagram  machine shopping 
+Report writing ,matter policy concerned ,make routine insoectio ,wether live working 
+
+* Choosing equality control labek ,shink labeling v.improper 
+__&&__________&&&
+
+_&&&&dear. Tshingombe tshitadi fiston
+The purpose of this foreign institution enquiry service some direction accreditation and non accredited foreign ,kind regards 
+Direction foreign 
+
+_______&&&
+Application for evaluation of foreign qualification
+Non  compliant  27,2021
+The application for evaluation of foreign qualification of above mentioned does meet all saqa requirements stipulated in the application material and below outstanding .
+-application form , invoice generator 
+Proof payment ,valid document 
+Finaj award school ,diploma , degre certificate ,.
+____
+Saqa feed back complain or no complain 
+________
+The requirements and procedure for evaluation on line will the registration page ,after applying on  line  sign and submit with follow 
+A printer bout on line application b,copy of finaj award graduate certificate..- 
+26/8/
+__&&&&&
+Final ..award certificate , academy transcript 
+______saqa submitted application closing date cv 
+Saqa reference : 2923/434 senior manager ICT ... 
+
+
+
+
+
+
+
+
+
+	
+	
+
+
+84.1Reference 
+
+Sasseta v evaluation rec 2532 , hrv
+
+Weight  , responsible 
+- at wath nqf level is your hr qualification.
+- how many years experience in performing general hr 
+- how many years I. Performance payroll duty 
+- how can rate your knowledge of hr information 
+- computer literacy Ms excel and word ,
+- do have relative working b experience bin forb of duty performance your self 
+- have you suspended fron 
+- application declaration 
+100/100
+
+Lms , sdf 
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 21, 2025, 7:08 PM (11 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- reference st peace college 
+App register form ecsa   
+Register self service portal ECsA - 00125662 reference v... engineering council n...
+- reference  space  member council education ..
+
+- reference IEC 6238-1 :2018 academy master class..
+Quotation 
+Customer 1005391..
+Quotation n-002360 
+Meeting training virtual 
+
+-Reference sabs  academic ,sale 
+Webstore
+Reference: iso  academy virtually 
+
+-Reference:  sarb book  cvs profile 
+Portfolio ref no : PG -1-11 3/4/tt/tshitadi/tshingombe 
+- artisan - electronics CT , robotic process ,automation engineer bstd ,manager supervisor bank 
+
+PG 1-10
+-the referral request has been sent
+ successful.jib IRC32431..
+Job titles banknote processor , location jhb cas center 
+- PG 1-6 career job invoice 
+Career graduate student.
+Cvs - 
+
+
+* Candidate project cvs sars PG 1-1..
+Notice if appeal 
+Survey screen psychometric assessment team outcome.. registration customer..
+Ralph vill..
+
+* Reference of brigialk  of attendance . 
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 21, 2025, 8:48 PM (11 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+*reference CVS: 12/2022
+St peace college.
+* Research experience .
+- engineering electrical implemented time table to job time  company experimental trade.
+* Education : study st peace college 
+* Work  experience 
+: title / position:
+City power training / st peace college training .
+- award degree diploma saqa / award panel wiring electrical .
+- skill .
+- engineering electrical st peace 
+
+Engineering electrical visit st peace college /city power .
+* Organization :
+* Tshingombe tshitadi ..
+Skill trade theory ..
+Summay ; scope research framework study trade theory practice engineering study time table assessment allocation ..
+-abstract : knowledge study case engineering design analysis investigation .field ..
+- experience 
+- education diploma high : 
+* Practice assigny : 
+* Rubric ....
+__________________
+*Reference:
+Portfolio:
+St peace college dhet saqa nated / city power career outcome 
+- research college engineering careers join gov company department implementation time table framework college to company electrical engineering low .
+Name  cvs : title ..
+PG 1-10 
+
+.1. content : engineering electrical career project  officer outcome legislation government engineering gov .city municipal engineering theory and practice experience b
+2 . requirements : metering.
+3 . testing desktop : 
+Experimental measure data results energy recovery years research input  balance output ,res
+Metering function b... old consumption :
+Procedures,fearture
+Calculate  tendered value career total education trade .
+Subject | theory trade test | practical test | exam || exam | grand ..
+- contact nr || description || published || closure date || bid document..
+------
+PG 1-10
+Portfolio.
+
+* Strong city design policymakers practical operating at city subnational ...
+- education and education for innovation the power of digital technology  ICT   combination education industrial 
+* Vacacy bulletin ref: .. recruitment sdc @ city power co.za : completed ...
+Visited studen open day.  
+Up date 
+Technicial indicator description .kpi 
+Short definition || purpose and important || source data ||| method calculation ||| data limitations ||| calculation on type ||| reporting cycle ||| new indicator ||| desire performance indicator responsible 
+_-------------___________________
+St peace college / city power :.-
+Reference:
+Portfolio 
+PG 1-78
+Research job .. readiness experimental theoretically practical base 
+
+1.scope : research implementation framework study trade theory practice engineering study time : table assessment allocation framework regulation in government city and eskom training center development infrastructure support training training experience studen 
+2. Abstract:
+3 - purpose .
+- task 
+Step 
+* Ask / answer factor permit : 
+** Answer factor sub contractor tendered and customer value .. 
+____________
+St peace college,
+Reference 
+Dhet government 
+Experimental theoretical/ practical 
+* Engineering electrical career job workplace office engineering outcome trade engineering outcome education engineering work partnership visited meeting engineering innovation college job function to government industrial experience function job and gradient function job industrial engineering electrical and social ...
+,* curriculum ..
+* Content : engineering electrical career project office legislation government gov city municipal engineering theory and practice..
+1.2 scope of workplace engineering career :
+Summary assessment outcome education technology b.
+Department : defense ,police security :
+- dtic department trade industrial 
+- dmr 
+Science innovation :
+- purpose : assessment :
+- case study how to make calculation substation : 
+* Requirements substation ..
+,- purpose requirements 
+Requirements power station 
+Requirements: cable dimensions : ... 
+
+
+- functional principle ,calcuj effective norn ,note consultant..bureau  etude
+- requirements domain application b network 
+Table of contents : engineering electrical career job workplace ..
+* Introduction to sustainable electrical energy systems mandatory , structural of energy systems ,basic. Analytical skikk for electrical energy systems component associate with electric energy systems ,ansli of electrical power and energy conversion system mendatator for fault in power analysis and control of large network analysis and control electronics power system plant asset management monitor ...
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 21, 2025, 8:58 PM (11 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+Reference: 
+St peace college/ 
+Dst ..gov city power st peace college 
+Programm research development support ,st peace lecture and learner development under planning department high education vs saqa vs Qcto vs seta research resolved time table examination assessment police , portfolio  document system integrity police : 
+2.1 : purpose  innovation practical and practical  science technology ..
+2.knowledge .
+- strategies phasing module cvs implemented .
+- development human system 
+..
+* Basic science infrastructure : implications of research innovation mission 
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 22, 2025, 7:42 PM (10 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- reference:
+St peace college  
+Eskom. Cvs 
+
+- personal:
+Title : Mr 
+Initials : ts
+First name : tshingombe 
+Surname : tshitadi
+Rsa : tircog00910619
+* Current  total to company : R95000.00-R1100000.00
+
+.. education info ..
+Qualification | institution. || Years qualified || qualification rank || time taken to complete ...
+
+Professional registration.
+- employment history.
+| Company|| position || salary ||•outputd ||| achievement |||| start date ||• end ||| employment ||| reason for leaving .
+
+- st peace college | panel wiring ||| R 0-R10000000||| panel wiring electrical design distribution bo|| certificate award panel electrical wiring issue || 2023 / 10/25 || 2 | close tendered
+
+--st peace college / city power cv ||| student learner ||| R 9500000-R 1100000.
+||| Learner engineering || 2032 || 
+Outputs : portfolio career research college engineering gov . tshingombe fiston 2023 department of science and innovation socio economic ..gov program .. lecture and learning under planing department high ..
+--------
+* Resumes 
+Eaton career :cvs pre
+Preference 
+- skills ..
+___&_______&___&
+* St peace college : dhet ,saqa qcto
+Reference:
+Portfolio evidence low 
+
+PG 1-50
+Re: appeal application qualification occupational n diplomat award Dr congo leavers 2016 submission and transcript certificate record supplementary ,rsa completed n diplomat studies engineering n4,n3,n4, n5,n6 quality insurance body irregularities in progress marking re certificate re accreditation insurance body 2022 , irregularities transcript script material the theory electrical subject evidence practical framework scope ..
+Quality council trade Qcto ..
+- requirements 
+Title nomenclature.
+Title description : engineering electrical n studies national trade examine 
+*Section b: qualification development qualification b..
+* QCTO: scoping report template : 
+- work ...
+- registration ..
+..
+
+* Application : 
+Reference : 
+Enquiry : 
+* 15. Days work topics ...
+* Statement of work instructions n diploma ...
+..4.1.enquury : Qcto certificate accreditation : 
+* Cert and assessment occupational . requirements trade n diploma award certificate 1th , ,2 th ,3th ,4th  saqa qualification Dr congo .  
+3 purpose orientation industrial organizational planing supervisor management management system data portal student b.
+- theoretical and practical examination n diploma occupational council and qualification trade engineering studies ..
+* *Purpose practical national framework tools instructeur.
+* Theoretical framework base experience outcome basic electrical trade ..
+- purpose : entry criteria .. industrial orientation..
+- purpose learner examination completed b: applies skill electrical trade theory : explanation low appliance to subject b..
+"* Purpose : explanation low speed control of motor mean outcome normal increase  low connection 
+..
+* Purpose engineering practice component b,cabling joint armature ,DC .. outcome entry : engineering trade low work preliminary ..trade associate ,trade basic advanced ,x exposevt xl. X = work exponential ,x work operation factor product back activity b work exponents ,static analyse visa technology brating minimum , variation x= x 
+Low work x logarithmic bperminmonth 
+* 
+___&______________________
+St peace college : dhet / 
+Reference letter
+Pg1-110
+
+Re/ award diploma certificate MarkSheet transcript letter experience theoretical practical engineering n studies outcome...
+To st peace college completion letter , practical experimental log book ..
+- 1.@ section one .. profile job application n..
+- 1.2 design of reporting template : table excell ups in engineering electrical software b: .
+1.3 library iny service : sciebono career and st peace ...
+1. Technicial documentation simple business files and data during operation document size store career control ..
+- 2 section two 
+- purpose career explanation course customer training manufacture executive scheinerde electrical plc , level ecosteuxure control expert program level 2'...
+- basic requirements for electrical calculation non  computer must standard sheet heading completed filed 
+- career education graduate didactics evaluation assignment ..
+* Dtic  process manufacture trading compont conduct switch machine ac DC trade design generation transform  trade education relay 
+Invoice
+* Process claim invention b.. pcb  , 
+
+Cell manufacture  machine ,, engineering manufacturing 
+Manufacture measuyr instrument machining process ...license tradec
+
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 23, 2025, 7:48 PM (9 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+* st peace college.
+*Reference:
+Portfolio evidence low
+* Dhet tvet / college nated  plan college 
+Teach and learning plan 2022 /2023
+* Lecture dhet and st  st peace college internal external learner portfolio textbook .
+*PG: 1-30
+- part 2 framework and conceptual understanding of plan .
+*.   Aim of plan : vision college and mission college and institutr examination  subject  ..
+* Objective of the plant :
+* 5 . understanding  phylosophic  for delivery of quality teaches on and learning in tvet in tvet college teaching .
+
+* Key delivery area ..
+* Implications  and monitor of teaching and learning plant topics trade engineering national ..
+- addendum not completed response :
+* Purpose :
+Qcto : occupational qualification skill programmed  development report requirements qualification document final verification meeting ..
+* Trade test Qcto saqa .criteria measure the power of learning trademark of education testing services ...
+
+*Liken send electrician 
+* Purpose of course daily course tender provider service required trade skikk phase 2,2,3 trade test readiness close report weekend attendance 
+
+- curriculum value add assessment is subject to changed ..
+
+- purpose dhet : education input output ..
+- purpose manufacture relate theory practical component equipment trade ton max chain load diameter trade code objectives criteria ..
+
+-dhet vs sasseta accreditation assessment ,mil std safety security training merseta gov . gazette ..
+- dhet vs saqa Qcto practical work experience lab workshop workplace industrial trade purpose machine manufacture .
+- purpose instrument measure trade engineering electrical instrument measures control lab ...
+- purpose : education learner : engineering physical science engineering cover...
+_______________________________&&
+* 
+St peace dhet : 
+- assessment career job .
+- application name : tshingombe tshitadi 
+- permit award ..
+Evaluation saqa vocational framework qualification nqf..
+1.technical and vocational education and training lectures learning work integrated learning.
+- company mission vision college design conciliation practice Manuel .
+Note ,other list senior lecture office 
+- coursework specifications .
+Course work ..
+
+- course ,1 group assignment individual presentation.
+
+- icass portfolio of assessment pos .
+
+
+Name of lecture.
+- learning program .
+Subject 
+- level 
+- class group .
+* Administration of students portfolio teaching / lecturing information 
+* Name of lecture .
+* Sace registration number:
+
+* Teaching / lecture experience :
+* Workplace experience :
+Lecture appointment date .
+- lecture duty,, lecture assessor lecture declaration compilation of icass portfolio of assessment 
+- hereby declare that I have icass  portfolio administrator filed accordance policie ..
+_ statement record MarkSheet assessment..nated ncv 
+Grand total years academy 
+* Sace registration: educator name school 
+* Form ..
+*___
+*Learning management system acceptance factor for technical and vocational .
+- design work base methodology research ; criteria requirements ||yes| no|-
+- lms tvet institution  discovery important factor can help improve acceptance of lms .. motivation 
+- quality information saqa framework insurance.
+Lms stakeholders  assures online tvet teaching effective .
+- lms integrity with activity it lecture ability generator keep track student progress .
+- lms  years internet phenomenal created wold population lms  blackbord , Schoology , Google classroom according to study conducted .
+* Management syy solution ..lms learner transfer ..learner psychomotor.
+Lms system underlying..
+* Lms : development of education technology made online base course students retriever learner made available by lecture web browser b.system  system facility b that control learning .
+* Content tools  maximum delivery . 
+*  Lecture and students .
+**Student deal problem identification component or system ,students improved amphazie tvet .
+" Technology acceptance model user research to determine  measure technology based ..
+* Acceptance of information system has been tested  vary level of experience and system , accepted information technology b user have awareness bof and information description b.
+* Lms have positive perception . litterateur approach b factor infli  booleans operation .
+Lms : adaptation learning base effective . satisfaction  infot . validation accepted item  results bwhich show b..
+- item need evaluation accepted commented expert  rejected ,sq 10 
+-Adoption of the electronics portfolio management system in tvet corporation diplomatic . certificate: ..
+
+* System remaining low because is rejected  need effective framework  factor influence  positive performance 
+* Outcome based educare : methode students learning learning process , optimized curriculum planing process course goak ..
+- value  system hardware software methode communication data resource work collection .
+
+* Data analysis : after collected survey where processes  descripted were performed b.. academy using 
+* Reliability : 
+* Assessment of normality and Commons methode bias
+* Results : obtained  profile of demographics variance explained 
+* Theoretical contribution : 
+* Practical contribution :
+Limitetioj 
+_____&&&&&
+* Watch  video on theory of learning :
+* The nature of knowledge and implications of teaching 
+- scenario 
+- theory research best practice teacher 
+- epistemology theory of learning .
+- wath is epistemology 
+* Objective :
+Conginitivitui conney ..
+The nature of knowledge changing, knowledge is commodity ,nature 
+Academy knowledge 
+- academy knowledge of author form ..
+" Summary 
+- methode of teaching campusr focused 
+- scenario lecture figth the system .
+- five  perspective of teaching.
+- the origine of classroom  design.
+- transmission lecture learning by listening .
+Definition 
+The originals of lecture 
+- there technology b make relevant b
+- does news technology make lecture relevant band role for lecture in digital age 
+- why lecture still main form education.
+* Interaction lecture seminar tutorial learning by talking .
+* Learning doing 
+* Core design principles 
+* Experience design modejd
+,* experience learning in online environment .
+Strength and weaknesses of experience learning models .
+Learning by doing apprenticeship b
+- the importance of apprenticeship as teaching methods .
+- key features of apprenticeship 
+. learning nurturing social reforms modej teacher b
+- Addie's model
+- online collaborating learning : core prince inquiries.
+,g competency based learning b: wath how  design 
+- community of practice .theory behind community ..
+***** 
+* Problems statement tvet .
+Purpose studies
+.- theoretical framework.
+Method approach vs  research design .
+-
+
+Litterateur review vs  work integrated bvs workplace learning vs problem bases learning vs experience learning ..
+-theoretical vs industrial placement vs placement experience vs skill vs theory vs classroom teaching vs practice b,, 
+- data generator 
+
+-work place in industrial vs teaching experience in tvet vs company vs money..
+*Data presenting pedagogy knowledge vs using machine bvs cvs vs engineering b learning skill subjects b computer vs methodology reflecting 
+* Job purpose
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 24, 2025, 6:50 PM (8 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+* lecture eskom city power.
+Job title: trade assistant job grade task 4 ..
+Job report to team leader 
+Job preparation .
+- demarcating of work place cleaning.
+- assist in the authority erection of sco
+- comply to safety health environment .
+- identify hazard condition and fault equipment that impact overall 
+- nqf 2 equivalent ..
+- senior management ,profy qualification,skilled ,total ,male  , senior ..
+- report city power integrated report .
+- reward policy ...
+- tendered , data ,pricing ,firm , agreement contract data ..form of acceptance,formal contract , invitation, declaration for procurement above R100000, preference claim bid , valid tax clearance certificate ..
+* Technicial schedule .
+* Electrical for Qos inputs ,
+* Power supply per clause :
+* Supply protection requirements per clause 
+* Test free fall transport package .
+* Manufacture of current transformer .
+* Manufacture type designated 
+
+* Ambient air temperature ,c - 10to 4 ..
+* Altitude m 1800
+* Average humidity 
+* Level of population very heavy st..
+* Indoor or outdoor user indoor .
+* Nominal  r.m.s voltage ( un ) kv 6,6 / 11 .number phase 3
+Frequencies : 50 hz 
+- basic insulation level 75 / 95.
+- dry type current .
+- core  yes/ no 
+- material copper .
+: diameter mm
+Mm. 
+Quality assurance :
+- class accuracy  reactive .light communication optic  
+Number led kwh ..
+Load profile recording comply : 
+- programmable demand  measure kv ..
+- energy measurements data retention kvar/ kwh ..
+- data extraction comply : 
+- does meter provide  for minimum time .
+- requirements , 
+" Marking and packing 
+
+iKon* manufacture ,relate voltage ,rated amperage 1-20 
+* Installation operation and maintaining decommissioning and disposal phase requirements for environment management system b..
+* Clamp cab size 75-100 single ..
+* Manufacture.
+- does the design comply ,do the thread rod length comply ...
+
+___________________&
+Mil std 462D department of defense for control of electromagnetic interference characters of subsystem.
+- purpose :
+- application:
+- general applicability:
+- structure:
+- emissions and susceptible designation.
+- applicable  document .
+- government document drawing and publication .
+- metric units 
+- non development item .
+- safety critical .
+- test setup ..
+- joint  procurement .
+Filtering ,non government,
+
+
+  switching transient, verification requirements measurements tolerance ,
+- shielded enclosure b,
+- radio absorber material,
+- composite ground plane 
+- power source impedance ..overload ,rf hazard ,test configure b, safety ,interconnecting  leads cable ,
+- electrical mechanotechnic interface 
+- operation bEut 
+- operating frequence turn , measure b,dectorv,
+- computer controlled  
+- emission testing b.
+- bandwirh 
+* Calibration of measuring equipment ..
+* Measurement system test ..
+* Antenna factor .
+* Emincontrok requirements versus intended installation .
+- emissions and susceptible vreq
+- conducted emissions power leads 10khz to 10mhz ..
+- applicability .,limits ,test procedure ,test  data presentation ,conducted antena 
+* Transmit mode for transmission and amplifier ..
+* Conducted emissions on power leads shall not exceed applicable . Include lind aircraft .
+* This test  equipment shall , measure receivers ,currents probes ,sinal generator ,data recording device , oscilloscope ,resistor ,lisn ,setup test setup shall , maintaining  a basic. Test  , removed replaced ,
+* Calibration configure the test setup for measure system check .
+
+* Non conductive ,1,5 meters  ground , 59 termination or 50 input of measuring to power source signal output port : 52 k ,59 h , 
+Frequence ohm ,tolerance + 29% ..
+* Design methode ..
+
+Experimental measuring the band of semie conductor  voltage ,field magnetic b
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 25, 2025, 6:50 PM (7 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+* ./. Design work base methodology | criteria requirements.
+* Experience 8 measuring the band gap .of of a semiconductor.
+* Experimental ,measuring the induction voltage in a conductor loop moving within a magnetic field.
+* Experimental 4 analysing the thermodynamics cycle of heat pump using the moilker diagram...
+* Warning ,TT undefined .
+* Experimental set up 
+Power electronics .. DC/DC ..
+* 
+Experimental diagramm , results table , primary 
+* Company:
+- experimental name : verification of the transformations.ratio of the transformer .
+- single - phase power supply 230v and 50 hz ,
+- regulating transformer auto ,0-259 .
+- 2 ammeters range ( 1-10A.
+2 voltmeter ranger ( 0-500v) .
+2 wattmeter ..
+* Training system for electrical power engineering .advance..
+The transition energy industrial ..
+* ____&&&__________&&
+* Lecture have different perception of effect of internal continuously..
+- drawing from an interpy constructivist so
+* Research ext lecture and learning experience brole subject  lesson plans  are drawn  teaching learn processs  computer practice lecture  module assessment plan  indaxtire activity:
+* Monitoring effective  of teaching b 
+* Schedule v is time table  module will be assessment task to be administered  and mark  allocatiob t.
+
+* Pre assessment lecture are reqy  subject expert mark tash  process ,
+* Computer practice module lecture experience of assessing tvet  lecture , 
+
+
+* Student fail to complete  to complete programme  pratique training portfolio band logbook  , inadequate college show limitations and lack of exper ..
+*Assessment 
+* Lecture experience time constraints barrier for assessment v computer , executive internal marking : 
+* Time allocated for teaching and assessment should ensured  curriculum coverage tasked planing  implemented v..
+* Electrical trade practical sector  2 years nqf : 
+____________________________
+
+St peace college 
+* Reference:
+PG 1-46
+
+* Course engineering and technicial vocational lesson textbook.
+Education technicial and technology : course topic core : elementair, intermediate, fundamental ,phase senior teacher note ..
+Subject technicial engineering completed ../ 2023
+*Textbook engineering subject and technicial lesson 
+* Manuel guideline curriculum theory trade .children pre - engineering orientation b.
+- guideline instrucy engineering 
+2.abstract : 
+- 3.focus preparation service operational mentoring career : 
+3.1. national frane nqf n requirements career children care mentor psychosocial children ..
+- module books  designing : 1,2,3,4,6,6,8,9,10
+Module 1 : safety security policy engineering and re - engineering.
+- module 2 : tools hand engineering hand care assessment rubric formative summative  grade and phase .
+-module 3 : material conductor instructor engineering care learner and teacher .
+- module 4: field  engineering assessment moderation engineering.
+- module 5 : method instrumental didactic method measure engineering analysis analysis assignment control .
+
+- module : generator memories grade and phase engineering learning module transmission b..
+- pre requirements attand..
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 26, 2025, 5:49 PM (6 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+Reference:  
+Company experience workplace theory practical 
+
+Eaton .. design guide SA081002EN
+* Power distribution system :
+* Drawing notes: touch screens , Ethernet gate way to meter to transfo measure 
+* Generator protection .
+* Typical protection relaying for smKl generator ,,to
+* Typical component of power system , generator  : self balancing generator differential .
+* Typical application by facility type : small health facilities electrical system , single transfer switch 
+* Economic factors : typical distribution and riser diagram for commercial office building 
+* Sparing transformer system 
+* Power system analysis: breakers on symmetrical current rating basic  fault find : check capabilities , x ,r x/ r , line ground fault 
+* Maintenance and testing : typical on line paralling switchgear line up feeding the essential electrical system : other application .. optional remote PC with software touch screen  revenue metering to  switch gears 
+Reference data code standards , IEEE design letter ,ama city for conductor rated 2000V 
+* Protective relay element symbol 
+
+* Drawing notes key interlock scheme in lv switchgear 
+* Distribution equipment downstream 
+* Power system : fault calculation : 1/x= 
+* Ups types system : static conversion ,normal mode
+* Frequence hz acceleration 
+- design response  seism demand.
+Switch gear design ..
+The goal : power system with built real time analysis : design machine learning algorithm : ...-
+* Design ds : design document : construction  contract  project contract award  stage  design mechanotechnic plumbing b,correct breaker plumber.
+- correct cable  size large load ,oftentimebr*
+* Requirements : electronics  bid ..
+* Design engineering diesel partsble bank , breakers  can not close if s1 open 
+* Drawing notes key interlock , main switch ,bus ,85A,489/277v,4000A,3ph,4w breaker rating 
+- ups connection  DC ac running batteries Eaton ..
+________________________
+Reference 
+Mathematics for computer science b: revised
+Laboratory , technology Massachusetts b..
+Department bof electrical engineering and science computer and artificial intelligence ..
+* Content : wath is proof , proposition ,predicate ,axiomatic , vs proving implications vs proof by cases ,provf ..
+- the well ordering proof ,factoring intu primes ,logic formula 
+- proposition logic in computer program , equivalent and validity , algebraic , predicate formula , sequence, function, binary relation  finite ..
+- ordinary induction ,strong inducy ,state machine b machine b, state and transition ,the invariant principle ,partial correct ..
+Partial correctness recursive definition and structural induction .
+- strings ..non egative integers ,games 
+- induction in computer science .
+- infinite sets .
+Invite cardinaliy ,halting problem ,the logic set ,does 
+- prime mysteries ,
+Fundamental theorem arithmetic ,
+- modular arithmetic ,remainder arithmetic ,
+- turning code ,multiple inverse ,Euler 
+- Rsa public key encryption ..
+Whath has sat got to with ..
+- direct graph partiaj vertex ,adjence matrix ..linear order ,product order , equivalent relation ..
+* Communication between network,routing ,routing measure , network design simple graph ,vertex adjecent ,sexual demographics , isomorphism , statics bcoloring planner ,classifying polythedra 
+* Counter : 
+Sum asympy ,value, sequence repetitive b, combination 
+* Probability : event , birthday ,
+- random variable , distribution linearity deviation b, 
+Proposition statement b,o'clock ,game  integer .claim  non negative integer ..
+_ claim fault claim  easier x,y,z satisfy 
+Complex computer program b, calculation correct check colorativivity
+- case of CPU chip  manufacture  notorious past mistake methode verification program and system research .. predicate ,,perfect square  tru or false..predica become true ..
+* The axiomatic methode , proof is sequence b,justify..
+P implies if O then A call implications , quadratic formula if ax 2cbxccD o and then b- 2 ,4ac = 2a   proving reprhasing  if is even integer great her than ,2 n is sume two primes if 0 x, 2 the 3x 4xc2> 0  couple ..
+Proof theory , if 0 - 2 then 3x - 4x c2,scratch work ,claim
+
+
+- statement of contradiction n
+Case problt 
+Generality of problem staty..
+_______&&&&&
+* Industrial electrician :
+* Essential skill inventory assessment guide .
+- essential skill 
+- technicial reading .
+- numeracy 
+- oral communication 
+- computer use ,writing 
+- essential skill answer key 
+- techno ...
+Trade essential project research resource skill ..tools
+* Wath percentage of electricians are employee in manufacture and industrial education .
+* As electrician how does your average annual salary compare to other occupational..
+" Unite measure ..physic.  ...
+
+* From diagram .
+* What is whilk happened if the component in series circuit fail ..
+- how many 69w bulbs can you put on circuit , amperage ,,
+
+* Code answer .
+- what types of circuit can smoke alarm installation .
+- what are the exception .wath is wiring methode for smoke alarm ..
+- installation of smoke alarm device..shall be supplier b mix light ..rules installation prohibition by rule ,where circuit protect ,means  interconnecyin 
+* Individual  technicial skill plan ..
+- time line .mid ..
+* Occupational skill ,block
+____&&_&
+Reference: basic electricity continuing education professional development course ..
+* Technicial learning college 
+* Basic term .
+* Section electricity introduction :energy foundation ,joules , how electricity is generated ,electrical transmission .
+Post quiz
+* Forms of electricity : static magnetic electricity electromagnetic electric charge ..
+- electrical principle introduction : electrical power distribution ,electronic introduction b,electrical principle application b..
+- hydraulic analogy principle : hydraulic component , 
+* Classical mechanic : potential difference ,power resistance power current ,ac DC ,alternative..
+- circuit coil and capacity .
+- transformer : efficiency triangle ,wy delta polyphase , single phase connecting loads phasor ,power factor ,single phase transformer identify circuit interrupter b..
+* Electrical motor : motor lubrication ,electrical motor induction
+..basic home electricity ..
+_&&&&&&&&
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 26, 2025, 9:12 PM (6 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- engineering : is the 
+Wikipedia  PG 1- 10
+Engineering discipline skill professional and applying scientific , economic , social and practical knowledge in order to design and build structure machine device system material and process , American engineering council ,abet ,the creative application of scientific principle to design ord development structure machine apparatuse .....
+* Contents : 
+- history :
+- ancient ara ,: pharaob 
+ Renaissance era 
+,moder era ,
+- main branches of engineering..
+Methodology .
+- problem solving .
+- computer use ..
+* Social context .
+- relationship with other discipline .
+- science .
+- medicine and biology .
+- art 
+______________
+*Further education and training, saqa  . certification electrical engineering: 
+Saqa I'd :
+_______&&
+Reference Wikipedia 
+1-60 system 
+- intro to civil environment engineering :
+- background : responsible  treatment sustainable  student mentoring ..
+
+* Survey and site development : lecture topics : 
+
+- introduction .
+- measure 
+
+- measure .. topological .
+* Geographic information system : introduction to global positioning 
+- history civil discipline 
+Civil engineering discipline and educare 
+- education 
+- practicing engineering 
+- sub discipline, construction, earthquake engineering , forensic engineering, geotechnical engineering,material science , survey , transportation, municipal or urban engineering ,water resources ,civil engineering ..
+--+++-
+__________
+Engineering drawing textbook practice 
+Defense ...
+______________
+Electrical engineering course :
+- introduction.
+- the single phase 
+Reminder on description of sinusoidal , introduction 
+Study balanced .
+- single phase transformer ,reak transfi ,DC machine , engineering operation ,creation field ,synchronouse machine , asynchronous rotating ...
+_________
+Department health  examination .
+Health electrical mechanotechnic engineering certificate competence : 
+Introduction b, acceptance 
+
+- exemption :
+- summarise procedure : 
+- mines certificate : 
+- acceptable trade and experience :
+..trade in the apprenticeship has served | minimum appropriate post apprenticeship experience general maintenance b
+
+- trade : electrician ,armature winder || 2 years  : general electrical maintenance >
+- n diploma 
+* Syllabus plant engineering : theoretically ..
+- safety manager 
+- electrical technology..applied thermodynamics..
+-structutesand strength material .
+- theory machine 
+
+*Practical knowledge..: 
+
+- planing and commissioning of project operating planned maintenance,
+- testing repaired  motor phasing synchronism  motor operation fault discrimination..
+__&&&&& .
+St peace college 1_50pg 
+
+syllabus health safety act mining , section minister power , general provider regularly 
+____________
+
+*Reference .
+St peace college 
+- mil - std 1285D.
+
+Fsc ,fuses fuse holder , lightning arresters , electrostatic dischars and telephone protectors ..
+* D1 scope : 
+-  requirements military electronics design ..
+- applicable document .
+- general requirements b:
+- functional marking .
+- terminal identify : acquisition document light arrest ,line ,load ind icator,
+- part identify marking : 
+- other functional marking : electrical circuit diagram ,cautionary marking marks , assembly b ..
+* Identify number :
+- manufacture source code name of trademark ,
+- current rating  when applicable .
+- date code when applicable .
+- other rating and marking  when applicable b.
+
+_________&&
+PG mil std - 13231..
+Note  indede user issuer of dodiss 
+Marking for shipment.
+- seriaj number .
+- air transportation item .
+- reprocurement : 
+- permanency and legibility btesr .
+- subject term listing .
+* Name and caurinbplate .
+Cautious b.
+- priority of identification information on parts assembly b.
+- marking 
+-------
+
+Mil std ,1000; 
+Design bactivity  tank automotive command werrentsymbiotic ,gage code
+
+ drawing format size letter ,drawing ubering  duplication of assignments system be based.
+Responsible transfered ..
+- item pin . requirements, interchange ,reparablf , meeting requirements b.maintening design bredras original bactivity v
+- contractor manufacture ,commender defense service logistics center  batlr ,total length 
+
+________
+Mil 
+
+Introduction to system eny management 
+- system engineering management in dod acquisition.
+- the system engineering process .
+- requirements analysis :
+- functional analysis and allocation.
+Design synthesis .
+- verification :.system engineering utput ,:
+* System analy and control ,..
+Work down  structural 
+- configure manay.
+Technicial and audit
+Trade studies .
+Metric
+Rush.* Planning organizing and managing 
+- system engineering planing  
+- product improvement b
+- organizing  and integrating system .
+- contrsider..
+
+__________
+* System engineering fundamental ::
+- general.
+Application.reference document 
+Description.facikity ground system.
+- ground and power distribution system .
+- electrical noise communication 
+- bonding ,shield grounded relation ,safety practice 
+- earthing electrode subsystem ..
+- light discharge .
+Fault protection b sut summary v,resistance reauirebrb 
+,- soik measure one electrode terminaj methode , water pipe ,resistance property .
+__&&&&_&&&&&&&
+Mil std 1323 ..
+Scope ..
+- application .
+
+- general .. government 
+-; specifications v, document government and non goveyv.
+- assembly .
+- commercial and government entilr gage ..
+- commercial cots .
+- container ,decalcomonis
+- design activity,
+- function marking .
+- join electronics type design .
+- manufacture  identify b
+- nati supplier code for manufacture 
+- order  ,
+- party identify b number pin 
+- procuy instrument 
+- sets 
+- selected item drawn 
+- sequence of marking. .- general , nomenclature ,join electronics design ,army nomenclature 
+Inspector stank .
+- special character ,
+- contractor and government entity cage .
+- identify bmarker equipment .
+Uniquely .
+- limited .- used pack .bag 
+- reference designated government v.
+Reference 
+- derayj .
+- type number manufacture 
+- electron tube 
+- electrician electron parts and printed wiring board,name plate ,soecificatitn
+- I'd contev 
+- marking battery circuit .
+- warning label .
+- high voltage notice 
+- radioacty material 
+- non ionizing  radiation .
+- technicial litery
+...
+
+	
+	
+ 
+ 
+
+* unified facilitate guide specifications .
+Part 1.General .
+- reference..
+- definition:
+- submittals:
+- quality assurance:
+- installation drawings :
+- standard product 
+- alternative qualification 
+- alternative qualification 
+- material and equipment .
+- material and equipment manufacturers data .
+Warrenty 
+* * System description:
+- selection criteria.
+- powers meters .
+
+- voltage requirements :
+- current requirements.
+- electrical measurements.
+-meter accuracy:
+- an on the meter display output and reading capabilities.
+- installation methods .
+- disconnecting switches :
+- meter programming :
+- communication :
+- communication methods .
+- optical port : 
+- serial port : 
+- Ethernet : 
+- communication protocols and methods 
+- communication channels surge protection : 
+* Meter data protocol :
+* Open protocol 
+* Transformer mounted  meter system schedule ,base ..
+Milliamps signals, outcome 0-1 mA or 4-29mA,, alarm outputs for alarm control 
+
+* Submittal '::
+*_________________
+Reference: 
+Support: 
+Product system support process:
+-organisational level support :
+- intermediate level 
+- depot level support : 
+- product system disposable :
+- analysis of the .
+- kills and competence : 
+Engineering competence : 
+Aligning engineering 
+- ORGANISATION engineering activity sandf : 
+
+- technicial service role :
+- integral .
+- identification of the core competencies of the sandf .
+ - approach to structural 
+- approach to tech :
+- introduction :
+Vision , mission , objective 
+- acquisition: 
+Overview 
+- the engineering professional : 
+-; system engineering activity .
+- the operational and support life cycle phase of product system 
+
+-- introduction to the manage expertise ,process competence,competence integration ,culture , ORGANISATION learning, he manages project b.
+- project stakeholder :
+- description..
+- ORGANISATION transforme .
++Strategic analysis ,:
+- competitive advantage :
+Knowledge expertise  skills 
+- competence 
+- competence process .
+- competence process , competence integration , competence , 
+- organisation learning ,
+Management project ,project stakeholder 
+- description of programme and project management 
+- contracts and agreement .
+- project team :
+-roles in project :
+- project life cycle : 
+- undertaking where project is appropriate v;
+- value system and value chain overview :
+Value system .
+- the product life cycle  and vLue :
+- organisation transformer : 
+- analysis strategic sandf 
+- ORGANISATION 
+- competence area .
+- introduction to key succes factor :
+- key success factors :
+- environment organisation 
+- five force analysis 
+- competitor and product portfolio analysis 
+- client analysis and market .
+- environment dynamic 
+- finding analysis key success 
+* Statement of problem :
+- rsa defense vision 
+- constitutional aspect 
+- defence white papper .
+* _rsa army engineering schools v, original ,insigns , previous , curriculum ,phase engineering ,combat engineering 
+* Training basic of militaire engineering 
+Mine warfare, basic field engineering ,user power tools. , obstacle and defensive ..watermanship ,bridge building, demolition, 
+* 2 phase military engineering training specialization 
+* Engineering regiment during operation ..
+* ____
+* Military science career 
+Bachelor of militaire science real life  faculty skikk defense force .
+*Subject:
+Degree what you 
+Career 
+- organisation and resource manage : the minimum sandf requirements ,,technology
+____________________________
+Security information,/ management system information security v: 
+*Description:
+* History and development .
+- secure network programming 
+- SSL 1.0,2.0 and 3.0
+-TLS 1.0
+TLS 1.2...TLS..
+* Digital certificate :
+- certificate authorities .
+- algorithm .
+- key exchange or key agreement .
+4.3 data integrity .
+- application and adoption 
+- websites.
+- web browsers.
+- libraries.
+- other uses .
+* Security : 
+SSL..2.0
+Ssl3.0
+
+* Attacks against TLS /SSL
+* Renegotiation attack.
+- downgrade attack : freak attack  logiam attack .
+- cross - protocol attack drown .
+- beast attack .
+- crime and breach attacks 
+- timing attacks on padding 
+- poodle attack : 
+- RC4 
+.turncarion attack .
+- unhology pack attack 
+- sweet32 attack .
+- implications errors : hearthbleed bug , berserk ,attack 
+Cloudfare bug .
+- survey of website vulnerable to attacks .
+* Forward secrecy .
+- dealing with man - in - middle attacks .
+- certificate pinning .
+- perspective project 
+- DNS chain 
+* Protocol details :
+- handshake 
+- basic TLS handshake.
+- client - authenticated TLS handshake .
+- session IDs
+- session tickers .
+- TLS recird...
+______________________
+- reference security 
+- introduction :
+- background to the study:
+- research aims :
+- limitations of the study :::
+- research form approach
+- summary 
+* Information security policy standard practice :
+- introduction :
+- five pillars of information security 
+- identification and authentication 
+Authorization, confidential,integrity,non repudiation,
+* Information security from business , information protection: 
+It security b standard v
+- is 
+- common criteria :
+- other development :
+- summary 
+* Compliance issues reported on the global territory .
+Introduction : 
+- critical success security v
+
+- global information security survey research : 
+- information security breaches survey b.
+Online survey security immaturity: 
+- computer science corporation 
+Compliance ccma labour security 
+- cybercrime telecon network :
+- comparing other development countries different 
+- diffence and specifications b
+- Ed culture 
+* Research methodology b: 
+Introduction b.
+- technicial for data collection b,highft response ,flexible , identify ,faster approach process.
+* Sample design probably 
+Size calculation b hypothesis b
+- testing conformance to security standard .
+- testing presence and application security v policies . testing compliance 
+- testing measure practice of security kpid ..
+-;testing between characters implemented practice b...
+-; hypothesis testing 
+- nonparametric test 
+- statiscal test ..
+Response 
+- analyse of responsibility .
+- analysis of information security practices perpecub..
+* Reason security strike policy balanced protection core resource learning , court  dataprocess .
+
+
+
+
+
+...
+
+	
+	
+ 
+
+- 
+.. handshake protocol,alert,changed ,primary 
+Code | level type | connection stare
+- warning | connection or security may be unstable .
+- fatak | connection or security may be compromised or an unrecoverable error has occured .
+_ close notify | warning fatak || notes
+- unexpected message | Fatah | 
+- bad record Mac | fatal|| possibly a bad ssl implemented pay load had temped fto fire walk rule ftos server
+- decryption failed ||| fatal || TLS only reserved 
+Record overflow || fatak || TLS only reserved 
+- decompress failure || fatak 
+,- hand shaj fatal  
+- no certificates / warning / fatal ssl 3.0 reserved up
+
+
+reference: 
+
+
+
+User guide intelligence fencing system .
+- introduction : high voltage sensor fence awk ...
+Circuit guideline: 
+- points remember : sensor determine if a drop voltage fence requirements maii voltage falls set point value yellow indicator light up  voltmer  to DC put is probe  points pads vr1  ..
+- led indicator : 
+Source ,7 volts 
+- vr1: point value factory preser at 2.5 v .
+Vr3 user adjuster ni volt alarm factor
+Device wiring to fencr ,siren piezo sounded battery 12 v, relay 12 v , ground
+* Suggested latching relay diagram , maintenance .
+- installing the fence ..
+- connection from the rg - 7782- security panel   alarm security b, battery connection ...
+* Multi wire fence ,
+- enclosed area ,, charge wire , insulation,return ,feed , ground rod , high voltage ground rod 
+*Intelligence 1 years limited warenty purchase ....
+Repair replace ..
+Safety integrated labour CCTV 
+* Perimeter fence good .
+*Consumer electronics : security alarm , networking 
+* Overview : druip 18 is powerful version of drud 15 LCD  out joule 500 load intelli is ideaj serie fensr 
+* Feature : LCD , display , background vcolour LCD display , druip , quick walk test mode .
+- high voltage monitor on note sysfeb ,earth wire monitor alarm there is temper , easy use tag switch for control the unit if the keypad option .
+- connectable to an armed  response radio .
+- gate monitor 
+- lightning and power surge suppression built in .
+- internal battery backuo system in case failure b..
+* Specification :
+- high voltage output : typical energy 500ohn load joule , voltage 9009 v ,alarb  number zone 2,number earth zone 2 ,, resucit,yes
+- energy contrin and display : keypad for remote contrin energy 2 max tag switch to control the energetic without ,yes ,remote,on / off input ,yes displacement the outputs return voltage yes 
+- gate and panic button input .
+- timed gate switch input ,used to monitor open and closing of the gate yex .
+- panic button input yes.
+- alarm output : siren output ,time programmable yes .
+- strobe light output to visual indicate  an alarm condition .
+- power supply and battery backup system .: mains supply voltage : 239.
+- typical power consumption under normal operating condition ,18VA.
+- internak battery backup system in case of power failure capacity of batteries :7ah
+- typiy standby time with fully charge battery ,24 hours .
+- solar powered panej can connected power energy b.,60watts .
+- solar voltage regulator deep cycle battery size ,5 amo ,
+- recommended in amon hour ,29 % discht ..
+- wire length per energy live wire in series system both .
+- galvanized wire ,1,2mm optimal performance maximum 8 km .. stainless wire steel ,1.0 mm  grade .optimsj ,0,7 km ,max 1:km ,,to 19 km...
+_______________&&________________
+* Fundamental of electrical engineering : license b
+- introduction :
+Signal rpresent  ,analog ,digital , structural communication systems :,. fundamental signal , 
+- community information  signal ..- signals and systems : complex number , calculation bcomolex..
+* Circuit with capacitor inductor ,impedance ,time frequencies ,power in the frequency 
+- equivalent circuit b,
+- transfer function :
+- design transfer function : 
+- formal circuit  node .
+- node method .
+- power conservation circuit b, electronics b,operational amplifier b,invented amplified ,active filter , 
+- intuitive way of solving ,op - amo 
+- the diode ,andlog signal prices processing .
+- simple circuit analysis ,solving  resistance , superposition ,.- thevenin and mayer ,.- detective work ,bridge circuit b, Cartesian plant .
+- cook curve ...
+- trigonometry identify and complex ..
+- transfer function b..
+- using impedance b
+- measure chais ..
+- simple ,circuit 
+- power transmission .
+- optimal transmission ..
+- optimal power transmission ..
+- sharing chanej ..
+- mystery 
+ - long  and sleepless .
+- a testing ,
+- black box circuit .,analog  hun rejected b.
+- a simple circuit .
+- an interesting and useful ..
+- circuit v analog computer ..
+* Element signal ,sinusoidal ,complex exponential ,unit steo ,square wave ,signal ,discretion time signal ,
+- reak and complex valued signal .
+- complex exponential b.
+- sinusoidal , 
+
+- symbols  value ..
+- cascade interconnection , parallele interconnection .
+- feed  source ,amplifier ,delay ,time reverse ,derivative system and integrator .
+- time  problem 
+- discovery root , 
+* Analog signals processing : voltage ,current , generic , circuit .
+- ideak circuit elements , resistance,caoscititb ,ideak reak word ..
+* Oscillating am radio 1-mhz ,196 mhz ,,
+* Phase  determine ( t= 0 ,l
+* Communication information with signal  modulator career b..
+A=AO(+kT) ,AO and are ..
+Problem ,RMS roots ,+ t)=s(t+T) ..
+- whao period 
+
+Wath is modem ,modulator  demodulator b connecting ocbdigitsj  chsndj  binary  transmission ,1 anscence 9 , 
+-;what is smallest transmission b interval bf ...- classic communication block diagram applied ,,advanced mo
+
+Block  diagram , transmission ,x+t) ..de 
+ASCII , 
+...
+
+[Message clipped]  View entire message
+ 	
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Sun, Jun 8, 4:48 PM
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+-1. Contents : taking a Microsoft office special exam .
+- selecting a certificate path
+- test taking tips
+- certificate benefit.
+- using for a certificate exam
+- working in the Microsoft office fluent user in interface .
+- using the companion.
+- CD contents .
+- minimum system requirements.
+-; minimum system requirements .
+- installing the paratices files .
+- using the practice files .. getting help 
+.
+____$$$___&_____________________
+- using Ms office 200
+Create and format ,doc 
+- template 
+- bordes and background themes .
+- lay out document.
+-page setting head and footer .
+-- properties.
+- table of content 
+- index .
+- bookmarks 
+- cross reference 
+- hyperlink 
+Personality 
+- common setting, research review..]>>
+- formatting content 
+- format text and program character formatting 
+- paragraph formatting 
+- styles
+- quick stylea
+- line break and hyperlink.
+- manipulation text .
+- copying and moving , finding .
+_______
+- working with visual content 
+- insert illustrated 
+- picture 
+- shapes ,
+- smart art diagram 
+- sizing art diagram
+- sizing position 
+- format illustrated 
+- cropping rotating 
+- stacking order 
+- groupe .
+- alignment and district 
+- format text graphics 
+Word art drop 
+----organizIng content 
+- structure conte by 
+- building block organization 
+- customer quick parts 
+- use table and list .
+___________________
+- modifying table 
+- table structure .
+- table formattt
+- text align 
+- calculation 
+- insert and format
+- reference table 
+- merge document 
+- data source .
+- labek source labek envek
+Envelope 
+- ibjecty
+-- objective 
+_________________
+Review document 
+- navigation docuy
+- navigation truc 
+- compare 
+- document version 
+- tracking .
+- insert, modified.
+
+_______________________________
+-sharing and securing content .
+- prepare document for shary
+- file formats .
+- compatibility checker.
+- document inspector 
+- editing and formatting 
+- password 
+- right management 
+- finalizing 
+- attach digital signal 
+____
+* Using Microsoft office 
+Creating and manipulation data .
+- insert data by using autofill
+- filling service 
+- copying data .
+- ensure data integrity.
+- data entry restriction 
+-;input and error message 
+- duplicate rows
+- modify cell content and format 
+- charge worksheet 
+- change work.
+View 
+- zomm levej .
+-programev
+________
+Formating data and content
+- format worksheet .
+- them
+- gridling 
+- worksheet taos 
+Worksheet modify .
+- inserting deleting .
+- creating modify.
+Red data informer 
+- cell ref
+- worksheet ref summarise 
+Summary data using 
+- look up Dara con
+___collBoratting securing 
+- management workbook change ..
+- comment
+- protect and share 
+Password 
+- workbook protect
+Work sharing .
+- permission diitaj signature finalizing save work, companies set print data worksheet print area page work. 
+______ insert modify column ,
+- insert deleting ,format cell and cekk ,built number format ,merge cell formatting 
+- presenting Dara visual ,create and format ,flooring ,layout chart moving chart apply insert illustrar , picture vsmarr shapest 
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Sun, Jun 8, 7:55 PM
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+Using Ms power point .create formatting presentation.
+- creat new present.
+- blank present .
+- template .
+- outline .
+- customize slide .
+Themes .
+- background 
+- add element to slide .
+-:add element to slide .
+- layout .
+- content place holder .
++ Customer element .
+- creating and formatting 
+- text boxes .
+- size and position 
+- shape 
+- basic formatting v
+- working with visit contev 
+________ collaborating delivering presenting 
+- review present .
+- protect present .
+- compression 
+- finalizing 
+- prepare printed 
+Material ..
+____
+Using Ms out look 
+- managing message .
+- create send e mail message 
+- send 
+- replying and formawardind 
+- automated message .
+- message .
+- attachment .
+- saving confu .confirm e mail security 
+- permission .
+_______
+- flags .
+- scheduled delivery 
+- receipt 
+- email view 
+- e mail 
+- reading pane 
+- management 
+- recruiting ..meeting requirements 
+- task management accepted decline assignment update ..
+
+- managing contact personality creat modified .
+- organization information .
+______ using Microsoft .
+- structures data base 
+- define do data type 
++ Table analyse 
+- creating data ..input mask validation.
+
+	
+ 
+
+- networking academy.
+-;lab how connected .:
+- objective : survey 3 ,4 parade each 
+- background source :
+- requirements resource:.- stept 1 create a spread sheet similar to the the one ..
+
+- hour 
+Person | age 43| gender | device | task | time in|™
+-; summarise find 
+- average , amount btime spend connected interview .
+- gender ..
+- information way business address..
+
+___________
+Lab : introduction to Arduino 
+Object : 
+Part 1 : installing the Arduino ide software 
+-:part 2 using the Arduino .
+- background to control hardware lab learn .
+- requirements resource : Arduino res boos .as cable for connection .I led 
+Name is . publish ..
+- device manager 
+- portable .
+- local pin 13 pin ground Gnd ,run sample code ..
+- run simple code launch Arduino to used ..
+- ______lab basic python 
+Programming :
+- objective .
+- part 1 : launch virtual .
+- box enter 13 IOT 
+- server vm 
+- part 2 : python box .
+- part 3 IDLE for Putin .
+- background : puton .. scenario in this lab  learning basic python programming soecificaj module v.
+- reauire resource : 
+- a modern personal computer with internet access and rom ..
+- virtual box with 1120T server installer ..
+- part 1 launch virtual software virtual .12IOT server step box 
+-lab IOT related job and learning  opportunity.
+- objective : purpose lab learning.
+-;part 1 : identify true iot related.
+- part : research available description .
+- part 2 .
+- background scenario .
+- requirements resource.
+- req : web browser to research job current available internet of things .
+- identify doc job design 
+- determine ..- explore learning opportunity google b.
+- compilation a dabase of IOT related job and learning work .classmatt req ..
+- reflection are  3 pattern ..
+________
+Lab using excell to forecast 
+- objective .
+- input data into a spreadsheet 
+- background scenario .
+A way predicting value future base ..
+- requirements options go .
+- input data Ms excell 
+-data | 
+- b : perform calculation .
+> >>1+2
+3
+>>>2*4
+8
+>>>6/2
+3.9
+C)
+Print text string 
+>>>" How are you ..
+C ) use the type ( ) command ..to ..
+
+
+Lab : research intent based network ibn .
+- objective :
+Part explore the Cusco intent based ibn ..explore ibn community..
+Background scenario network scenario network connect adapt protecnorify base platform capture ..
+- requirements .
+- explore Cusco intent step .
+- part introduction : .step ,wath steo started make intent wish .create intent 
+
+	
+
+- requisition for procurement:
+| Requirements number | date receiver
+Department it | project code|™ estimate cost : 500000009,budget funding source ,, approved 
+-: description good or service | unit | approx cost unit | approx total cost 
+- remote 
+- tv
+- office 365 power point wireless presenting pointer 
+Computer machine PC lap top ,charger libraries hand book office digital 
+System info 
+______
+Submission:
+-enquired
+- author :learner 
+Position -data ..
+______
+Document attached route for
+- quotation..
+1.purpose : procure screen wireless ..
+2 .project / prograbb background : it department ,ICT ..
+3. Analysis main consideration 
+
+- financial implications : 
+Item | quantity | estimate cost 
+Recommend amedes ..
+Reward award ...
+
+______________
+Education library workshop panel 
+Time table lab 
+Research cost reward file studen portfolio cost buyer saling research .
+Education industrial lab learning.
+
+	
+ 
+
+Purpose:Research material didactics...
+Didactic learner psycho skill...
+
+ base theory frawork theory practical info management system... Policy . safety,security mil ...
+Civil low research : info computer network..communication policy vs policy arkhase radio fix ...
+It intelligence system dod vs dod communication report ..modem policy vs model regulation mil policy enforcement low ... regulation justice mil correction policy voice router stand by interceptor module rada system....
+
+	
+ 
+
+- completion module : 
+Magazine research ..news paper ..career path library 
+
+
+-client oqnent development:
+- structural engineer:
+- quantity surveyor:
+- project manager:
+- steewoek contractor and .
+- structural steel detail .
+- metal roofing and deck .
+- bank desk installation.
+- roofing and closing .
+- steel work .
+-load 2.0kpa
+- max : 500kg .., 60%
+- 15m.
+- load ..
+_________________
+In the consulting engineering business .
+- overview :
+- engineering industrial .
+- architecture scientist.
+- depending .
+- skill group.
+- client control of project schedule.
+-: introduction: work service .
+-:project is definitely .
+- project.
+- project report.
+-project successful rate infrastructure..
+
+* ORGANISATION:
+- technical manager professional 
+- practice theory.
+-Domain project technical.leader meeting.
+- design concipitean .
+- complerin design.
+* Project manager: 
+- project manager professional responsible successful planning design executive time budget project .
+- project oversee
+- effect of dual management function.
+- ensure effective control of project schedule culture technical.
+- client engineering 
+- decision making .
+- superiority conflict 
+- team attrition.
+-afforalability .
+- Holo effect .
+* Dual - management function impact assessment 
+- project scope time cost quality.
+- important scale range it set from very was selected nior and junior management rated any .. project .
+- strongly impact project function experience on days to day basic on projects 
+_____________.
+- arch PC tow.
+- introduction.
+Project team:
+- client .
+- property.
+-; development 
+-architecture.
+
+- and facade .
+- structure.
+- construction.
+- steel fabrication.
+-; fabrication faced.
+R1,5 billion project .
+-;450000m2 office , 3500 employee 
+- concrete fromee
+. structure ,closekwize ..
+________________
+- engineering civil:
+Land mark pwc town.
+- from
+- on the cover
+- profile
+- joint structural division 
+- structural engineer 
+_______________________________&__
+- reason term piling design [ reduces |
+- tab : driven cast in situ versus pilling from contract award 
+-pilling design .
+-client site temporarily 
+-:pilling work 500 m day
+- client site client up piling .
+- client site 
+- client pile head trimming handover half piling .
+- client completed pile .
+- ref piling .
+- client :150 m day .
+- trm site clean up ( n/ a.
+- client start pile cops week 5-1.
+- client short completed pile..
+
+_________
+1|2|3|4|5|6|7|8|9|10|22|12|13|14|15|
+Weekend 
+
+
+- structural division:
+- verification and ecsa ,iso 90000
+- structural engineering competence.
+| Outcome.         | Assessment criteria 
+-communication environment| proof bodies 
+|Produce viable |
+|Scope of design 
+Toking stability 
+Durability 
+Determine 
+Document 
+Form and size
+Special 
+__________
+Legislation government 
+- procurement 
+- quality assurance 
+- brie accord
+- two different development 
+- implications 
+- structural using 
+- compliance criterion 
+- general arrangements section and elevation connect 
+- connect 
+- properties primary concret 
+- testing procedure 
+- storage and handing 
+- basic construction 
+- construction..
+________________&&&&
+- timber engineering research 
+- reduction import load .
+0,5 kn / m present of 0,25 kn/ m 
+- 0,67 load 
+- characteristics is the ,,1,5/0,67= 3.24
+Eurocad ,kmod = 0,6;
+- 60% ,totsj load  rest of loading a ...
+Emean fin = Emean / ( 1+ alph 3 x kdef ..using 
+
+Emean module elastic k is factor . Evolution,alpha is a value action 
+
+	
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+•	experiments.
+•	Didactic approach: The multidisciplinary laboratory covers from the most basic concepts of electrical engineering to the simulation of more advanced configurations and network topologies.
+•	Skills development: The didactic experience allows the student to simulate different real life scenarios and acquire analytical troubleshooting skills through practical hands-on training.
+ 
+SOLUTION LABORATORY FOR POWER ENGINEERING 
+Read more 
+ 
+GENERATION, DISTRIBUTION, TRANSMISSION 
+The electrical energy is today an essential factor for the industrial and social development of any country. It is commonly obtained from non-re-generative sources such as fossil fuels, and as consumption per capita and population grow, its limited production needs to be efficiently managed to satisfy the increasing world demand. Modern electric power systems have grown and expanded geographical…
+Read more 
+ 
+POWER PLANTS 
+The generation of electrical energy consists of transforming a type of energy (chemical, kinetic, thermal, light, nuclear, solar, among others), into electrical energy. For industrial generation, facilities called power plants are used, which carry out some of the aforementioned transformations. These constitute the first step of the power supply system. As energy consumption will continue to in…
+Read more 
+ 
+SMART GRID 
+The term Smart Grid is used to refer to the smart electrical distribution network. They are basically electricity distribution networks combined with modern information technologies, which provide data to both electricity distribution companies and consumers. To provide intelligence to traditional electrical networks, telematic reading counters are added, that allow to know real-time consumption…
+Read more 
+
+
+
+
+
+ARTIFICIAL INTELLIGENCE 
+In the didactic laboratory for the development of Artificial Intelligence solutions, the challenge-based learning (CBL) approach focuses on providing students with practical, real-world challenges that allow them to apply theoretical knowledge in specific situations. Rather than simply presenting information passively, this approach engages students in solving problems and creating innovative solutions. Students are faced with challenges that simulate real-life and industry problems, such as process optimization, anomaly detection or efficiency improvement. Using the hardware and software available in the lab, as well as artificial intelligence tools, students work in teams to develop practical solutions that address these challenges.
+•	
+ 
+LABORATORY FOR THE DEVELOPMENT OF ARTIFICIAL INTELLIGENCE FOR COLLEGES
+DL AI-BASE
+
+•	
+ 
+SEMI-AUTOMATIC ELECTRIC MACHINES LABORATORY WITH ARTIFICIAL INTELLIGENCE
+DL OPENLAB-SA-AI
+
+•	
+ 
+EQUIPMENT SYSTEM FOR THE STUDY OF INDUSTRY 4.0 “SMART FACTORY” ENHANCED WITH ARTIFICIAL INTELLIGENCE
+DL I4.0 FACTORY-AI
+
+•	
+ 
+SMART GRID ENHANCED WITH ARTIFICIAL INTELLIGENCE
+DL SGWD-AI
+
+•	
+ Career experience discovery
+
+Table of Contents
+Career experience discovery	1
+4.1 Sci-Bono ICT Academy <notifications@edu-sci-bono-ict-academy.odoo.com>	12
+Images in this message are hidden.	12
+Introduction	13
+Course Completion Guide	13
+________________________________________	13
+AI Fluency	14
+Chapter 1.01: What is Artificial Intelligence?	14
+Introduction to Artificial Intelligence	14
+Defining Artificial Intelligence	15
+What is AI?	15
+What Makes AI "Intelligent"?	15
+Algorithm	15
+The Turing Test	16
+The Turing Test	16
+Turing's Goal	16
+AI in Everyday Life	16
+AI vs. Fiction	17
+AI Fluency	17
+Chapter 1.02: Knowledge vs Intelligence	17
+Introduction to Knowledge vs Intelligence	17
+The Chinese Room Argument	18
+Key Differences: Knowledge vs Intelligence	18
+Knowledge vs Intelligence	18
+Practical Examples of Knowledge vs Intelligence	19
+AI in Medical Diagnostics	19
+Applications in Modern AI	19
+The Fuel for AI: Data	19
+AI Fluency	20
+Chapter 1.03: Data Everywhere	20
+Introduction to Data	20
+Data: The Fuel for AI	20
+The Importance of Data in AI	20
+The Data Explosion	21
+How We Produce Data	21
+Refining Raw Data	21
+Quality Over Quantity	21
+Applications of Data in AI Systems	21
+From Data to Value	22
+AI Fluency	22
+Chapter 1.04: Finding Patterns in Data	22
+Introduction to Patterns in Data	22
+Patterns	22
+Pattern Recognition in Action	22
+Time-Based Patterns	23
+How AI Models Identify Patterns	23
+Pattern Recognition in Social Media	23
+Business Applications of Pattern Recognition	24
+Machine Learning and Pattern Recognition	24
+AI Fluency	24
+Chapter 1.05: Machine Learning	24
+Understanding Machine Learning	24
+AI vs Machine Learning	25
+Distinguishing Between AI and Machine Learning	25
+Historical Origin	25
+Types of Machine Learning	25
+Mathematical Foundations of Machine Learning	26
+The Bicycle Analogy: Learning from Experience	26
+Learning Through Experience	26
+AI Fluency	27
+Chapter 1.06: Types of Machine Learning	27
+Learning Methods in Machine Learning	27
+Three Main Types of Machine Learning	27
+Supervised Learning: Learning with a Trainer	28
+How Supervised Learning Works	28
+Unsupervised Learning: Figuring It Out on Your Own	28
+Clustering and Association	29
+Reinforcement Learning: Learning from Rewards	29
+Reward-Based Learning	29
+Deep Learning: Taking Machine Learning Further	30
+Neural Networks and Deep Learning	30
+AI Fluency	30
+Chapter 1.08: Natural Language Processing (NLP)	31
+My account	31
+Ranks	32
+Badges	33
+Pages	35
+Elementor Data Updater	36
+Love using Elementor?	36
+Filter pages list	36
+Pages list navigation	36
+Pages list	36
+tshingombe fiston <tshingombefiston@gmail.com>	41
+Your 3CX Live Chat is almost ready!	41
+Next Up	41
+Electrical	42
+HR Approved Policies	42
+Course Description	42
+Learn from Industry Experts	45
+Actionable Training	45
+Industry Exams	45
+Premium Material	45
+Our Most Popular Courses	45
+ECD	45
+Cyber Security	46
+Electrical	46
+Introduction to K53	46
+AI Fluency	46
+Be in Demand with Our Professional Training	46
+Industry Partners	46
+What Our Students Have to Say	47
+L1: Introduciton to AI Quiz	48
+AI Fluency	52
+Course Description	52
+Our Most Popular Courses	54
+Experience,base frame theory practical on ...Competition science career engineering.rwiten job scie Bono and department education . institution	55
+>	66
+>	68
+>	73
+>	81
+>	87
+>	94
+>	105
+>	105
+>	114
+>	115
+tshingombe fiston <tshingombefiston@gmail.com>	130
+tshingombe fiston <tshingombefiston@gmail.com>	133
+>	161
+tshingombe fiston <tshingombefiston@gmail.com>	173
+tshingombe fiston <tshingombefiston@gmail.com>	180
+tshingombe fiston <tshingombefiston@gmail.com>	183
+>	191
+>	199
+>	212
+tshingombe fiston <tshingombefiston@gmail.com>	234
+tshingombe fiston <tshingombefiston@gmail.com>	240
+tshingombe fiston <tshingombefiston@gmail.com>	244
+tshingombe fiston <tshingombefiston@gmail.com>	257
+tshingombe fiston <tshingombefiston@gmail.com>	261
+tshingombe fiston <tshingombefiston@gmail.com>	263
+tshingombe fiston <tshingombefiston@gmail.com>	267
+tshingombe fiston <tshingombefiston@gmail.com>	268
+tshingombe fiston <tshingombefiston@gmail.com>	272
+tshingombe fiston <tshingombefiston@gmail.com>	278
+tshingombe fiston <tshingombefiston@gmail.com>	283
+tshingombe fiston <tshingombefiston@gmail.com>	286
+tshingombe fiston <tshingombefiston@gmail.com>	291
+tshingombe fiston <tshingombefiston@gmail.com>	313
+tshingombe fiston <tshingombefiston@gmail.com>	316
+
+
+
+
+
+
+
+
+
+
+
+
+
+	
+
+
+
+
+
+
+
+
+
+
+	
+ 
+
+-1.1 career center discovery 
+
+Experimental: grade school  to job level beginning  intermediate advanced on job post minim cadet junior senior .. principle. ..
+Overview:
+Explanation 
+.1.2 psychometric assessment service:
+1.3 development life stage life stage 0-80 years .
+. Early childhood,scholatisc,career , preschool,grade 1-13 school,speed ..
+- school readiness physical learning barrier neurodevelopment ,
+- disorder learning amongst , assessment , assessment accomodations 
+-2. ICT Sci- boni : academy program : I t @ sci boni co.za 
+- UIR skills .
+- youth aged 18-25 training ite CCNA security Linux IOT , python essential skill 
+Skill and career readiness skills .
+- module basic to advanced word excell access power specialist 5 - day digital literacy scie certiport expert .
+- accredited end user computing technical support and system support 
+- flow to build  self a bright technical future: 
+- considering a technical career .
+-let get down to work .
+- how do I play father 
+- technical course career engineering praticL problem solution where a qualified technician come TVET college.
+-realistic , investigation,artistic social enterprise .
+- education :   | nqf| qualification type
+- school     | 1 | grade 4
+- technical education | 2 | grade 10 nation technical 
+- technical education |3 | grade 12 
+- tvet     | 4| honourable degre engineering 
+- university technology • post graduate diploma master degre ..
+.-- discovery outcome 
+Job function grade ,function of function 
+Talent semester 
+Duty 
+..senior level,cadet level , ,minim ,l 
+Sector mining qualification labour qualification non in saqa nqf qualification 
+Category,artisant tradman skill man semi skill , ouvrier ,,  cadre. 
+Qualification years technician consultant professional ..
+-3.1. the career pathways skilled product work ,on artisant , technician certifiw skilled engineering manufacturing professional working of engineering team is artisan 
+-3.2.career in mechanical technology testing quality product material computer .
+- refractory reason cuts ,and shPw soft stone blacks and slabs for construction..
+- 3.3career  technology electrician wiring 
+Electrotechnic  panel builder.automorive electrician.
+.
+3.4 career technology civil: carpentert ,tiled plumber installation builder..part 3 how 
+- are you realistic | can you | do you , summer.
+*Practical mechanical | fix electrical things | explore mechanic work hand building  thing ..
+*Are you investigation inquisition  analytical scientific observant logic | think abstract || explore idea ,explore ideas,use computer ,reform laboratory 
+
+
+*Creative intuitive imagination innovation | develop new idea || solve problem read stories paint ..
+*Friendly modeliste , insight understand| teac or train other express freelance lead ||| use social or interpersonal people with ...
+
+* Are you: entreprusing are you self confidence assertive know to ask for | star project ,convince things sell thing promo ||| do you like make decisions that affect other use energy or drive ..are conventional .
+* Well organize .
+- accurate., consent | can you work under guidance an authorized,write report keep accurate record , performance calculation|| do you like to follow define make chart table work with number ..
+
+_______________________________________
+
+News papper written job library career center and readiness job book page magazine ,,1to web ,, education department and science technology department combination..
+
+Article 
+
+Research fund ,nrf / dst career department . education and  science 
+
+* Lecons nano technology : water medicine ,energy ,mining .
+* What is nnanotech
+
+
+* Where : energy come from ,non renewable source .
+* Activity , 1,2,3  build better solar panel danger of mining .
+* Extension activity.
+* Activity choose activity : 
+* Describe the mining that are showing.
+- describe the mining that are .
+- poster is colour and creative :2 marks 
+- posted shows origt idea :2 marks
+- poster clearly presented : wmark 
+- information on posted information 2 marks .
+- group work al learner where .
+- in gas detector are user in metal oxide nano wire use poison  gas invest resistance .apparatus ,a torch bulb ,battery ,two batteries threw electrical .
+- write an investigation question : 
+- write a hypothesis for you :
+- procedure the investigation : 
+- connection your : build circuit.
+Begin pen.
+- once you have completed.
+- now lead .
+- observe brightness .
+Now decrease the length of pencil observe  record .
+- 4 analyse your data investigation .
+- write a conclusion:
+- if you want to print only part worksheu you conselected the range you to print and will often printed 
+
+
+	
+	
+ 
+
+- research career impletation financial service schedule implementation,sight system.
+
+-Execution phase job trading : phase preliminary,selection phase insurance ,phase finalize pre projection ,reprojection , 
+
+ procurement .. February 2025..
+C.business assumption..-
+- proposed implementation option for phase ,1 product database .process costs scope.
+- processes for part proposed : advance procurement.
+- workflow processs 14 department.
+-suppliers .
+BBEEE create customer requirements information.
+- update supplier email address ,general ledger ,,
+- G L account updated sector ,configura email it smto ,create projects ,assign cost , customer of report builders form ,
+: requisition :............R1000
+- Rfq:10000
+- purchase orders :..10000......
+- supplier invoice :10000
+- return to supplier : ..10000
+* Services : 100000
+- data cleansing excluded proposal if requirements it will parr change ..
+- scie bon master transaction data preparation :10000
+- customisation it proposal .
+- installation 1 server and 10 workstation : 10000
+-: customization of report builders forms :-teating
+Installation on 1 server .
+- the consulting team will include testing as part of deliverables .
+- training be provide 
+- responsible. Testing advanced procures work: 1099
+- data migration :
+- scie bon data in excell import file : 1000.
+-operatiinal go live development: during , project plan sight tech month ,
+- general : suitable computer data backup device ,operating system ,
+- disbursement: 
+- the charge subject period review adjustable..
+- travel 
+ : private transport R 585 or ,085 per km rand ,  fligfg taxis customer .
+
+Travel time , insurance, accomodations,substance ,out town expense , communication,other ..
+Salary database 
+- salary bursary experimental job theory base practical base .
+- data management system info
+-data management info  
+- reward info case .sale force trend
+- life cycle  recruiting profile polfine recruitment .. amendment.
+Overload ..
+Protection data : legal data depot 
+Archive data internet library bibliography internet : 
+Protection: popia 
+
+
+- traffic .warden ..fire script encryption 
+- fox network force .. awareness cost
+Cleaning data force guard security info system,policy safety info system ,
+Casebook court processor aware .
+Contractor subcontractor 
+Office travel : cybernetic telemarketing.
+
+Deployment azure GitHub cost .strip bank 
+Key .authenticator code , social security 
+Contribution data 
+
+Ai generated 
+
+*General terms and conditions :
+- proposal acceptance:
+- commencement: to timeley date commence service shall, 
+- payment 30 days .software cash delivery 
+- force majeure 
+- disputes and jurisdiction 
+- term contract 
+
+
+4.1 Sci-Bono ICT Academy <notifications@edu-sci-bono-ict-academy.odoo.com> 
+	May 29, 2025, 2:53 PM
+	
+	
+to me 
+ 
+
+Images in this message are hidden. 
+This message appears suspicious. Don't show the images unless you trust the sender and the message.
+Your Account
+fiston 	 
+________________________________________
+
+Dear fiston,
+
+Your account has been successfully created!
+Your login is tshingombefiston@gmail.com
+To gain access to your account, you can use the following link: 
+Go to My Account  
+Thanks,
+________________________________________
+
+
+Sci-Bono ICT Academy 
++27 11 639 8400 | yusufm@sci-bono.co.za | http://sci-bono.co.za 
+
+Powered by Odoo 
+
+
+
+	
+	
+	
+ 
+
+IntroductionCourse Completion Guide Offline Content CertificationsNext Steps FAQs
+Introduction
+________________________________________
+Welcome to our AI Fluency Program! We’ve partnered with Microsoft to bring you an exciting opportunity to master AI. Through Sci-Bono’s AI Fluency Program, you’ll gain the knowledge and skills to integrate AI into your everyday life—no technical background required.
+Our program includes 44 bite-sized videos covering everything from AI fundamentals and ethical considerations to real-world applications. Best of all, you can complete the course in just 5 hours and earn all 6 AI certifications for free.
+Start learning today and be part of the future of AI!
+Course Completion Guide
+________________________________________
+ 
+To get the most out of our AI fluency content, you must complete the courses in the following order without skipping any sections. 
+ 
+We will be tracking your progress to ensure a thorough understanding of each topic:
+
+1. AI Basics 
+2. Generative AI 
+3. Internet Search and Beyond 
+4. Responsible AI 
+5. What is Microsoft Copilot 
+6. AI For All  
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.01: What is Artificial Intelligence?
+Understanding the fundamentals of AI
+Introduction Defining AI AI Intelligence Turing Test Everyday AI 
+Introduction to Artificial Intelligence
+Artificial intelligence, or AI, has become a buzzword you might have heard recently through social media, in conversations, or even on TV. However, it is not new. In fact, you have been using AI for years and might not even realize it.
+AI has evolved from a new concept to a technology integrated into our daily lives.
+At times, AI is portrayed as a force capable of changing the way we live, work, and interact. But beyond the hype, AI is a tool that has been evolving over decades, shaped by the contributions of countless individuals across various fields.
+And AI is not just for those who work with technology—it is for all of us. Understanding the fundamentals of artificial intelligence helps demystify this increasingly important technology and empowers us to engage with it more effectively.
+Defining Artificial Intelligence
+What is AI?
+AI is the ability of a computer system to learn from past data and errors, enabling it to make increasingly accurate predictions for future behavior.
+This encompasses a broad range of activities, such as problem-solving, speech recognition, learning, and decision-making. AI systems can process and analyze vast amounts of data to identify patterns and make predictions that would be difficult or impossible for humans to discern.
+AI encompasses problem-solving, speech recognition, and innovative thinking.
+What Makes AI "Intelligent"?
+So, what makes AI 'intelligent'? At its core, AI is the intelligence demonstrated by software or machines in performing tasks that typically require human intelligence.
+These tasks can include recognizing patterns, solving problems, or making decisions. For example, when you interact with Siri on your mobile phone, it is not exhibiting intelligence in the same way a human would.
+Rather, humans have programmed it to respond to certain prompts and execute functions, such as providing the latest weather update in your area or letting you know your local news.
+A chess-playing AI follows algorithms and strategies, learning from experience.
+Consider a robot playing chess with a human. We observe it making strategic moves, but does that mean it is 'intelligent' in the human sense? Well, the answer is no. The robot is merely following algorithms and strategies it has been programmed with, and it learns from past games through machine learning, which allows it to improve its performance over time.
+Algorithm
+Sequences of step-by-step instructions given to a computer that equip it to solve specific problems.
+The Turing Test
+The question of whether a robot's actions during a chess game equate to intelligence, or if it is just executing a programming process, is not a new one.
+Human A Computer ? 
+The Turing Test evaluates if a machine's responses are indistinguishable from a human's.
+Back in 1950, Alan Turing, a well-known mathematician and computer scientist, asked the question: "How can we determine if a machine is intelligent or not?" To answer this question, he created the famous Turing Test.
+The Turing Test
+In the Turing Test, a human questioner would interact with either a human respondent or a computer. The questioner would then have to evaluate whether it was a computer or a human being that was responding.
+The purpose of the test was not to see if the answer was correct. For example, when asking a question like "what is the sum of two plus two", Turing did not seek to assess if the answer would be four, but more specifically, to evaluate whether the respondent was a machine or a human.
+Turing's Goal
+When Turing created this test, he was trying to reach the point where it would no longer be possible to distinguish between responses from machines and humans, where machines would be able to respond with the same functionalities and nuances that human beings have.
+AI in Everyday Life
+AI has advanced significantly over the years and is increasingly present in our daily lives. Take for instance your interaction with social media apps, like Instagram. The app uses machine learning, a subset of AI, to determine the content to show you next based on your recent activity.
+AI is present in many everyday devices, from smartphones to smart speakers and home robots.
+A similar process is at work when you finish looking at a program on certain streaming apps. The app's AI analyzes your viewing habits to recommend what you might want to watch next.
+AI vs. Fiction
+Even though AI is all around us, it can be portrayed inaccurately, a common occurrence in Hollywood films. Some films depict AI as having feelings or being superior to humans. Usually, these narratives serve to provoke thought rather than accurately represent how humans interact with AI.
+These representations are artistic interpretations and do not actually reflect AI's capabilities. So, while AI can mimic certain aspects of human intelligence, it is important to remember that it operates very differently from human intelligence.
+AI does not have consciousness, emotions, or the ability to understand context in the same way humans do. It is a tool created and controlled by humans, and its capabilities are limited to what it has been programmed to do.
+That is why it is so important to understand what AI is - it allows you to discern fact from fiction.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.02: Knowledge vs Intelligence
+Understanding the key differences between knowledge and intelligence in AI
+Introduction Chinese Room Key Differences Practical Examples AI Applications 
+Introduction to Knowledge vs Intelligence
+Continuing with the question, "Can a machine ever truly be considered intelligent?" In 1980, John Searle, an American philosopher, created a test to answer this question, known as the Chinese Room Argument.
+Artificial intelligence has evolved dramatically from its early conceptual beginnings.
+Correct, artificial intelligence is not a new concept, as it has been developed and tested throughout history. The Chinese Room Argument provides an insightful framework for distinguishing between knowledge and intelligence in AI systems.
+The Chinese Room Argument
+Let's dive into Searle's famous thought experiment, the "Chinese Room Argument."
+汉字 
+The Chinese Room Argument: A person manipulates Chinese symbols using rules without understanding Chinese.
+Imagine you know how to speak Mandarin, but your friend does not. Your friend enters a room filled with symbols and a rulebook. The rulebook states: "When you see this symbol, answer with that symbol".
+You are outside the room, sending your friend a message in Mandarin. Your friend, inside the room, does not understand Mandarin, but follows the rulebook. They look at the symbols, figure out the pattern and respond accordingly.
+When you receive their response, you may think your friend understands Mandarin, but in reality, they are just following a set of rules without understanding the language.
+Key Differences: Knowledge vs Intelligence
+Knowledge vs Intelligence
+This test is intended to show that knowledge and intelligence are two very different things. When it comes to AI, a machine may not know Mandarin, but it knows how to recognize the pattern and answer with a message.
+Knowledge Intelligence 
+Knowledge is information stored and accessed, while intelligence is the ability to apply and adapt that knowledge.
+Perhaps this analogy with Mandarin is not part of your daily routine, but interacting with AI virtual assistants like Siri might be. Who has not asked Siri to tell a joke or share a story?
+At the end of the day, these systems convert our language into something they can recognize. They are constantly searching for matches in their databases, but they don't truly comprehend our language. Let's look at another example of this.
+Practical Examples of Knowledge vs Intelligence
+Imagine you are not feeling well, and you arrive at a doctor's office for a visit. You will go through a series of questions asked by nurses, "How long have you been feeling like this?" "What is your pain like, on a scale from 0 to 10?"
+? ? ?  
+The medical diagnostic process involves repetitive data collection that AI could streamline.
+They would check your vital signs, and then when you finally see the doctor, you'd repeat much of the same information. It is a repetitive process that takes up time and resources.
+AI in Medical Diagnostics
+Now, imagine a second situation: Upon arriving at the doctor's office, an AI system asks all these questions. It swiftly analyses your responses, takes your vital signs, and any other relevant information. By the time you meet with the doctor, the system has already generated a preliminary diagnosis based on the patterns it identified.
+It streamlines the process, allowing the doctor to address your needs more efficiently. This system operates intelligently by identifying patterns within the collected data thereby accelerating the diagnosis and treatment process.
+Applications in Modern AI
+As we have seen, knowledge and intelligence, while interconnected, are fundamentally different. Knowledge is about understanding the world around us, while intelligence is about applying that knowledge in new and innovative ways.
+Knowledge and intelligence work together in AI systems to create practical applications.
+But what fuels this programming? What allows AI to recognize patterns, make predictions, and learn from past experiences? The answer is data.
+The Fuel for AI: Data
+Data is the raw material that powers AI systems. It provides the foundation for both knowledge (stored information) and intelligence (pattern recognition and application). As we'll explore in the next chapter, understanding the role of data is crucial to comprehending how modern AI systems function.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course
+About Privacy Policy Terms of Use 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.03: Data Everywhere
+Understanding how data fuels AI systems and impacts our daily lives
+Introduction Data Importance Data Production Data Refinement Applications 
+Introduction to Data
+Have you ever wondered why data collecting is so important in today's world and what it can be used for?
+Data is constantly generated through our everyday digital interactions.
+Data: The Fuel for AI
+Data is the raw material AI systems use to analyze and make predictions, and you probably produce way more data than you realize, even just through your mobile phone.
+Back in the 1990s, the rise of the internet marked a significant leap in access to data and the use of AI. This era set the stage for the data-driven world we live in today.
+The Importance of Data in AI
+Fast forward to the present, we have no shortage of data fuelling analyses and personal pattern recognition processes.
+1990 1995 2000 2010 
+The exponential growth of data over the decades has fueled AI advancement.
+Just imagine how much data is being created while you watch this video. Maybe you are sending a text message to a friend. At the same time, someone next to you might be on a call. Somebody else has just posted a photo on their social media page while another has started a new video series that piqued their interest on a streaming app.
+The Data Explosion
+Data is constantly being generated with each passing second. Every interaction with digital technology—from scrolling through social media to shopping online or even just having your phone in your pocket—creates new data points that can be analyzed by AI systems.
+How We Produce Data
+Correct... all these actions create new data. Let's explore some common ways we generate data in our daily lives:
+People produce data through gaming, phone calls, watching TV, typing, and even at gas pumps.
+A man plays a video game, a woman is on a cell phone, a TV displays a bird, hands type on a keyboard next to a gas pump. All of these everyday activities generate valuable data that AI systems can learn from.
+Refining Raw Data
+Yet this raw data requires careful refinement. Data needs to be refined because the quality of the dataset used to train algorithms have a direct influence on the accuracy of the AI model.
+Raw data must be refined before it can be effectively used by AI models.
+Quality Over Quantity
+That means that diverse and representative high-quality data is essential to developing advanced AI models. The refinement process removes errors, inconsistencies, and biases that could affect the AI's performance.
+Applications of Data in AI Systems
+Consider a music streaming service. It uses the data from your listening habits, such as the songs you skip, the ones you play on repeat, and the playlists you create, to recommend new music that you might like.
+Your Daily Mix Your Top Songs 2024 Your Time Capsule A New Song For You 
+Music streaming services use your listening data to make personalized recommendations.
+This is a practical example of how data is used to enhance our everyday experiences and how datasets train the AI models to recommend the next song for you. And that is what we use machine learning for, to analyse and learn from the data. But it does not stop there.
+From Data to Value
+Once we have this information, we can use it to train AI models, improve products and services, make predictions, and even uncover new insights that were previously hidden. It's about recognizing patterns and making connections that might not be immediately obvious.
+So, the next time you use your mobile phone, remember that every action you take, every piece of data you generate, contributes to this vast, interconnected web of information. And it is through understanding this data that we can truly unlock the potential of AI.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course
+About Privacy Policy Terms of Use 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.04: Finding Patterns in Data
+How AI identifies and utilizes patterns in data
+Introduction Pattern Recognition AI and Patterns Social Media Business Applications 
+Introduction to Patterns in Data
+Data is constantly being created and refined to train AI models. But what exactly are these models looking for in the data?
+AI systems look for patterns within vast amounts of seemingly random data.
+Patterns
+Patterns are identifiable repetitive behaviors or structures that occur within data. AI models are particularly good at recognizing these patterns, mainly because they have access to a large volume of data.
+Pattern Recognition in Action
+Let's consider LinkedIn as an example. Have you ever noticed how LinkedIn suggests people you might know or jobs that you might be interested in?
+in David Senior Art Director at Microsoft, Barcelona Susanne Software Engineering Manager at Microsoft, Paris 
+LinkedIn uses pattern recognition to suggest connections based on your profile and behavior.
+It is not just based on your connections or job search history, but also on the behaviors of people all around the world who have similar connections or job interests.
+Time-Based Patterns
+What is really interesting is platforms like LinkedIn may look for patterns not only within your professional network and job preferences, but also in relation to the specific times you are active on the platform. For example, many people tend to browse apps during their lunch breaks or after work hours, so apps may suggest new connections or posts at those times too.
+How AI Models Identify Patterns
+This pattern identification does not just occur on platforms like LinkedIn, but with many companies across many apps and platforms.
+#  #  #  
+AI systems identify patterns across user behaviors to predict preferences and interests.
+Imagine the benefits of understanding what users really want or even creating new consumption trends based on the market. This understanding allows companies to customise their services for each user, thereby enhancing the user experience and boosting satisfaction.
+Pattern Recognition in Social Media
+It is about using data to meet the needs of the user in the most effective way possible. Every click, every like, every search - these are all pieces of data. AI models process this vast amount of data to notice patterns.
+Every click on a website provides data that AI can use to identify patterns and preferences.
+These patterns help the AI model tailor your experience, making it more relevant and engaging. It is like having a personal assistant who knows exactly what you need, even before you do!
+Business Applications of Pattern Recognition
+Think about the World Cup. What are potentially the best-selling products before the tournament?
+10 
+Recognizing trends like team shirt sales during the World Cup helps businesses make strategic decisions.
+You might be thinking team shirts. Recognizing this trend of team shirt consumption can provide a unique competitive edge for companies. It could even help in the new development of products or features.
+Machine Learning and Pattern Recognition
+But how does an AI model learn to recognize these patterns? Well, it does so through machine learning. In the next chapter, we'll explore how machine learning enables AI systems to identify and utilize patterns to make predictions and decisions.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course
+About Privacy Policy Terms of Use 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.05: Machine Learning
+Understanding the differences between AI and machine learning, and how machines learn from data
+Introduction AI vs ML Learning Types Mathematical Foundations Learning Analogy 
+Understanding Machine Learning
+You might have heard the terms 'machine learning' and 'AI' used interchangeably, and you may be wondering, 'What is the difference?' Well, there is a difference, and it is important to understand how they are different.
+AI ML What's the difference? Artificial intelligence Deep learning Machine learning 
+Machine Learning is a subset of AI, but the two terms are often used interchangeably.
+AI vs Machine Learning
+Artificial Intelligence refers to the intelligence exhibited by software and machines. Machine learning, on the other hand, is a subset of AI. This means that while all machine learning is AI, not all AI involves machine learning.
+Distinguishing Between AI and Machine Learning
+Machine learning is a type of AI where a machine learns from the data it has been given and can identify patterns in that data. It is also the process by which machines learn from data and improve their performance over time.
+Artificial Intelligence Machine Learning All machine learning is AI, but not all AI involves machine learning. ML 
+The relationship between AI and Machine Learning: ML is a specific approach within the broader field of AI.
+Machine learning uses different types of techniques such as supervised learning, unsupervised learning, and reinforcement learning. The term 'Machine Learning' was introduced by Arthur Samuel in 1959, who created a program that played draughts against itself.
+Historical Origin
+Arthur Samuel, an American pioneer in computer gaming and AI, created a program that played draughts. The machine analyzed the game through repetitive plays, identifying strategies to win and avoid losses. Through playing the game and learning what to do to win, it began to detect recurring patterns and would increasingly follow a pattern.
+Types of Machine Learning
+Machine learning can be divided into three main types: supervised learning, unsupervised learning, and reinforcement learning. Each approach has distinct characteristics and applications.
+Supervised learning X Label: Cat Y Label: Dog Unsupervised learning Reinforcement learning + - 
+The three primary types of machine learning: supervised, unsupervised, and reinforcement learning.
+•	Supervised Learning: The algorithm is trained on labeled data, where inputs are paired with correct outputs.
+•	Unsupervised Learning: The algorithm is trained on unlabeled data and must find structure without guidance.
+•	Reinforcement Learning: The algorithm learns by interacting with its environment and receiving rewards or penalties.
+Mathematical Foundations of Machine Learning
+To achieve effective machine learning, Samuel had to use mathematics. Concepts such as linear algebra, calculus, probability, and statistics play a crucial role in understanding how machine learning algorithms learn from data and make predictions.
+Linear Algebra: A = [a₁₁ a₁₂] [a₂₁ a₂₂] Calculus: f'(x) = lim Δx→0 [f(x+Δx) - f(x)]/Δx Probability: P(A|B) = P(B|A)P(A)/P(B) Statistics: σ² = Σ(xᵢ - μ)²/n 
+Mathematical concepts such as linear algebra, calculus, probability, and statistics form the foundation of machine learning algorithms.
+These mathematical concepts help in optimizing the performance of the model, understanding the relationships within the data, and making accurate predictions. They are the building blocks that enable machines to learn from experience and improve over time.
+The Bicycle Analogy: Learning from Experience
+Need further clarity? Let's consider the analogy of learning to ride a bicycle to understand how machine learning works.
+Learning Phase Application Phase 
+The process of learning to ride a bicycle mirrors how machine learning models progress from initial training to independent performance.
+Learning Through Experience
+When you first learn to ride a bicycle, you might start with training wheels. These training wheels are like the initial data set that we feed into the machine learning model. They provide basic guidance and stability. As you practice more, you learn to balance, pedal, and steer. This mirrors how a machine learning model begins to recognize patterns during training.
+Eventually, the training wheels come off, and you adapt to different situations – riding on hills or through crowds. Similarly, a machine learning model applies what it has learned to new data and tasks, improving its performance based on experience.
+This draughts game and bicycle learning analogy highlight the fundamental concepts of machine learning: learning from experience, replicating results, and improving performance. As we continue to explore AI and its capabilities, remember that all machine learning is AI, but not all AI is machine learning.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course
+About Privacy Policy Terms of Use 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.06: Types of Machine Learning
+Exploring supervised, unsupervised, and reinforcement learning approaches
+Introduction Supervised Learning Unsupervised Learning Reinforcement Learning Deep Learning 
+Learning Methods in Machine Learning
+Ever wondered how you learned to ride a bike or play an instrument? It's all about learning from experience, correct? Well, machines can do that, too! They can learn in three main ways: supervised learning, unsupervised learning and reinforcement learning.
+Supervised Unsupervised Reinforcement AI 
+Learning from experience is fundamental to human learning and machine learning.
+Three Main Types of Machine Learning
+Machine learning algorithms can be classified into three main types:
+•	Supervised Learning: Algorithm is trained on data that's labeled with the correct answers
+•	Unsupervised Learning: Algorithm is trained on unlabeled or raw data
+•	Reinforcement Learning: Algorithm is trained by interacting with its environment to achieve a goal
+Let's break down each type with a simple analogy: learning to play football.
+Supervised Learning: Learning with a Trainer
+In the first scenario of our football analogy, you have a trainer who supervises you and teaches you all the rules.
+Rules 0:0 
+In supervised learning, like football training, the algorithm learns from labeled examples provided by a "trainer."
+They carefully explain that when the ball enters the goal, you earn a point, and when the ball goes out of play over the sideline, it must be thrown in by hand. They explain all the rules, how many players there are, how long the game lasts, and so on. In this case, you have a person supervising you and teaching you all the rules of the game.
+How Supervised Learning Works
+In supervised learning, the algorithm is given a set of input data along with the correct output (labels). It learns by finding patterns that map the input to the output. This is similar to how a football coach might show a player exactly what to do, and the player learns by following these instructions.
+Examples of supervised learning applications include:
+•	Email spam detection (spam or not spam)
+•	Image recognition (identifying what's in an image)
+•	Weather forecasting (predicting future weather based on historical data)
+Unsupervised Learning: Figuring It Out on Your Own
+In the second scenario of our football analogy, you are on your own. You start attending games every Thursday and Sunday without prior instruction.
+? Cheering Groaning 
+In unsupervised learning, like watching football games without instruction, the algorithm identifies patterns without being told what to look for.
+Initially, you are puzzled. Why are players using their hands from the sidelines in a game primarily played with feet? Why is the crowd cheering when the ball hits the net, and why do they groan when it does not? But as you keep watching, you start recognizing patterns and understanding the game's dynamics.
+Clustering and Association
+Unsupervised learning algorithms find structure in data without explicit guidance. There are two main types:
+•	Clustering: Grouping similar data points together (like recognizing that certain players on a team work together in specific formations)
+•	Association: Discovering rules that describe relationships in the data (like understanding that when the ball goes into the net, the crowd cheers)
+Applications include customer segmentation, anomaly detection, and recommendation systems.
+Reinforcement Learning: Learning from Rewards
+Now, let's consider a third scenario, which is like reinforcement learning. Imagine you are practicing penalty kicks.
+Positive Reward Negative Reward 
+In reinforcement learning, like practicing penalty kicks, the algorithm learns from positive and negative feedback.
+Each time you score a goal, you feel a sense of achievement, which is a positive reward. Each time you miss, you feel disappointment, which is a negative reward. Over time, by trying different ways of kicking the ball and learning from the rewards, you improve your ability to score penalty kicks.
+Reward-Based Learning
+Reinforcement learning is based on an agent (the learner) that interacts with its environment, taking actions to maximize cumulative rewards. The key components are:
+•	Agent: The decision-maker (like the football player)
+•	Environment: The world in which the agent operates (the football field)
+•	Actions: What the agent can do (different kick techniques)
+•	Rewards: Feedback from the environment (scoring or missing)
+Applications include game playing, robotics, autonomous vehicles, and resource management.
+Deep Learning: Taking Machine Learning Further
+Remember, all machine learning is AI, but not all AI involves machine learning. Machine learning can be broken down into these types: supervised, unsupervised, and reinforcement learning. But we can go even deeper.
+Input Layer Hidden Layer Output Layer 
+Deep learning uses advanced neural networks with multiple layers to process complex information.
+There are advanced forms of machine learning that mimic the human brain's own method of learning. They take the concepts of supervised, unsupervised, and reinforcement learning and apply them on a much larger scale. This is called deep learning.
+Neural Networks and Deep Learning
+Deep learning is a subfield of machine learning inspired by the structure and function of the brain called artificial neural networks. Just as neurons in the brain are connected to form a vast network, deep learning uses artificial neural networks with several layers - hence the term 'deep'.
+These networks can learn and make decisions on their own. They excel at tasks such as:
+•	Image and speech recognition
+•	Natural language processing
+•	Recommendation systems
+•	Medical diagnoses
+In conclusion, machine learning approaches vary based on the task at hand and the available data. Understanding these different types helps us appreciate how AI systems learn and adapt to solve complex problems. As we move forward, we'll explore deep learning in more detail and see how these neural networks are revolutionizing artificial intelligence.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.08: Natural Language Processing (NLP)
+Exploring how AI understands, interprets, and generates human language
+Introduction NLP
+...
+
+[Message clipped]  Entire message not available offline
+
+
+	
+	
+to Sci-Bono 
+ 
+
+•	Home 
+•	Begin AI Journey 
+•	Courses 
+•	Help & FAQs 
+•	
+•	
+•	
+•	fiston 
+•	
+My account
+
+
+Connection & Security 
+Configure your connection parameters 
+
+
+fiston
+st peace college
+20 percy stree jhb
+yeohvill
+jhb 1030
+South Africa 
+0725298946 
+tshingombefiston@gmail.com
+•	Home  
+Courses   Discover More at Sci-Bono   Contact Us  
+•	
+Follow us
+Copyright © Sci-Bono Discovery Centre | ICT and Youth Development Department 2025 
+•	Home 
+•	Begin AI Journey 
+•	Courses 
+•	Help & FAQs 
+•	
+•	
+•	
+•	fiston 
+•	
+Ranks
+Keep learning with Sci-Bono ICT Academy. Collect points on the forum or on the eLearning platform. Those points will make you reach new ranks.
+How do I earn badges?
+When you finish a course or reach milestones, you're awarded badges.
+How do I score more points?
+You can score more points by answering quizzes at the end of each course content. Points can also be earned on the forum. Follow this link to the guidelines of the forum.
+Ranks
+•	
+Doctor
+10,000 points 
+•	
+Master
+2,000 points 
+•	
+Bachelor
+500 points 
+•	
+Student
+100 points 
+•	
+Newbie
+1 points 
+Badges
+Besides gaining reputation with your questions and answers, you receive badges for being especially helpful.
+Badges appear on your profile page, and your posts. 
+
+Get started
+Register to the platform
+212 awarded users 
+
+Know yourself
+Complete your profile
+121 awarded users 
+
+Certified Knowledge
+Get a certification
+57 awarded users 
+
+Power User
+Complete a course
+46 awarded users 
+
+Community hero
+Reach 2000 XP
+1 awarded users 
+•	Home  
+Courses   Discover More at Sci-Bono   Contact Us  
+•	
+Follow us
+Copyright © Sci-Bono Discovery Centre | ICT and Youth Development Department 2025 
+
+...
+
+[Message clipped]  Entire message not available offline
+2 Attachments • Scanned by Gmail
+
+
+	
+	
+	
+to Sci-Bono 
+ 
+
+Skip to main content Skip to toolbar 
+•	About WordPress
+•	Sci-Bono Online Learning
+•	Live
+•	2323 updates available
+•	00 Comments in moderation
+•	New
+•	Setup Payments
+•	WPForms
+•	Purge SG Cache
+•	
+•	Howdy, tshingombe
+Pages
+Add Page 
+________________________________________
+Call & message for free with 3CX SMB! Activate Now
+LearnDash Stripe Addon Deprecation
+As of June 13, 2023 the Stripe plugin will no longer receive feature updates. We encourage you to switch over to Stripe Connect, however you can continue to utilize the plugin without upgrading. 
+Setup Stripe Connect - Stripe Deprecation FAQ
+Notice: You are using the auto-generated password for your account. Would you like to change it?
+Yes, take me to my profile page | No thanks, do not remind me again
+Elementor Data Updater
+Database update process is running in the background. Taking a while?
+Love using Elementor?
+Become a super contributor by opting in to share non-sensitive plugin data and to receive periodic email updates from us. Learn more.
+Filter pages list
+•	All (32) |
+•	Published (30) |
+•	Drafts (2)
+Search Pages: 
+Select bulk action
+Filter by date 
+Pages list navigation
+32 items « ‹ Current Page  of 2 Next page› Last page»
+
+Pages list
+Table ordered by Hierarchical Menu Order and Title. Ascending.
+ Select All
+Title
+Author	Comments Sort ascending.
+Date Sort descending.
+
+ Select About 	About — Elementor 
+Edit | 
+		
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2018/12/06 at 12:49 pm
+ Select About 
+About — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select All Courses 
+All Courses — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select All Courses 
+All Courses — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2018/12/07 at 12:51 pm
+ Select Cart 
+Cart — Cart Page 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select Cart 
+Cart 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2021/09/17 at 4:20 am
+ Select Checkout 	Checkout 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2021/09/17 at 4:20 am
+ Select Checkout 	Checkout — Checkout Page 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select Contact 	Contact — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2019/03/19 at 1:42 pm
+ Select Contact 
+Contact — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select Courses 
+Courses 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2023/09/08 at 7:10 pm
+ Select Dashboard 	Dashboard 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2023/07/26 at 9:09 pm
+ Select ebooks 	ebooks — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2024/02/11 at 3:03 pm
+ Select Home 
+Home 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2020/08/25 at 10:13 pm
+ Select Home 
+Home — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select Home 
+Home — Front Page, Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2018/11/19 at 7:50 pm
+ Select Instructor Registration 	Instructor Registration 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2023/07/26 at 9:09 pm
+ Select My Account 	My Account — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select My account 
+My account 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2021/09/17 at 4:20 am
+ Select My account 	My account — My Account Page 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select All	Title
+Author	Comments Sort ascending.
+Date Sort descending.
+
+Select bulk action
+32 items « ‹ Current Page1 of 2 Next page› Last page»
+
+Thank you for creating with WordPress. 
+Version 6.8.1 
+
+...
+
+[Message clipped]  Entire message not available offline
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	 May 30, 2025, 12:03 PM
+
+	
+	
+to Sci-Bono 
+ 
+
+Your 3CX Live Chat is almost ready! 
+Copy the following URL into the “3CX Talk URL” field in the 3CX Live Chat configuration page in wordpress: 
+https://1173.3cx.cloud/engineering 
+Use the credentials below to login and start customising your Live chat: 
+Login:https://1173.3cx.cloud/#/office 
+Email:tshingombefiston@gmail.com 
+Password: ∗∗∗∗∗∗∗∗∗∗∗ 
+LOGIN 
+Next Up 
+After logging in, you can view your live chat settings here:
+https://1173.3cx.cloud/#/office/#/office/numbers-and-messaging 
+•	About WordPress
+•	Sci-Bono Online Learning
+•	Live
+•	Customize
+•	2323 updates available
+•	00 Comments in moderation
+•	New
+•	Edit Course
+•	WPForms
+•	Purge SG Cache
+•	
+•	Howdy, tshingombe
+•	
+ Search
+Skip to content 
+•	Home
+•	About
+•	All Courses
+•	Contact
+•	My Account
+
+Electrical
+Course Status: Not Started 
+
+HR Approved Policies
+Course Description
+The purpose of this course is to keep everyone abreast of the HR policies that exist within the organization. It is important to work in an environment governed by frameworks and policies.
+African American carpenter man use electrical saw to cut timber in factory workplace and his co-worker still work in the back.
+In this course we will cover
+•	Disciplinary
+•	Bursary 
+•	Health and Environment
+•	Employment Equity 
+•	Fraud and Corruption
+•	Grievance
+•	IT Governance 
+Course Content 
+Expand All | Collapse All 
+Lessons Status 
+1 
+Safety, Health And Environmental policy 
+2 
+Signed Substance Abuse Policy 
+3 
+Signed Retirement Policy 
+4 
+Signed Bursary policy 
+5 
+Succession Planning SOP 
+6 
+Signed Disciplinary Policy 
+7 
+Signed Grievance Policy 
+8 
+Signed Job Evaluation Policy 1 
+9 
+Signed Risk management Policy 
+10 
+Signed IT Governance Policy 
+11 
+Signed Fraud and Corruption policy 
+12 
+Signed Child Protection policy 
+13 
+Signed Employment Equity policy 
+14 
+Signed Remuneration policy 
+15 
+Signed PMDS Policy 
+Copyright © 2025 Sci-Bono Online Learning
+•	About WordPress
+•	Sci-Bono Online Learning
+•	Live
+•	Customize
+•	2323 updates available
+•	00 Comments in moderation
+•	New
+•	Edit Page
+•	Edit with Elementor
+•	WPForms
+•	Purge SG Cache
+•	
+•	Howdy, tshingombe
+•	
+ Search
+Skip to content 
+•	Home
+•	About
+•	All Courses
+•	Contact
+•	My Account
+Learn from Industry Experts
+Sci-Bono is an accredited learning institution aimed at bringing life to the world of STREAM. SIgn-up now and be apart of a global movement. 
+View All Courses 
+Actionable Training 
+All courses are uniquely designed to educate students and prepare them for the corporate world. 
+Industry Exams 
+Our exams are industry standard and benchmarked to both national and international frameworks 
+Premium Material 
+Our learning material comprises of videos, presentations and workbooks 
+Our Most Popular Courses
+Enroll now and explore a world of excellence. Our platform is versitile and allows you to have the best learning experience.
+Enrolled 
+ECD
+
+Enrolled 
+Cyber Security
+
+Enrolled 
+Electrical
+
+Enrolled 
+Introduction to K53
+
+Enrolled 
+AI Fluency
+
+Be in Demand with Our Professional Training
+We are proud to announce that our platform hosts the best instructors in Africa
+Prof. Mfanelo Pat Ntsobi — Founder & CEO. 
+Build Relevant Skills 
+Our content is rich in value and highly rocommended by scholars worldwide.
+Get The Right Path From The Best Learning Platform 
+Learn From The Professionals 
+Industry Partners
+ 
+
+
+
+
+What Our Students Have to Say
+I have recently completed the inhouse policies course and have found great value in it. I now have a better understanding of my environment.
+
+Mark Mthombeni
+From Johannesburg, RSA
+The great thing about these courses is that they are all accredited. This makes it worth your while. Certificates are issued as soon as one completes their course.
+
+Zasha Swan
+From Australia 
+I'm inspired to be learning from a platform that is aimed at changeing the lives of people around the globe. I have just completed my Cisco Cybersecurity Course.
+
+Frank Jones
+From Japan
+The intergrations are seamless. The learning platform has includes videos presentations and other learning material as well as unique guidance from instructors.
+
+Lester Constance
+From London, UK
+Copyright © 2025 Sci-Bono Online Learning
+•	About WordPress
+•	Sci-Bono Online Learning
+•	Live
+•	Customize
+•	2323 updates available
+•	00 Comments in moderation
+•	New
+•	Edit Quiz
+•	WPForms
+•	Purge SG Cache
+•	
+•	Howdy, tshingombe
+•	
+ Search
+Skip to content 
+•	Home
+•	About
+•	All Courses
+•	Contact
+•	My Account
+L1: Introduciton to AI Quiz
+By ashleyanthonyadams@gmail.com / February 6, 2025 
+Results
+3 of 11 Questions answered correctly
+Your time: 00:00:39 
+You have reached 3 of 11 point(s), (27.27%) 
+•	
+1.	In what year did the progress of AI that can create Microsoft Copilot technology occur?
+o	 1900s 
+o	 2000s 
+o	 2021 
+o	 1950 
+Incorrect 
+2.	Which statement is correct regarding Artificial Intelligence?
+o	 AI cannot provide the latest updates on local weather and news in an area. 
+o	 AI cannot perform tasks such as pattern recognition, problem-solving or decision-making. 
+o	 AI does not learn from past data and mistakes to make predictions of future behaviour that are increasingly accurate. 
+o	 AI does not have consciousness, emotions, or the ability to understand context in the same way as humans. 
+Incorrect 
+3.	What enables AI to recognise patterns, make predictions, and learn from past experiences?
+o	 Data 
+o	 Numbers 
+o	 Text 
+o	 Emotion 
+Correct 
+4.	Machine learning can be used for several purposes, including….
+o	 improving products and services, and blocking new hidden insights 
+o	 training AI models and making predaictions 
+o	 preventing inaccurate data predictions and improving products and services 
+o	 training and adapting AI models 
+Incorrect 
+5.	What is one of the benefits of understanding target user?
+o	 User can customise the service according to the company's preferences. 
+o	 Meeting the company's needs quickly. 
+o	 Improving the user satisfaction. 
+o	 Curating the user experience. 
+Incorrect 
+6.	From the following statements, which one is correct regarding Machine Learning?
+o	 Machine Learning is an essential system that is always used and forms the basis in AI. 
+o	 Machine Learning is a standalone system that can learn and make decisions without training data/pre-processing. 
+o	 Complex Machine Learning models can work without supervision and guidance from humans. 
+o	 Machine Learning is a process where machines learn from data and improve their performance over time. 
+Incorrect 
+7.	The type of Machine Learning that performs automatic trial and error decision-making to maximise the performance of its algorithm is…
+o	 Reinforcement Learning 
+o	 Supervised Learning 
+o	 Unsupervised Learning 
+o	 Deep Learning 
+Correct 
+8.	How does the volume of data a computer has affect the performance of AI?
+o	 The less data there is, the more accurate AI predictions will be. 
+o	 The less data there is, the more accurate AI predictions will be. 
+o	 The more data there is, the better AI performance. 
+o	 Data volume has no effect on AI performance. 
+Incorrect 
+9.	What is the process of computer analysis in processing and understanding human language through text called?
+o	 Speech Recognition 
+o	 Image Analysis 
+o	 Sentiment Analysis 
+o	 Text Analysis 
+Incorrect 
+10.	What is the algorithm that can classify every incoming email as spam or not?
+o	 Classification Algorithm 
+o	 Regulation Algorithm 
+o	 Clustering Algorithms 
+o	 Optimisation Algorithms 
+Correct 
+11.	An example of implementing the Internet of Things (IoT) in the household is?
+o	 Indoor lights that can be turned on and off with a light switch 
+o	 Using a self-driving car 
+o	 Use CCTV cameras that have a large memory 
+o	 Utilisation of sensors on the fridge to monitor the contents of the cupboard 
+Incorrect 
+Copyright © 2025 Sci-Bono Online Learning
+Lesson Topics 
+•	AI History 
+•	What is Artificial Intelligence 
+•	Knowledge vs Intelligence 
+•	Data Everywhere 
+•	Finding Patterns in Data 
+•	Machine Learning 
+•	Types of Machine Learning 
+•	Deep Learning 
+•	Natural Language Processing (NLP) 
+•	AI Algorithms 
+•	AI in Action 
+QuizzesStatus
+1
+L1: Introduciton to AI Quiz 
+AI Fluency
+Course Status: In Progress 
+
+You are enrolled in this course
+Course Description
+The AI Affluency Course is designed to demystify artificial intelligence for learners at all levels, providing a comprehensive understanding of AI technologies, ethics, and applications. 
+It aims to equip participants with the knowledge and skills to implement AI solutions in various sectors, promoting innovation and strategic thinking in business and beyond.
+Key concepts covered include:
+•	A Brief History of AI
+•	What is Artificial Intelligence?
+•	Machine Learning
+•	Types of Machine Learning
+•	Natural Language Processing (NLP)
+•	AI Algorithms
+•	AI in Action
+Unlock the potential of artificial intelligence with our AI Affluency Course, designed for both beginners eager to delve into AI and professionals looking to sharpen their edge in this transformative field. This comprehensive course covers:
+Course Content 
+Expand All | Collapse All 
+Lessons Status 
+1 
+Lesson 1 – Introduction to AI 
+2 
+Lesson 2 – Generative AI 
+3 
+Lesson 3 – Search Engines 
+4 
+Lesson 4 – Using AI Responsibly 
+5 
+Lesson 5 – Microsoft Copilot 
+6 
+Lesson 6 – Impact of AI 
+Profile 
+
+Edit profile 
+Name: tshingombe tshitadi
+Username: tshingombe
+Email: tshingombefiston@gmail.com
+Earned Course Points: 14
+Registered Courses Status Certificate 
+AI Fluency
+AI Fluency
+- 
+Introduction to K53
+Introduction to K53
+- 
+Electrical
+Electrical
+- 
+Cyber Security
+Cyber Security
+- 
+ECD
+ECD
+- 
+Our Most Popular Courses 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Referred  :journey  career center library day  
+Rwiten job readness job    career review book guideline text book  ,  company catalogue 
+Experience,base frame theory practical on ...Competition science career engineering.rwiten job scie Bono and department education . institution
+
+
+	
+	
+	
+ 
+
+5.1.backgroung .
+Experimental..national science career discovery research competition skill career mentor libraries.. education science career sciebono 
+Base framework: selection question skill talen rwiten cvs job skill ...
+5.2.analyse submission : selected phase preliminary ,phase final ..
+-5.2.1. phase preliminary career selected competition presentation topic project meeting requirements and no meeting requirements.selected quotation form ,selected rwiten on library,workshop and lab workplace  report annual statement meeting and not meeting oversee..
+Phase - selected question and answer of guideline career orientation question recruitment years ..outcome of subject 
+-5. 2.2.subject criteria on framework qualification institution and college on national exam matric exam outcome learner career , selected career on test assessment..
+-5. 2.3.selected question criteria on university equivalent award assessment explanation  ucpd and institution criteria post graduate and undergraduate graduate development research papper and explanation letter..
+Criteria career outcome on national trade application on subject offered.natiinal and ncv combination,n 1to n6,nn diploma certificate award ,, regulation and irregularities. And ncv nsc vocational career meeting ,,level career sector seta merseta teta sasseta hasta engineering science , electrical mechanical building civis chemical physic mathematics career exhibition ,,selected career on job 
+Outcome trade teaching trade electrician  mechanical .. engineering and power station championan ,generation champions, transmission energy championan,expos science  on job company meeting.application 
+
+-5.2.4 selected explanation science engineering ....
+-
+
+
+	
+	
+ 
+
+- 5.3.1Requisition for procurement: 
+Selected phase.
+Requisition: number: .................
+- date received.......
+-Department : education, career center ,ICT.  
+- project code : 
+-estimation cost : R 385.000per day .
+- budget funding source :
+- approximately available.
+Hr award bid 
+Resource humain :
+Resource material :
+. description or service |unit|approx|aptot
+- 
+-
+-
+-
+-
+5.4.purpose : submission requested ,inventory discovery 
+Competition championan award selected internal external assessment outcome course on topic science engineering in.
+Career mentor skill rwiten cvs job readiness assessment on career selected hr  management portfolio...
+5.5. Project / programme background : department education career career librari management provision of compety .. maintaining quality of education science career discovery presentation valuable..
+5.6. Analysis and main consideration ..
+
+Financial implications : 
+Item  submission assessment|Quantity|
+- skill 
+.- proposal 
+The chief executive ..
+Recommend not 
+
+
+5.7.Competence assessment 
+Information management system 
+Recruitment 
+Base college and training academy university 
+
+- financial 
+Need submission:
+Fee . estimate 
+-Advanced procurement| hourly | hours | total 
+_- system requirements 
+
+- product presentation 
+- requirements analysis system design workshop.
+- requirements analyse document 
+- system administrator 
+- configure email 
+- assist 
+- create projects 
+- agent setup 
+- configure 
+General ledger .
+- account entry inventory.
+Default order approval 
+- advanced project 
+- customer report building forms 
+Test round 1
+- issue resolve 
+- test round 
+- training round .
+- install advanced 
+Project management 
+- business proposal 
+- data migration 
+Operation 
+- travel time 
+Insurance 
+
+
+*5.7.Quotation form : number/ company 
+- Full name : ----
+- postal address:
+- physical address :
+Company cc reg number :
+- I'd number if sole :
+- tax reference number:
+Vat registration number .:
+Main contact :
+Cellphone number 
+- fax number :
+-email address
+- instruction:
+* Offer :
+Assessment, assignment question phase selector portfolio is book submission 
+-categorie
+Per learner self discovery,peer discover , group discovery, ownership award awareness school, irregularities completed 
+
+Item  description | Quantity| total ..
+- transcript record library dissertation ,130pg| R 130
+- projection mentor libraries learner cvs 
+- planing  case book ,
+- news papers building sheer frame PC 
+- workshop study arch file 
+- award career submission for ..
+* Delivery transport 
+- award saqa degree
+Record certificate book 
+
+Vat ...
+Checklist subt..
+Company , tshingombe and sub contractor.  st peace college and career company saqa , schedule Eaton ,city power eskom , Microsoft,google ,nogada ccma labour ,scie Bono training libraries 
+- campagny 
+Fax  number email address. / Yes / not
+- physical address postal address 
+- tel number contact number 
+- cell 
+- file for. Completed 
+- certificate of uncoureg ciproc
+- valid sars tax 
+Valid bee 
+- is copy 
+- certificate 
+Fulname , tshingombe fiston tshitadu ..
+2019 
+
+____""""""____
+
+Invitation bid
+Scie Bono news letter cyntht moholo ..
+- incitat scue boni centre 2019/20 virtual agm 
+- board chairp ,Mr abbey witbooi ,28th October 2029 ,,key not Mr panysza Ms gauteng.. department education..
+5.8.
+________subject in the national curriculum statement grade ...
+Learn field | elective subject | selected 7, or subject 
+
+- compulsory subject:
+Human social studies 
+Business commerce management studies
+Services 
+- manufacture engineering design technology : 
+9.asset acknowledge form 
+I  full name .../ Surname 
+Hereby accept the following:......
+- here ..
+- .....make model 
+Serial number of the asset .
+- barcode : 
+- condition :
+- sign:
+- it user name 
+______
+Judgement arbitration career labour career subject competition: 
+
+10.Client intake info - walk in center : 
+Name of facilitate: .....consultation date
+- client name surname .... consultant date.
+- client name surname:
+Name of institution school :
+- client contact cell
+- field study : 
+- age :  gender :  ..race ..
+Reason visiting career center please tic the option 
+
+Competition championant 
+Visiting career 
+- subject career choice info guidance 
+- studies skills
+- time management skills 
+- job search skills cv writing  interview 
+- work readiness and employee enhanced 
+- self directed career  career directed career mentor 
+- learner ship employee training info .
+- tertiary studies info bursary application .
+- career info resource .
+- facilitator notes was client issue 
+- was client refered to author service ..
+Referral was internal case ..
+- mediation hand ..
+- how can we improvement...
+_______________
+- workplace readiness : module career 
+Workshop programming development training design 
+
+Development 
+- use of worh 
+
+Question program notes
+Topic career planing workshop overview 
+Question/ answer 
+- wath is career development planning:
+Target audience ,out school workshop outcome steo career value skill 
+Workshop duration : 
+Dhet process framework..
+- steo life aware interest knowledge skill 
+
+
+- discovery your self 
+- exploring your option 
+- making informed career choice take ction .
+- 
+
+
+Activity 1 self assessment skill inventory ,assess marks give 
+Functional transferability 
+People object date deal
+
+Activity 2 self assessment interested inventory :
+Statement ,selection 
+Like 
+Interpretation code
+_______________________
+
+_analyse submission:learner proposal 
+Question learning 
+Library outcome ..
+- project skill engineering and master skill facilitator tshingombe : 
+- scope career center studies library company ,course process.
+6.2.purpose career learner studies .
+6.3 requirement career campagny school tools assessment visited 
+6.4. Operation work system ..lms
+- submission web site ,career data right,
+Item book order career lms portfolio exam papers cvs ,2000pg , Scotland 400pg ,,
+5. Lab career work shop ...
+
+_________________________
+-project : workbook of compilation of formal assessment career project exhibition 
+- question project of low rules :
+Purpose explanation career center expo science journey of self discovery ...
+- section a,b,c,d design worh  research education Audi visual cvs
+2- referral library case book photocopy discovery career inventory job .
+Hr framework close ..
+Tools assessment libraries 
+Entry criteria task ,test booking 
+Is booking | topic | cost | topics project
+________
+Question / https .www
+Topics discovery investor science technical technology engineering sub topics 
+Scie Bono expire science .learn learn ..
+Topics assessment summary pentent inventory claim relate low manufacture process 
+- book invention research papers price..eureka..
+_______
+Question form Microsoft 
+Topics discovery inventory career technical .
+Lesson plan discovery 
+-----
+Magazine
+
+Question learners reading news papers study workshop use computer write xv self career submission..
+Prudence auch
+Award teach library ruling diploma ,outcome judgement attorney v, dissertation 
+Competitor 
+Question : 
+Forward:
+- execution summary teacher career ..
+- the school system 
+- the framework for evaluation and assessment 
+- system evajustyuh 
+Overview prospectus assignment school 
+- reducing cost delivery course ,
+Achievement engagement and success
+- selecting the right technology technical support 
+- open source teaching education technology 
+-: technology cloud base and education technology 
+..
+
+> 
+	\
+	
+	
+ 
+ 
+
+-question  how to build your self a bright technical future..
+Explanation . Consider a technical career let get down how do I play for a his..
+-science centre programme.. week 
+-annual report..
+- intro overview:core business,non core  business , financial 
+: executive summary,science  careers centre,learner career centre , teacher training development,ICT training,support the , organisation, corporation gov,board procurement commite, general inffinforma, independent audit , learning industrial initial 
+________&&&&
+- expo 
+Inventory library expo magazine 
+- career mentoring coach..
+Career learner expo science 
+Escom ..
+Learner name : tshingombe.
+School name 
+Regional : gauteng 
+Project title : the impletation circulum knowledge policy engineering planing product improvement contractuaj agreement with register trainer and consultant engineering electrical and computer science engineering v..
+Question : abstract.
+- purpose : ask factor job outcome transition phase learner phase exhibition phase teach ..
+- method : material and equipment : special guideline assessment formative assessment.
+
+Course< reference readiness job
+ bibliography.magazine nrf nsf ..
+- result nano technology and mining wath is nanotechnology ,what are danger of mining how nanotechnology make energy where ...
+- lesson :
+
+- conclusion : engineering it discovery computer development support to existing prospective club creative participate in 4 ir provide design career job ..
+- research plan template for :
+1. Scientific investigation project experiment 
+2 computer science experiments 
+3. Social science project : .
+Mathematics..
+- scientific experiment..
+- topics : provisional implemented framework policy college school engineering curriculum assessment police education technology teach electrical subject government municipal team training working graduate engineering time frames ..st peace college..
+1.inteoduction.
+Literature review 
+- benefits 
+- problem statement ..
+- research 1 question 
+- hypothesis 
+Method material 
+Ethics safety 
+Reference ..
+Teacher mentor comment suggestions ..
+
+____________________________________
+Library career center magazine textbook 
+Report/ open lab  lab magazine 
+
+Discovery education science competition 
+
+Quotation bid 
+Review literally 
+Textbook 
+
+- text 
+Ordered book | topic
+
+Question technical document information research ...
+Order book review overview 
+Rwiten job ...cook book course module scie 
+
+> 
+	
+	
+	
+ 
+ 
+
+Sub contractor library scie Bono science and st peace college library workshop assessment topics dhet dbe..tvet underpin assessment topics combination learning 
+
+Public library open bare
+- shopping mall library
+- cybernetic telemarketing shopping
+Checkers cna etc  
+- university library biliotech twt ,wti ,
+Dhet ..saqa ..
+- security safety,ccma labour court arch file...report head argument skill, sasseta  seta ,,lms development 
+- career  library job on line ..Eaton , scheinerde,google, Microsoft,expert assessment tech document skill ..city power eskom online ...sars ,sarb on line career dtic dst nrf ,,saps met 
+Epm ...published
+University Atlantic international..
+- technical engineering.isot Kinshasa, unikin,inpp, biliotech on line .. career 
+	
+	
+ 
+
+-resource documentation career guideline..
+
+7.10. question/ answers:  review 
+Mining qualification authority mining and minerals sector: 
+- vision , mission, valuable, continue leaener
+- overview :mqa learning career sector:
+- role is department of mineral resources : mendatator dmr ..
+-
+Summi: scares ...
+Useful for: subject future career , school leavers decided career , skill advisor 
+_ wath is the purpose of mqa : staruoe term act 29 registration seta ..mining ,skill act no..
+- core function mqa ..
+- about the mining sector : sector,mining .
+- why choose a career mining sector 
+How to make career , employee sector ..
+- wath are critical cross ..
+- problem identification and evaluation b.
+- problem identification.mathematics numeracy ,,
+- interpersonal, conflict team working..
+* 10.2 planning in a career in mining minerals sector ..
+
+- scares skills : 
+- occupation  categories.works opportunity mining ,manger professional ,technicia trades workers , machinery operators drivers , elementary workers laboures ..
+* 7.10.understanding qualification in the mining ,,
+- nqf : national framework .
+- ofo : organizing for occupational..
+* Learnerning programmer : 
+Workplace experience programmer :
+What is is workplace experience :
+- what is expected of a learner.
+- what is expected of an employer 
+- identify the company.
+*7. 10.3 internership programmes:
+- what an internership program 
+- what is expected of an intern
+- wath is expected employee 
+* Learner ship : 
+- what is learner program .
+What is expected employer
+- learner sh agreement..
+*Skill program.
+- how to access the mining skill 
+- adult education training foundation 
+..10.4..artisan career options in the and minerals sector.
+- artisans :
+- overview of artisans .
+- why choose the artisan career options.
+- list trade qualification artisans 
+- package ..
+- professional career ,, engineering 
+- learning paths and career paths : 
+* Financing your studies: 
+What is bursary, 
+- company grants ,mandatory grants ,
+* Sector mining learn ,coak base,gold, platinum,diamant,cement ,lime aggregate, jewellery manufacture, extraction petroleum and gases,service incident, vanadium..
+- hard fill occupational | ofo | reason challenge.
+- mining .. geographic 
+- mine planner
+- mining engineering 
+- rock engineering 
+- surveyor 
+- rigger
+- diesel 
+Boilermakers,,
+Geography location ,lack of planning sector 
+___
+Occupational categories: 
+Nqf | occupational catego| ladder
+8.10 to 1| category 1 and 2 : production manager,mining engineering technology 
+- category technician and trades ..mining technician..
+- category 7 machine operator drives : drillers miner..
+- category 8 elementary workers and laboures : mining ..
+- mainstream career ..
+Position | position requirements|| time frames|||| mentoring 
+
+_senior foreman | grade 12 coak ,head superintendent 
+- foreman | 
+- senior operation controller .
+- operation ..
+
+9.7-2 mainstream career operator to foreman..
+- plant production manager ... engineering / 
+9.7-4 career master technician plant _____
+_____
+Answer entry exhibition outcome academic program 
+Program experimental work in order completed employee..
+- to complete structure portfolio evidence meet requirements practice training.. university student..
+-answer learner project insurance b university cost ..
+- intern ..
+- type learning, mineral process, base metal,sand ,rock engineering understanding, hygiene, operation preparation cutting polish braking ..
+Granted abet
+____
+Career | qualification| scope duty
+Plant operator| trade test |
+Engineering| n diploma..
+__________________&&&&__
+\
+> 
+	
+	
+	
+
+
+10.Question answer..
+Reference: science innovation dst ,nrf saasta,ndp 
+-self help guide to my future career in science engineering technology.
+
+- career name :.......
+- what will do in this career .
+- what tools or equipment will I use
+- work environment.
+- work environment 
+- work outdoor, work indoor,work an official 
+- work a laboratory , work in a classroom,
+- work in consulting room
+-what are the personality requirements.
+- wath subject need to take ..
+Who are possible employee for this career
+- name career that or similar to this career ..
+
+- level of study:
+
+- nqf 4 matric  yes ,college or university yes college diploma nqf5 or 1st years nqf 5 ,,diploma ,2 years nqf6,my academic national tvet college  ,how long study ,,you have done little bit if theoretically studies after tvet but mainly practical studies work , professional engineering technician..
+-degre 3 years nqf 7  , bachelor n diploma  have completed time undergraduate or national diploma  , professional engineering technology or science..
+Nqf 8 honor degre b engineering 4 years full time received professional qualification, professional engineering natural science..
+Nqf9 master degree  you studies 6 years have master , professional engineering natural 
+- nqf pdh 10  doctoral degree ,8 years full time research lecture and academy work , professional engineering 
+
+- professional design ,ecsa ,saxnaso ..hp sa,,..
+- finance future
+
+
+
+
+
+- 
+Self assessment questions who I m ..
+- design mechanotechnic equipment.
+-using geometry to design product 
+- using science to develop new product 
+- managing construction project 
+Total score 3 point..
+_____
+One of my best subject at school is physical science 
+- studying chemistry 
+- conducting experience lab 
+- solving complex mathematics problem 
+- researching scientific problem..
+___study the and atmosphere 
+- studying earth from rains and from floods to fossil 
+- studying other planets 
+- collect rock water to conduct experimental 
+Doing geometry..
+_____
+-solving problem with he help of computer 
+- writing computer program 
+- design and installing computer equipment 
+- research the latest computer technology 
+- using mathematics models to design computer...
+------
+Studying human anatomy.
+- doing biology 
+- studying chemistry part degre 
+- treatment people or animal with are risc
+___ studies chemical interaction that occure with a living cell .
+- studying animal behaviour.
+- studying organisms and microorganisms 
+- doing environment science projects at school 
+- studying the process of how an organism forms ..
+
+______________.
+- record results 
+- field | 
+- engineering science.
+- physic chemical science 
+- earth science 
+- computer science 
+- medical science 
+- life science 
+Social science..
+_________
+Reference biliotech 
+
+* Science base based career ..
+National science and technology forum
+Technology engineering...
+- 4 ir related career field .
+- engineering career field
+- medical field
+- mathematics career 
+- career field requirements creative 
+
+	
+	
+10.1 
+
+Reference: nanotechnology public engineering / science technology department science and technology 
+Republic of south Africa..
+- NRF  national research foundation,sassra .
+
+Question/answer .
+Nanotechnology and water ...
+
+- nanotechnology and water .
+- wath isnano technology.
+- how small objective in nanotechnology 
+- where does our water come from 
+- how can nanotechnology make water safe to drink.
+Activity 
+* Nanotechnology and medicine:
+- what is nanotechnology.
+- how does our blood move in our body 
+- what is cancer .
+-how can nanotechnology help to figth cancer .
+-* nanotechnology and energy :
+- wath is nanotechnology .
+- what does  our energy.from .
+- how can nanotechnology help to build better solar panel..
+* Nanotechnology and mining:
+
+- what is nanotechnology.
+- what mining is done in rsa .
+- what are the dangers of mining .
+- how is nanotechnology being used to make mining safer ..
+- activity, activity,..
+- activity 
+Answer nano technology is small things ..mean :size nanometer ,10000000000.,1 billion,10 MN .1 micrometer ..
+Lesson activity:
+-
+Write daily activity need water..
+- parts examination: ..
+
+Lesson battery 
+Electrical resistance , component 
+System 
+- written an investigation question.:
+-;write a hyt for your investigation.
+- procedure for the investigation: 
+Make hypothesis...step  idea .. connected equipment.
+- analysis your data ,brightness
+Conclusion 
+____________________________
+Nanotechnology in electronics..
+- what is electronics industrial: 
+Conductor copper ,modern integrate circuit b , silicone semiconductor,modern television, microprocessor,price.
+- nano electrical : current and future application.
+Origine  computer semi conduct indt.
+- molt electronics.
+- organictligy emitting diode oleds ..touch screens ..
+- improving batteries ..
+- risks and safety issues..
+- key issues to consider.
+- future risk assessment in industrial electronic.  
+
+
+________
+Nanotechnology .in agriculture and food industrial..
+Nanotechnology.
+- application in agriculture: 
+Na agrochemicals.compagny, fugacity plant 
+- nano based sensor and precision in farm .carbon detective nanotube ,
+- nano biotechnology.risk
+- animal feed and animals production..
+- agriculture.
+- safety of nanotechnology .
+______&&
+Innovation in nanotechnology is helping to address south Africa health challenge..
+- diagnostics .
+- biomediy imagine ..
+- therapeutics ,target delivery system 
+- slow release drug therapy.
+- phothermal and hypothermak destruction of cancer..
+________________
+- nnanotech in industry.
+- nanotechnology: l
+- a role for industry: for the costs ignoring nanotechnology 
+- collaborating and industrial innovation . research laboratory..
+- benefits :
+Health safety ..
+Nano facilitate..
+Centre resolution..
+Material semi conduct..
+- characteristics coated particle fuel high temperature reactor...
+-_____________
+- nanotechnology in textiles .
+What is nanot.
+- wath the natural of the textiles industrial,clothuv textiles marketing ..
+_ how ,  national research foundation national facilitate .
+The application of nano material and  nono  textiles industrial fabric strong ..
+- nanofibre 
+
+- nano material to keep clothes cleaners while you wearing them ..
+- nano particle with antibacterial properties,,
+Nano - Ag, particle titanium dioxide tiO2,, zinc oxide..
+- ultraviolet light protection: DNA ,zno oxyde zinc ,, 
+Water repellents clothes ..
+
+- antistatic fabric  crackers .
+- safety wear , palladium ,pd catalytic substance..
+- making colorft fabry from all angles 
+
+> 
+	
+	
+	
+ 
+
+-12. engineering research b,examine problem product solution to problem,exam problem  use natural resources harness force natural use / provide material use machinery equipment optimise information maintain infrastructure organize
+___________&&
+- the allied health professionals council south Africa..
+- the ahcsa mandated term ..
+-; accountability minister health . advice matter Allier professional..
+-;the council mission statement : regulation ,giver activity, legislation,trading base ,maitah. Realistic goal ..
+- Ahpcsa.
+- composition of council: 16 member ..
+- professional boards : Ahpcsa ..
+- council structural: professional board : chine medical , chiropractor,osteopay,homeopathy,naturopathy phytherapy, therapeutics, aromatherapy.messagev
+__________
+
+Review merseta 
+- contents : 
+- seta news , talking notes,
+- view from the top .
+- succes stories : 
+First lady automotive machinist .
+- highly skill man building .
+- feature : workshop artisans ..
+Turning .
+- industrial news :
+Manufacture product registration ....
+
+Teach project energy conservation,
+____
+Question/ answer 
+- about merseta 
+- determine your level on national framework qualification.
+- which vocational occupational or professional are possible.
+- skills program.
+- registration of a skill programme by a training provide 
+- recognition 
+- the difference learner ship skill .
+- tvet ..
+* Subject manufacture and engineering sector ..
+- level 10| framework nqf
+- doctoral degre professional 
+- master degree professional 
+- bachelor honorable 
+- bachelor degree advance diploma 
+- diploma advanced certificate/ occupational level 6 
+- high certificate.
+Nation 
+- intermediate certificate grade 11
+- elementary certificate grade 10 - general certificate grade 9 
+- skill program part qualification.
+- purpose,,: 
+- skill; program company training.
+Learner: description,: learning process theoretically knowledge 
+- condition 
+- process: learn existing employee new determine qualification 
+- training remuneration: employee workplace registration.
+- assessor register company opportunity.
+- a learner is selected through the company ..
+- learning agreement is signed employee tripartite.
+- learning process discuss..
+
+- learner bot completed b
+- learn register b
+-| description| the apprenticeship system well technical including theoretically component trade achievement artisan status.
+-; condition| auto | metal | motor 
+Trade test experience.. diagram illustrates b: quality assurance assessment trade test , subject relationship schedule b..
+- program | nated subject n course | ncv | nqf 
+Minimum requirements|
+- duration to test trade test : n1,years work place learning ,ncv 
+
+- advantage and disvantage: upon completion institution approved practice workplace component national trade test must successful completed an artisan ,after completed n2 learner find with employee a trade qualification ,work praticaj learn program theory ..
+
+	
+	
+	
+ 
+
+--? 13.resource: chieta : chemical industrial education v. .
+Chemical industrial training authority.
+- wath are acarce skill: 
+Engineering chemical engineering, mechanical engineering, petroleum engineering, pharmaceutical Marin engineering sector special occupational tinters flavourist architecture glass special and glaziers and chemical ..
+- learner ship..
+- apprenticeship: professional do if glass and glazing material , cutting and riming security ,
+- ammunition fitter : explode explosion remonve shift earth rock other ..
+- qualification ammunition fitter : 
+National certificate : ammunition fitting .
+- national operation mobile explosive manufacture 
+- learner ship,,
+- instrument mechanician ..
+- bachelor of pharmacy science.
+- process engineering ...
+- what qualification do I need ..
+- agronomist: 
+- chemical production machine operator : manufacture blending , mixing,refining ,priming , granulated,gazing, recrystallization, crimping,packing ,load and transport of chemical explosive .
+
+_______________
+12.1Reference:career isett seta career opportunities guide 2011 learners and leavers , university of technology leavers university leavers
+- school : school leavers matric education entrance .
+- school matric ,bursarry , work environment course 
+- training institute b,ICT occupational 
+Occupational:nqf level 11 to 8 
+-computer network and system engineering 
+- development program 
+- ICT business analyst
+-ict customer support officer
+- software engineering 
+- electronics engineering 
+-computer system technician 
+- ICT support engineering 
+- ICT system test engineering 
+ICT security specialist 
+ICT project manager 
+ICT sale represent
+- system analysis 
+Databae admnis 
+- telecommunications 
+ICT quality assurance ..
+____
+Occupational | recommend it skill|| recommend it skill 
+ICT project manager | language cc java web development skill ado net .asp net window,mobik apply database || leader development project 
+- ICT sales representative || business | sales skill product knowledge product.
+ICT business analyst || business analyst it diploma || business analyst 
+- system analysis | system analysis..
+- development ,sao telephone ..
+
+Task skukk ,design development ,analyse , development internet site mixture creative soft programming, script language design digital animation graphics communication with network , regarding web issues security site control ..
+- analysis programer need production requirements document ,system plan ,encode ,test debugs , document application.
+Research consultant evaluation program identify technology limitations deficiency correct verrir testing , debugging ,,
+- software design modified document installation ...
+- database administrator : plan , develop , configure , maintaining support database management system ensure data integral security backup ..
+ICT security : established management administrator ICT security policy procedure  recover ..
+- computer networking system engineering ,plan  develop deplo test optisn ,state configure networking system operating systsb ...
+ICT quality engineering : plan ninf design. Configure , commissioning telecommunications device networking, system audio radio 2eays micro data satelit digital data  manufacture evaluation compliance drawing approval determine hardware software,prepare interpersonal transformers , circuit breakers transmission line equipment identify analyse problem clarity ,up date ,up graduate new system,.- ICT customer support office , education guideline depot maintenance computer infrastructure resolution of technical problem issues determine bhatd requirements respond installation download b,,
+- ICT  support engineer: development support creat procedure instructions manual,in support process diagnostics..
+System test engineering , write test plan test script test case regression testing uses automated test software application test functional integrate system document results of test 
+
+> 
+	
+	
+	
+ 
+
+-13.1 inseta career guide :
+Resource hed in the right direction.
+- introduction: ever considered career in the .
+- what jobs are available in the insurance: 
+- short term insurance.
+- life insurance.
+- pension funding.
+- risk management.
+- health care .
+-* learner ship and internship offer ..
+- inseta  work offers a combination of theoretically and practical experience that nqf register qualification it for scht leavers matric spend time learning and working in insurance environment guideline mentoring, qualification are national registered and address specific need in  employment workplace all theory in classroom and tuition cost are covert received monthly ..
+- learner ship are generally..
+
+- although there  level 4 long term insurance level 5,6:wealth management nqf level 4,5 .
+- bursaries and work experience programmes offered ..
+- inseta are granted in accordance. Need critical and scarece campagnir pay levies annually can for selected ..
+- work based experience programmes :
+Some qualification mainly tvet college have practical workplace experience before qualification are met  , work base experience ,WBE ideak for you  get all necessary exposure and exposure of the workplace to satisfy those certificate requirements ,this work programme ,include visited to company ,job shadowing various other activities to booster exposure 
+* - insurance broker 
+* Financial investment advisor 
+* Insurance agent : underwriter 
+* Actuary .
+* Loss adjustor
+* - high school subject : 
+Financial services : financial advisor and intermediary service act ,37 of 2002 fais act , requirements person that financial obtain license through fsb financial board license process part their learner ship and internship program 
+- insurance broker: 
+- requirements at institution : 
+- successful completed the level 1 regulatory examination re financial fsb relevant module level 3 ,passing exam proper compliance financial  entry career degree possible learner ship that result various nqf level 4 and 5 qualification employee 
+Career tvet private learning institute.
+- entry must meet , category E,stage covers training, duration 
+- all workers outstanding can enter : employee insurance sector meet course minimum entry , category , criteria to allowance student path | 3-6 month , employee no stipens all age 
+- all workers with outstanding qualification can employer , employee in the insurance sector and meet course minimum entry , category c , criteria to allowance ,12 month employee no stipens bursaries for all age
+- all graduate can enter ,nsc,nc matric plus 3 years diploma degree category criteria ,6-12 month unemployment inseta stipend 
+- all learners nsc/ nc matric English second category A ,criteria entrance , employee v..
+___________&___
+Career guide research 
+- job overview:
+What work will you do : an electrician work in commercial industrial install repair and maintaining electrical system heat light power control signal or fira alarm type building structural b mechanical and architecture and electrical code specifically to determine wiring layout.
+
+- cutting threading , bending, assembling and installing conduits and other types of electrical conductor enclosure and in walls and floor .
+- position maintaining and installing distribution and control equipment such switch relay circuit circuit breakers panel and fuse enclosure.
+- installing data cabling or fibre optic and system and 
+- testing circuit to ensure to integrity and safety..
+- recommend: must least 16 years ,good communication read skills , mechanical ability strength and Manuel dexterity.
+-;the ability to worh at height s.
+- the ability to lift between 11 and 25 kilograms.
+- the ability get  longer job .
+- ability to do very precise work expert and  ability work at a variety of excited task..
+-access or entry requirements.
+9 minimum grade .
+- subject.
+Compulsory subject ..
+- training routes : routes towards being qualified artisan apprenticeship program 2 ,4 years plus trade test ...
+-possible employee opportunity ; manufacture and engineering sector .
+- municipalities 
+- government de department 
+- energy supplier entities
+- industrial companies 
+_____________
+Career guide merseta .
+-what work will you do : a pipe fitter disambiguation repair maintaining fabricate essembles installs and quality assures pipes system in accord with design engineering codes and specifications taking into consideration health safety requirements.
+- a qualified learners will be .
+- maintain pipe system related components applying removal inspection installation technical in accordance with pre defined specific.
+- fabrication pipe system in accordance relevant specific .
+Participate in quality assurance and testing procedure of pipe system and related components in accordance .
+
+- recommended interest and skills attributes.
+/.must be least .
+Must be meticulous accurate must be practical,enjoy working with hands .
+- have mathematics aptitude be responsible and ,be able three dimensional.
+- compulsory b.
+Subject.
+- training .
+- avenues to be qualified artiu, apprenticeship..
+_____
+Construction industry ,large works ,mine,large plant and factories 
+_________
+
+Ref: nyda gov.za 
+
+Mentorship programm:
+
+- practical .
+Process established respective business the first phase of approximately six months facusr on development entrepreneurship skikk identify and evaluation a business opportunities business planning process as well a testing the viability of the business plan .the second phase assist metted with gathering resource to establish the business plan the second phase assist mentees with gathering resource to establish the business the process combine theory and practice to provide basic skills and enable mentees to apply that the learner from mentors respect.
+- the programme emphasis the each mentees play an active role in their development .nyda provide guide learner completed modules assignment..
+
+- who qualifies: to become a mentees .
+-rsa between 18 ,35 of age ,51% ownership in business.
+- must have start up existing business 
+- have micro or small entrepreneurship 
+- must be self motivation and prepared to lead their development process ....-
+- business least 3 years experience in relevance industrial.
+- must be experience manager and entrepreneurship.
+- retired professional.
+- be entrepreneurship development.
+- ________
+Cooperative: cooperative autonomous associate volunteer to achieve common economic social jointly ...
+- kinds of co - operative: housing  cooperative,workers co- operative, social co operative, agriculture co operative, financial  service .
+- consumers co operative 
+- marketing and supply co operative.
+- service co operative..
+* Co operative models:.
+- workers co- operative provides member with employee opportunity and income  member both workers and employee band should understand that..
+- user cooperative: are former entrepreneurship..
+- value co operative.self  and self reliance : members should always rely external help to get .
+- self responsible..members are responsible make their cooperative work.
+- social ..
+- equality : every member must haves and equal ..
+- characteristics of co operative: 
+Co operative are different from their entrepreneurship because.
+User benefited ,.
+User ownership
+Have duaj functional 
+- principle of colera..
+* Co operation registration requirements.
+In order .
+Requisition supporting documents..
+_____________
+* The gauteng youth commission in partneri with gauteng provincial.
+-;making gauteng ..
+-;youth policy advocacy...
+- decision making legislation 
+Through portfolio commi..
+- in youth development and economic opportunity .
+- on job creation  youth cooperative..
+- on education and skills training for youth :
+Education institution ,student learner ..
+- youth wellbeing : test program health
+- youth civic education and participations in democracy.
+- GYC step program electoral process voter registration .
+Life skikk : wide ranging education program .
+- on sports and recreation.
+Sport .
+- on reaching ..
+_____SEfsa training center based in metal industrial herland 
+
+
+	
+	
+	
+ 
+
+-14.WARSETA:
+Career guide:
+- planning your career :step planing career ask ,life orientation or vocational guideline counseling .
+..self assessment focus.
+- interested: path,value, personality, personality types need for retail career .
+- wholesa and retail career path identification  
+Rental ,planner ,buyer
+Order , cash officer clerk
+- credit ,visual merchandising 
+- sake account credit 
+- learner
+Wath  is a learner ship  learner ship struct work base learning program comprise  of 70% practical and 30 % theoretically trading  results national recognize qualification.againsv..
+- apprenticeship is technical system that practical and theoretically trading apprenticeship are different learner ship that job orientation and related to soeciutrade ,good marks selected ..
+An employer offering apprenticeship training training must work learner in designated trade term manpower act get n2 certificate relevant tvet college employment b pass trade..
+- level high education qualification subframe work and Qcto  qualification occupational qualification framework 
+-doctoral degree doctoral level 10
+-master degre master degree professional level 9
+- bachelor honourable postgraduate.level 8and occupational certificate.
+-bachelord  degree advanced 7 , occupational certificate 
+-;high certificate 6  occupational certificate.
+- high certificate 5 level , occupational 
+- general and further education training qualification subframe emalusie
+- national certificate 4./ Occupational certificate 
+- intermediate certificate 3,/occupational 
+-elementary cery2/ 
+- general certificate..
+Retail qualification in higher education..
+__'___________
+
+> 
+	M
+	
+	
+ 
+
+15.Reference: saice , 
+
+construction project management encompasses all branches of civil ..
+-Wath is civil engineering : civil engineering is professional engineering discipline that deal design.
+- who are civil engineering practiners :
+ Relative thinkers and problem.
+- interested in improving quality of life .
+What do civil engineering practiners do :
+Plan design and build infrastructure,examine environment ,carry necessarily ,communicate client supervise prepared plan execution the construction.monitor ...
+- which degree diplomat and what do I need .
+- grade 12 ,4years,post Grady's ,, technical pratique.
+Technical and technology..
+
+	
+	
+ 
+
+- 21. course name | course date | location| cpd accreditation number ||| course presenter |||| contact.
+- principle and practice of facilitate management for engineering.
+-legal liability mine health and safety act ,MHSA act 29 of 1996.
+-road to registration for candidate|
+- road to registration for mature candidate.
+- road registration for mentors supervisor and hr practitioners.
+- basic contract administrator quality control .
+- getting acquaintance with GCC..
+- getting acquaintance with geo synthesis road .
+- getting with sewer design .
+- getting acquaintance with water resources manager .
+- pressure pipeline and pump station design specifications and practice .
+- adjudication and arbitration how to deak with challenge to jurisdiction.
+- project  management of construction projects
+- structural steel design to sans 1016-1-2005
+- reinforces concret design to sans 10100 - 1-20000
+- practical geometric design.
+-leadership and management in engineering.
+- water low of south Africa 
+..- legal process dealing with construction dispute.
+- earthmoving equipment technology and magement for civil .
+- concret for contractor consultant.
+-durebility repairs of concrete..
+- legal liability occupational and  safety act ohsa.
+- construction regulation from legal perspective on.
+
+_________________________
+Evaluation 
+
+-- award categories: 
+Technical excellent category ( 19 projects)
+- community - based category 9 project 
+- international category 6 project 
+- institution awards division awards , individual awards ,and photo competition..
+- project adjudicators: team .
+Project submission for ajucator
+- technical excellent category: 
+- the project shows notable advancement in the application news existing method of design construction project .
+- the project portays the ar and science civil engineering.
+- the project is functionally efficiency 
+- the project was well managed and completed on time .
+- the project environment and community..
+* Summary:: design flats bulk  .m/ s cube project  piling tunelling 5 km route ..
+* Project desct: city town existing , completed ..
+* Route engineering and public liason..
+- barometric loop and vortex drop structural 
+- micro tunnelling 
+- in conclusion 
+
+* Pedestrian bridge : 
+Summary : cable highway ..
+- project ..
+Conct.
+*Construction reservoire water treatment works ..
+12 ml .munuct pumped..
+* Human settlement project ..power house
+* Community water supply project ,,1500 inhabitants ..
+* Upgrading of road ..
+- instruction:
+_______
+*From the president ..qua vadis civil engineer.
+- opinion.
+- railway and harbour engineering..
+- job creation and skills development .
+- collusion and corruption: 
+- fallacy ..
+- ecosystem recovery 
+* Railway infrastructure  academy 
+- module 1 feasibility and systematic design : 
+Session 1 feasibility and geometry design 
+Session 2 track design .
+Session 3 overhead electrification design .
+Session signal design .
+- module 1.
+- infrastructure maintenance management.
+- combination track and ohte session .
+Infra  maintenance  strategy and management.
+- risk management.
+* Track maintaining breakwat session .
+- session 3 track material and maintaining 
+- session track constellation and renewal ..
+- ohte 
+- substation maintaining 
+Static load test .
+- bluff reclamation.. drawing n1.
+- section of quay wall - 30 ft ..
+* Introduction : 
+
+* Marine loading arm versus : 
+. efficiency load loading arm ..
+Design life 
+Safety v.
+
+- pipeline arrangements.
+- installation .
+- flexible 
+- criteria for berth .
+- type and size load arm .
+- comparison of model results with measured data ..
+Modelled changed in bed level bid bay trend are indicai ......
+Movement horizons countourn .. function data 
+- correlation with forcing mechanisms: erosion accretion revealed  astronfj offshore .
+- conclusion v..
+Acknowledge ..
+- acknowledge 
+- points  .. distance.ht atk 
+- land surveyors ..
+- point | distance top | hr lat ..
+* Land surveyor ..
+Coastal engineering 4
+- civil engineering .
+Mechanical engineering 
+- coastal ..
+- results summary.
+Site | range | altitude lat | standay device
+..
+* Age distribution of all analysis responders.....
+
+
+Results of and observat: 0 to 15 years experience and closer to come  categories engineering practice , responsible technical . theoretically technology b..
+- gross annual salary R.R20000 00/ 12 month ..funct number of years experience 0-5,6-10,15
+
+..not regt , register a candiy, professional candidate..status . ..
+_____________&&&
+- news from the saice diversity and inclusive panel : tackle .
+- on the cover .
+- construction and project management:
+- in brief .
+Distribution board ...
+- non stop process
+* Construction stage 1,deck concret pour high road infrastructure.
+- project description: 
+- a grade separed interchange . elimination .in order ..
+- bridge ..
+Walks 
+- piling ..
+Pile caor 
+- temporarily deviation.
+Change order process..
+Contract name :
+- client 
+- consultant 
+- contractor 
+- special subcontracy..
+24.Overview 
+_________
+* Background : 
+- client requirements 
+Pavement 
+50 mm ac surfacing.
+200 mm G1 base
+409 mm C3 subase
+150 mm G7 selected subgrade ....
+- historical review : reinforcement of road studies  ,cost , quantity , transport ....
+- layout of trial section:
+1.lateral restraint
+2 increased bearing capacity due to creasing length shear surface.
+3 tensioned membrane effect
+- verify the effective of geogrid a field test is still regarding essential historical blood testing falling weight deflectinetry .
+- fwd we used verify ..
+- present research : geo synthesis where used weak ..
+- project description : date ..size 20 m section construction m .m control section..
+- results from dco test: modules..
+X8,y5  secan moduli stages ..
+Moduluis mpa .0 to 80 .. pressure kpa  25 to 525 ..no geogrid stage @ ,no geogrid stage 2..
+- depth .mm BGL ..DCP testing   
+- the pLT test plate in relation layer ,kn/ m exerted 450 mm diameter steel plate ,29 stage ..
+- displacement mm to applied pressure kpa .x2,Y5 ....
+- drone usage construction ..
+Introduction predetermined operation remote advance ..
+- drones : gors control ..
+- aerial photography .
+- inspection: building conductive.
+- surveying: survey data gors .
+-* safety on site : officer to communicate emplt.
+- security monitors: security construction .
+- project progress report .
+- advantages of drones in construction.
+- refidity missing component in base plate design : 
+- base plate design procedure : 
+- fastener design regulation:
+- duration of case  project in day :
+- original estimate duration 
+Actually duration 
+- simulated results 
+Minimum duration 
+- mean duration 
+- stabdar .
+- coefft of deviation 
+- finaj duration restjt 
+Simulator results 
+* Proposed construction program..
+_____
+* Parametric optimisation of railway track structure:
+- background: rail track been cost effective environment means .
+- objective: one find ways maintaining acceptable .methode caliber modejb
+- couple type locomotive conf..
+- planes of symmetry plane ..
+Indicating planes of symmetry..
+- project desct: the test capture data defllectimeter..formation
+- maintenance phylt and process :
+Step preventive maintenance, maintenance strategy,predictive , condition monitors 
+Structural condt,mainline turnouts annual,years ,, geometry measure , ultrasonic, inspection safety ,foot patroking ,trolley inspection ,fooplate,maintelune ,,
+- condition assessment inspection process
+- primary intentions: structural assessment, geometry measure,safety inspection,foot patrolling,trolley inspection,footplate..
+- primary intentions: obtain comprehensive set determi , obtain geometry,determine whether set is safe,record and report defect and fix minor,assess ridgin quality over set and record defect ,assess riding quality over set and record visibility defect.
+- methode measure record  parametric and visit assessment, geometry measure machine , visual Data measure and conditions rating ,turnout track quality,whether in safe , condition,of certain component, visibility defect 
+- frequencies , annual for mainline set two yearly ,six ,
+- evaluation criteria : very poor , poor but acceptable,good,very good ..
+Extract from model calculation the condition:
+- set number | odti
+- location section| 
+- inspector date 
+- set type | turnout left hand | 1:12|| reference clause tm 2099|| standard v|• stand ||| max / min ||| field measure condition 
+* Ballast | ballast depth blade area ||mm
+* Sleepers ||sleep blade area
+* Fasterbing 
+* Formation 
+* Clearance
+* Component 
+* Gauge..
+- condition index determination: 
+General condition:
+C1=Wc(C*/(1+fg)+0,6R)
+Wc= criticality weighting 
+C= %of component with 0 rating
+R=%of component with 1 rating
+F= factor for % with 1 rating..
+______
+Ballast = 5Wc
+Sleepers=15
+Fastening= 10
+Formation=60
+Gauteng 5=
+* Element 
+Multiplier factor % repair 
+% 1
+Safety condition : deraillemrnt investigation conductive region ,excessive side crow wear on stick rail , excessive stock guard gao research from other parts also major contributor .. safety condition..
+Cis(S)=C induce 1,expos 1,15+0,1C1S.
+Where 
+C1= condition index ..
+S= Ds+Dg+dg
+Ds = number deflect on switch ,DC number defect for deflective gauge
+Dg = number of defective 
+
+
+- 
+
+> 
+	
+	
+	
+B 
+ 
+
+
+
+> 
+	
+	
+	
+ 
+
+- what is ambient ,air : portion of atmosphere outdoor,air nitrogen 78%<, oxygen 21%<carbon dioxide 0,03% ..
+- why do have to monitor ambient air : legal requirements term magement act 39 of 2004 ...AQM ..
+- how does air population affect : industrial mining v.
+- how do we monitors air pollution. Communication...-
+- measure station measure instru ..
+- what is measured : 03 ozone PM10 particular matter ,than 10 micro ,S0 2 , sulfur dioxide..
+-
+- other pollutants of concern that are measure,,
+- wath are ambient air quality ; wath does. ..
+- what value does the data possess :
+The monitor data monthly quarter annual report..SAAQIS....
+Biodiversity conservative environment 
+_____&__
+- deployment of drought tolerance and insect protected maize to smallhold farmers ..
+- introduction : make farming risk  crop production maize food ...impact negative animal.. season summer ..
+* Aim objective : project private..
+* Methodology: site region hybride mise planted ..good plot analysis gri
+
+* Results: 
+Maize variety was best performance ..
+* Conclusion and extension implications.
+Gain quality good farmers picked gain knowledge on good agriculture ....
+______
+Farmers register campaign : collected coca census of commercial agriculture.daff ..
+- what is the producer farmer register campaign fpfr : is statistics..
+- key appointme council gauteng economic development agriculture rurak development ..
+- key responsible :
+-- rurak chef cooking skill ..catering business fod.
+* 
+
+	
+	
+	
+ 
+
+-23.reference research resource bibliotech ..
+Public open bar ,and shopping. Center magazine research.. reward award comment club .
+* Submission education casebook,case file ,file magazine file chain supply close requirements 
+* Issue title isbn authority text book learning judgement learning attorney bargaining.
+* Reading access memory judge ,only processor record transcript land claim development review court book appeal correct overview small clam master high court clearance sars business close submitted report psira sasseta ..
+
+
+|25.1
+__| Issue title ||| topical resource counter ||| prices ||| order project case ....
+Trade test .. bulletin trade magazine collection 
+
+
+Question/ answering explanation 
+- south Africa number 1 learnerning cover the test officit test sylt k53 || PG 6 license test quality PG 7 ,PG 41regulator ||| R59.00|||| 59.00
+- driver made easy for figth monitor |• ph 33 road test stopping parking inspection examination drawing test cover point check PG 112 ,  order R65.00
+- learner and driver license test k 53 for car bike truck : pgg 33 control of round test stopping ,order R340..
+- Honda civic no 110pg hayen service and repaired include round side made round side and test checkers : weekly check PG road sir maintaining process convers : order 340.
+-knowledge master how thing working ,,vet 14.15 vehicle safety and security pedal PG 22 iron and PG ,18 road ,R 49,95 
+- smart kids science : PG 22 iron PG 18 ,R 149..
+- process instrument technology : PG plastic | R 252,R 149
+-chemistry Cambridge PG 204 ,PG steel work ,1198 examination R 242
+- chemie PG 2g 204 ,,PG 188 chimie gaz ,R 137,5 
+- Cambridge master skill of 2pg 19 ,, PG electronic PG 100 diesel ,R 137,5 
+- invention over time inside ,PG 42 ,,R 92,
+- car road test 2011apriln drawing structural ,R 27,9
+Car ,2011to 2012 ...: science motoring. Mechanical , road test specifications,PG 188 electron tech document, technical stops ,stop star alternator batteries,,driving impression fast fact ..case book drawing Armstrong 
+Layout engineering 
+PG flying ,, PG 180 tech ,,PG dive inject 
+- July 4×4 advent  document 
+March t December PG  document society ,steo manufacture,drawing power fuel technical specifications ,pump turbine brochure civil circuit ..
+- body shaft drawing  development ..
+Max my tube ,
+Car in action ,armed assault methyle  document ..
+- December 2919 magnum  remaneb game fire cleav,knife testing fire results, fire control artiste  order. R 31 , manufacture technologies machine,
+Autumn 2011 ,,
+- engine engine PG document given document ,R30.
+- august : document wallets 
+Flyer ..
+- top car : option test suggestions examination R28,85 
+- case book document 
+- April R28..
+- x kit the definitely preparation grade  11 , PG 146 trade R 189,00>
+X kit grade 12 definition preparation ,PG 236 extrusion ,R 88
+- x kit grade chemistry PG bolter ,order R 201,,.
+- mechanical popular ,PG sky limite ,R29,95 drawing engineering internal combustion refin design ,still building wallet case book 
+- green 2011 . monitors road safer 
+- 2012 trade commercial auto R 25.00
+Certification  other  June page machining PG 336,  
+December , popular balance ..,R18
+-;computing electronic document R 14 ..
+- connection incredible : up grade PG grade PC introduction technology information business communication PG ,R 1000
+- PC format , internet  document architecture ,R 36,00
+- prospectus : information communication programmed high techno information language,PC R 100×4 ,,R 100×400
+- electron : document technology ..
+Epe every day avril 20, document ,R105×9= R3667,409
+- book Epping admn accreditation , PG act regulator ,R100
+- 2010 security book ,nogada psira sasseta learning ,ob pocket instruction ,act explain become security provide ,office patrol access ,reaction supervisor, management ,duty  order R100,
+- security training book education , company guard contract 
+- security book employee car guard 
+- security book customer trolley ,, book report induvuypsira , security training car guard.
+
+- industrial.
+Security training car guard industrial , certificate order 100.rand 
+- security fire arm pain bakk ,note syllabus .
+- security partnership card guard . security book correction, psira register ..
+- trade test n1,n2n6 ..
+Power machine ,
+- hydraulic , diesel thermodynamics ,book test license ,business 
+Fluids mechanical engineering ,motor diesel ,
+- power machine ..
+* Submission appeal close guard motor : 
+Assignment motor guard | subject division engineering technical technology 
+
+- cover provide by police ..
+Issue month | power factor | found formulat | methode 
+- gear box Manuel automatic internal component internal include torque convert gears shaft bearing synchrt valve , service ,body nanuej clutch ..
+- differential all internal component crown wheel pinion  career bearing planeu gears exc side shaft wheel bearing s
+- 4×4 front differential unite gube 
+- turbo blower motor  
+Compressor supercharge only fitted as manufacture .
+- breaju system master cylinder wheel clipper abs .
+- sues service inte euber ..
+- steering power steering all internal part steering box back dusj cover .
+- fuej system fuek pump air flow meter fuek accumulator fuek accumulator fuek distribution warm up regulation excluding fuek injection clown plug trimp bodies carburator assembly and failure attributes total to fuej .
+- cooking system radiator water pump thermo switch 
+- case book 
+- warrenty solution 
+- guard vehicle 
+- cause liability 
+- amount 
+- electrical component starter motor windsct seat motor electrical conversation.
+- electronics ignot all solide. Controller trigger unite .lead soarks
+,plug. 
+- managit unit engineering gears box manat gear box unit engine central unified 
+- camshuft sensor lambda sensor excluded v purchase 
+- driver shaft all component cv joint  excluding rubber dust cover
+- suspension wish vone aligt direction.
+& Cambelt and duller bearing break soring teeh exckt replacement I. number amendment, schedule maintaining..
+- clutch release bearit master cylinder and solve cylinder friction surface clutch  plate and pressure exhausted cataclysmic convert 
+& Casing engineering block gears casing different housing 
+- telephone system telecon. Phone speaker microphone charge and gradient recover power convector ttabsdt.
+- internet access system safe unlir dusting wireless receiver satellite recover power transducer guard 
+- limits of liability converted company motor  guard master classic silver gold titanium iron , plastering thermostat years guard towing car hire nots accomodations parking attendant car cover 
+- medical assistant incident,
+- the insurance cover provided,cover by this policing armed ,,
+- vehicle eligible 
+-setllement 
+
+
+	
+	
+	
+ 
+
+- teat average 
+Assessment sasseta.
+accreditation 
+Credit:
+-fisrt name :
+- last name I'd
+Full security level 
+Explain ,
+Scope 
+purpose 
+
+
+
+- specialist security practices explain the requirements for becoming a security services 
+
+
+- in a security environment..
+- use security equipment.
+- responsible .
+- given evidence to court ..
+-Use security equipment .
+- skill programm 2 : sasseta access control officer :.
+Evacuation and emergency drills .
+- apply basic business ethics in work contech .
+- operate a computer workstation in business environment.
+- officer psira grade c ..
+-Coach a team member in order  self and team in order to develop a plan to enhance team member in order apply ---_occupational health vsafety  environment principal audience 
+- and in defined operation area 
+- performance one instruction...-
+- *security first line supervisor psira grade B :.* 
+- supervisor assessment in a definite operation area .
+- demonstrate basic .
+- interpretation and use information from text .
+- performance one instruction.
+- skill program ..
+- sasseta security prevention description the relationship of a junior management discipline action ,interpret and management conflict with producti0n ..
+- other units standards on offer ..
+- apply demonstrate and understanding of the use of different member base and ne ..
+- describe apply analysis and calculate shape language and investigation monitor the financial aspect of personal business .and ecological right in the field of crime and victimization ..
+- use language and 
+- statistics and probability to critical interrogation and effective
+ -communication and evaluate spone..readiness sign text ..
+- write present sign for wide range if cintesc .
+- meeting ..
+- write ..- describe and apply the manager function of an management function..
+- description and apply the management function of a management function .
+- formulate and implemented an action strategic to deal with risk behavior to promote psychological health build a team ..
+- move tactically on foot in team .
+- conductive and organisational ethic at..
+- attend to and management a collision  management .
+- attend to manager a collise .
+- nanage risk in business .
+- transport a prisoner.
+
+> 
+	
+	
+	
+ 
+
+-25.1 reference: pleading index ..
+- retriview file appeal records file move achievement.
+- power attorney appointment petitioner notice motion judge president honourable submission analyze case  login file refund amount order no debater creditor .
+
+Explanation experience court labour 
+Doj ,ccma high court , security private sector policy private .,low relate test award ruling 
+
+- number | description document|| PG 
+- development sector bargaining council procurement  skill pg1-150
+- notice of motion petition petition affidavit|| PG 1-150pg
+- bid close argument record retriview file supply head argument.
+- notice of motion bid || 1-25pg
+- apply for leave to appeal ruling regulation head argument|| 1-15 PG 
+- judgement leave to appeal||1-24pg
+- transcriber leave to appeal be for the honourable madam justice secretary ||1-7pg ..
+- set down.  || PG 
+- rescission ruling. || PG 1-3,,1-2pg
+-list  other employees || 1-2 .
+- enforcement record || PG 1-2
+- order checklist  || PG 1-2
+- affidavit in support services by registration||
+- affidavit in support services by register ..
+- index of leading||1-4 PG 
+- notice of motion proof of service | 1-10pg
+- application certificate case book || 1-10pg 
+- application conduct cancellation | 1-13 PG 
+- form submission analyze | 1-14 PG 
+- application conduct form employee||1-14
+- application social development |•1-14
+- application competence coid uif | PG 1-9
+- casebook learner work book section case book learning..
+- casebook work labour head submission file record .| 1-19 PG 
+- ID diplomat attestation life birthday certificate translation copy Dr congo ..
+- bookepin email..
+- discount valuable 
+. estimate cost proju record 
+- order book .
+- order desct title isbn authority file .
+Order review 19 rand land notice motion no order copy month summary banking ..
+- bid submission 
+
+> 
+	
+	
+	
+ 
+
+- agreement judgement leave to appeal order petition reason bid submission memorandum skill .
+-data of first issues: 
+- document type : learning programme agreement 
+- revised b
+- document number ,ETQA ..
+- settlement agreement and draft order 
+- motion proceedings excluding urgent matters .
+- case management.
+- application to review awards and rulings.
+- application to review award and rulings.
+- application for winding up trade union or employer organisation.
+- index pagination binding and general preparation.
+- heads of argument 
+- postponement 
+- practice note in motion proceedings 
+- urgent matter
+..
+- genet provision 
+* Statement of case ..
+* Description ..
+* Admnis ..
+Acceptance of Questions..
+*-______________________
+- submission.
+
+Fp m seta ..fibre process manufat sector education and training authority..
+- learning programme agreement 
+Learner details 
+- name :
+- surname:
+-ID number 
+- Learning program title
+- learning program I'd number 
+- learner status , employee 
+Fund by seta 
+* Employee details.
+- registered name of employment:
+- contact person 
+Telephone 
+- emat
+* Training provide details.
+- registered name of provide 
+
+* Learner programm ..
+Name of learner programm :
+
+- department of labour registration number of learning program 
+- commencement date of learning program agreement 
+- termination date of learning program 
+- occupational that this learning program is relate , organization framework occupational ofo 
+- name of qualification .
+- saqa qualification I'd .
+* Submission criteria 
+Certify copy of learu I'd docuy attached|yes||
+- copie of three original appreciate agreement for apprenticeship frome the application 
+- copy medii certificate apprenticeship agreement .
+- agreement signed all parie 
+- employee correct ,address ..
+
+*Term and conditions of agreement:.
+- legal .
+- right of the learner : 
+- receive induction the learner programm.
+- access to requirements resot achievement of the specified outcome structural learn as well practical experience activity of orohi.
+- received a written statement results 21datd  final assessment 45 working days learning final assessment.
+- in the case learner .receiver learning program allowance ..
+- seta ETQA ..
+* Duties of the learner...
+- carry out all occupational related work related work employee requirements practical experience activity specific in the learning.. available .. practical workplace ext activity learning program.
+- attended all theoretical learning session and practical learning activities with the training provider
+- completed time sheet and project and participated in any assessment activity that are required for the final assessment at end of learning .
+- undertaker all learning relating to learning .
+* Right the employee : requirements the learner to :
+- performance duties in term of this agreement 
+- comply with and regular concerned workplace police ..
+* Duties of employment : 
+Comply with all duties in terms of the sill development act and applicable legislation including .
+- basic condition of employment act 75 of 1997.
+Labour relation act 66 of 1995, employee equity act 55 of 1998 
+Osha act 85 mine and safety ,
+- compensation occupational injury and
+Unemployment  insurance act ..
+* Provide facilitate and resource for specified practical experience experience activity of the learning program.
+- provide the learner with appropriate education and training to competently performance .
+- conduct in job assessment b for specified workplace experience activity cause to be conduct 
+- pay the learner the agree learner allowance for the duration ..
+- apply the same discipline grievance and dispute resolution process to employee 
+- submission record as requirements by ETQA body .
+* Duties of the training provider : 
+- right of training provider: 
+The right access the learner portfolio of evidence and workplace learning related assessment.
+- duties of training provider: 
+- provide the structural learning specified in the learning program 
+- provide the learner support requirements.
+- record monitor and retain details if the education training provider ..
+- ensure off the job assessment for structural learning component specific in the learning program or cause in to be conducted
+- ensure that assessment again the outcome of the qualification associate with learner program is conducteyat end the program.
+- issue written statement of results in respect learners final assessment for qualification associate with learner programm whirin 21 works days of assessment to the learner seta and eqta accreditation ...
+- suspension of this agreement : the employee and learner have agreed in writing to suspend the agreement ,learner has requested on good to suspend the agreement and the other parties to the learu programme agreement have had opportunity to make presenting.
+- learner employee setting reason  
+* Termination of this agreement : termination date stipulated in part B this agreement.
+
+Learner has successfully comply the final assessment and fulfilled all requirements workplace experience of learning program .
+- learner is fairly dismissed by the employee for reason related conduct or capacity as emplt .
+- seta approves  the termination of the agreement in term  program regulation ..
+* Dispute : ccma .
+- the interpretation or application of any provision of this agreement the learners contract of employment or sectoral determination made term 18 (3) the act ..
+- termination of this agreement in case .
+
+____
+Database of fo m seta learnerships
+Current ETQA | learnerships I'd || credit || nqf |||| linked qualification ||| linked to ..
+.
+
+______''_&&&
+* Merseta granted c ma strategic goal s 
+Monitoring and evaluation: 
+Ccma has established a system that it monitor impact it's offers  goak fairs democracy 
+- strategic objective || sub objective score 
+- entrench the role of the ccma in the labour market |. |. 
+- building skill to achieve professional 
+- delivery excellent service rooted in social  justice enst balance  quality 
+- enhanced and entrench internal process and system for optimal deployment of resource .
+- enhanced the structural that will enat optimt imply of strai .
+- entrench organt supply .
+-grand total ..
+.__________&
+- operational focus || target / objective |
+- pre councillition heard | hear 10% more jurist refered .
+- pre councillition | settle %  more jurisdiction 
+- con / arbs heard / jurisdiction referral process
+- councillition heard ,close more all conciliation including 
+- settlement rate | settle more arbitration 
+- late award | statutory requirements to issue award 14 
+- postonent adjournment : all process
+- average turn : concillt place 
+- average turn around arbitration | 
+______
+Job savit .
+Mediation section outcome 
+Employee like affected | total retrench | force. Retrenchment | voluntt || job 
+- training lay scheme .
+Number job case exercise done seta training commenced not yet completed lay ..
+Number project  
+National skill fund process 
+- totaj application involved number company trade union work 
+- statement of financial position :
+Capital and resert 
+- non current list
+- current liabilities 
+- equity and liabt .
+Fixtuy equipment intagiby 
+- cash and cash equivalents 
+- current assess 
+* Public sector award ,award silver in category best reputat in legal sector .
+* Nomination as of the top tree organx legal sector years in citizev
+
+
+
+...
+
+[Message clipped]  View entire message
+
+
+	
+	
+ 
+
+-26.reference:
+- department labour.
+- purpose: of this form 20 requirements designated employee to  imply an employer equipment which plan achievement b.
+- the objective to be achieved for each years of the plan .
+- the affirmative action measure to implement as requirements 
+- under representative people design group identify analysis numericaj goals to achieve 
+- duration of the plan , longer 
+- procedure monitors and evaluation the impletation of planning 
+- internal in workplace , include senior , responsible for monii .
+- employee details trade name :
+Dti registration name :
+- paye sars 
+Ref
+- industrial sector : education training development 
+Produce 
+Postal address 
+Name surname .
+- barrier affirmative action measure : analysis was conduct in consulting 
+- top management,ee manager,all member 
+We feedback,and input during ee meeting forum 
+- policy recruiting procedure || procedure || practice || start date 
+- adversity position 
+- selected criteria
+- appointment 
+- job classification and grading|| staff placed in incorrect job levels ||| implemented policy and practice job  rectify job level 
+- remuneration and benefit|| no guideline on work of equal  value equal pay  and institution culture re discourage salaries counter policy community 
+- term condition 
+
+* E aE awareness : present employment equity training awareness session to 1000 employee requirements of 7,2 of code good practice prepare plan ensure meanifug consultant ,anti discrimination awareness .
+- recruiting and appointment : under represent designated group  goal target.
+-: evaluation : forum meeting minute attendance registration .
+- review composition .
+- affirmative action measure : implemented if affirmativ identification audit process.
+- record keeping : format keep system utilise retain prescribe document 5 years said will be reviewed updated quarter .
+- all employees will have access their completed 
+*Performance and evaluation ||,some employee di find help motivation applied review performance system 
+- succession experience planing |• deficient skill development new employee and deficient monitors to staff turb ,monitor and review staff
+- discipline measure : 
+snapshot of the current work force profile  disability .
+Make ,femsj foreign national total.
+- top management senior 
+Qualified expert.
+-management skill
+-work environment facility | discipline arbitration  students disabled facility people and access
+- training and development | lack of employment participate initiative diversity anti discrimination award a month all employees.
+- qualification workers 
+- junior management ,skikk ,semi skill discretion ,
+Unskikk and decision making 
+Temporarily employee 
+
+
+	
+	
+ 
+
+-27. reference:
+Unity work designation issue commissioning assessment supply judgement training skill development.
+- Event title : course protection of personal information act .
+- full description : the protection personal act n4 of 2013 popi will directly affected your business although the act not yet in operation the legislation has hinted act will full swing in the near popu in self is very technical and comprise chapter ..
+- module introduction inspector.
+- need data protection law in south Africa prevailing international .
+- general condition: general condition for lawful processing of personal information .
+- specific condition .
+- specific human resources condition for low processing of information.
+
+- practice training.
+Practice 
+Solving scenario .
+- Question and answer session.
+Full description : disciplinary hearing are common occurrence the the workplace and part parcek of the manager and shop daily employee fair practice registration .
+- role of your disciplinary code procedure.
+- code conduct .
+
+- Reporting misconduct.
+-collecting evidence source of evidence 
+- consulting witness and intimidating witness .
+- unwilling hosting .
+Different types evidence how affidavit documentary evidence .
+-:
+Event title : workplace disciple ..
+- counseling of employees 
+- incapacity poor performance.
+- grievances and grievance procedure.
+
+*Title| description || type. ||| Action
+Anti corruption fraude policy : a policy assisting and employee to deal with prevent corruption fraude in the workplace.
+- code of ethics business conduct : a code of conduct regulating ethics and good business conduct and standards requirements of employment when conduct ..
+- discipline : 
+- code procedure with appeal process : procedure setting out the principal discipline  setting
+- discipline code procedure : procedure for employees information 
+- discipline code with  disciplinary procedure for employees 
+- discipline and procedure .purpose this policy company the employee 
+- incapacity due to ill health injury policy : to ensure that employee medical performance.aim ..
+Purpose of this policy to create company and employee to ensure fair and equitable treatment of the employee 
+- incapacity health 
+- master document ,a ..
+Manager : management of files .
+- police master document management : template for human resources involved document an information sheet .
+- policy religious holiday activity b..
+Policy the managing of poor performance .the main of policy is assist human resources employee prevent of and the effective management ensure poot not deak with misconduct but incapacity  management insure them .main this ..
+
+- recruitment policy  . purpose provide fair guideline implemented sheet best recruitment practical in a compi ,give guideline pratique compagne b
+- standards conduct..
+...
+
+
+
+	
+	
+B 
+ 
+
+- 27.reference ..
+Nsf 
+- summary of program requirements:
+- introduction:
+- programm description: 
+- award information :
+-eligilibilty information.:
+* Proposal preparation and submission instructions .:
+- proposal preparation instructor:
+- dues dates
+* NFS proposal processing and review procedures :
+- merit review principle and criteria 
+- review selection and process
+- award administration information 
+-* notification of award 
+* Award condition 
+* Reporting requirements.
+* Agency contact .
+____________
+Answer'
+..
+Innovation technology engineering mathematics education , economic ecosystem career k12 entrepreneurship.first class ,,ICT workforce..
+- initial h1b visa progu research development..
+- designing innovation that meet test program goak .formal informal ..
+- in ovativd use to 
+- use engineering technology use meaningful learning ..
+-innovative learning experience: interested career science education engineering technology ICT career innovation v.key features scholarship b..workline ..
+Pre k-12 grade range teachers ,instructor , mentor coaches administrator...
+* Work force devt job future , ICT workforce the future .ICT topics ..
+* Description how innovation advanced knowledge ..
+* Strategic for broadening ..
+
+- Measuring outcome through high quality research : research component that measure outcome innovation relative increase .. engineering science and ICT
+* High - quality reset design: to achieve term long proposal ..
+Advanced school literature ..
+* Project evaluation : 
+Proposal are expected to describe the mechanism will successful project development knowledge...steps that aspect ..
+- formative evaluation activities are designed to document the carrier .
+- essential clear description requirements component: 
+- articulation of evaluation question .
+Relevant to the project scope of work : 
+Wath does the project need to learning.
+- delineation stipulation .
+Project propose address  overstu.
+- description of how the project plan use evidence feedbsc.
+- dissemination of finding : creative community baudiancd ..
+Chanek.
+- project types : compiling object ,sound literature question research design ,appropriate data collection evidence , education professional development association b grade appropriate ..rand d synthesis conference v..
+* Exploring theory and design principles.
+- project draw litert..
+- up to three years up to 4000000..research description early explanation..
+- development and testy innovayv
+- scaling expanding ,,.- conference project ,build capacity ,, 100000
+- conference proposal submission 
+- antici type of award : 
+Estimated number of award ..test 22 and 30 award level..
+- 6 to 8 award exploring theory and design innovation ,40000.
+8,to 10 
+ award ..
+- eligibility :
+Proposal preparation submission full 
+- additional solicitat review criteria ..track advanced studies v..
+International graduate , novej 
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 7, 2025, 7:23 PM
+
+	
+	
+ 
+
+Price
+...
+
+
+
+
+	
+	
+29.1 
+
+- techi support : resource center is expected provide technical.support to facilitate projects success in devet and articulating innovation that strength knowledge of interest ..all stages of project life soan technical.limited ..for education facilitate emergency ..
+- disseminate : resource center is expected to synthesis and disseminate  of stakeholders work includes  portfolio internal ..
+- broadening oartication in the  pi community broaden ..
+- relevant : expanding under presented ..
+* Project summary : over it statement.
+1: statement on intelligence merite of proposed ,
+- statement on the borders impactcontent emphasis design implemented evaluation participate grade level studen project ..
+- project description : section vfullt 
+- project over : rationej proposal must address potential impact . Pathways student career proposed innovation different student teacher v.
+- results :
+- expertise management. Successful..
+* Reference..
+* Biography sketch 
+- special : information sypplenter .permit data plav post doctors research mentoring ..
+-budgerary information :
+- other budgetary limitations.
+Major research equipment purchase are not supported limits purchase of equipment software probes specialized ..
+- full proposal deadline ..
+Aubmi ..
+- fast lane ...for proposals submitted via grants .gov ..
+- nsf proposal processi and review procedure :.
+- acknowledge for review science engineering or educator  office , review penalised ,,selected suggest name  invited selected officer discretion submission b
+
+- award administrator information : 
+Notification of the award : grant office agreement progt administering verbatim copie ,, award  condition notice ,grant condition
+- report requirements..
+: principal invest submission anuek report project 129 days , failure provide finaj project report outcome ,any pending proposal  identify examine forbst , electronics projecy
+...
+
+[Message clipped]  View entire message
+
+
+	
+
+	
+	
+ 
+
+30. reference 
+Security training or the outcome of training application official approved methods and procedures act an objective manner ..
+-;employ any practice actually knowledge insight the person undergoing the assessment or testing .
+- must take reason step to ensure security training b...
+- reason provide to person entitled in term of the act undergo ..
+- security services providers installing service or repairing security equipment or performance function monitors .
+Must  performance all his or her function in reasonable manner trustworthy and competent manner 
+- may not install service or repair any security equipment if the client possession or use thereof inquiries reasonable in the circumstances to verify the lawfulness of a client possession and use of security equipment as contemplated in paragraph ..
+- may not install service repair or modify any equipment if the or she would act unlawfully in doing SI ..
+Installation if has been acquired in a lawful..
+
+- reasonable know is faulty untrustworthy defective.
+- poses an unreasonable risk to legitimate interest of client ...the effective use of the security unless information in circumstances to eliminate or minimise any risk of harn to client results the service rendered .
+- what is purpose of the liquor act ..
+- purpose of the explosive act to consolidate the laws relating to the same importation  and the use of explosive.
+- dangerous weapon act dangerous weapon means othe fire arm ..
+- any person who is in possession of any object fire arm or replica of fir arm contravention of the provision of any notice issue be quilty of an offence and liable on conviction to the penalities ..
+- explan the requirements for carrying a firearm in a public place ..
+Section 84 of the fire arm control act 60/2000 ..
+- trespassing section 1(1) of trespass act 6 of 1959 provides that any person who without the permii .of the ..of any lan building part . own building that is no occur enter shall be offence ..or be upon such land .
+- list schedy 1 offences as mentioned in section 40, 42 of the criminal procedure..
+Concept of lethal force is dscrt in line with coming law principle.
+- the consi court judgement has clarify rsa law a personal carrying out an arrest may use force which necessary overcome resistance to the arrest or to prevent person concerned from fleeing ..
+- a person carrying out arrest may use force an they only shoot fire or similar weapon if the reason ground for believing that suspect posses immediately threat of seriously body harm to them ,or threat harm to member of public ,that the suspect had committed a crime involved the infliction of seiouse harm ..
+- the walterd judge impatient only the use of lethal force ..
+- where suspi criminal not inflicted or threabed seriously harm it is hustiable use lethal force. 
+- explain the legal requirements when using lethat I force private self defense.
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 9, 2025, 5:49 PM
+
+	
+	
+ 
+
+31.1.Reference: master court jurisdiction , indexing pleading ,in execution of sale property...
+Sector court order reason commissioning order record 
+- sector xviii : applicant head argument ,notice refund affidavit bid ,notice motion low term filled , submission power attorney ,rules logic ,
+- sector: Xiii-xv legislation commencement submission mission court .
+- skill development applicant bargaining council at attorney set down power attorney office head.
+- skill development applicant director council applicant commissioning award order direct  compliance notice.
+- skikk development response nogada contractor rulling .
+- skill, development respondent ccma labour rules regulation notice motion 
+
+- award certificate default enforcement.
+- skill development saqa library 
+Buyer order 
+_____________________________
+- public library workshop:
+* Function task inveudetail || execution operator inventory|||| checkers yes/no.
+--
+-labour relation a south Africa ,jr  rossiw ,isbn 094006579 order book preface  forward ..
+- explanation : 
+- introduction 
+- the development of relay labour in rsa 
+- the era of adverse ° herbaria .
+- the code termination laboures relationship in rsa chao source .
+Labour relai.
+- the common low and labour legislation for education 
+- the rules of natural justice .
+- the contract of employment the labour low labour relation education .
+- chao individual employment relation  introduction .
+- definition .
+- employment right of education right of or education 
+- duties of educators 
+________&
+32.Ref: user license , part director direct social work and , order R 200.
+- introduction.
+- social work an overview 
+- direct practice v
+-client culture society and social close special .
+- question assure factu
+- assessing interpersonal system .
+- envy system 
+- interaction personality biophysical functional physical health..-
+- asaesserung  use and abuse effect drug alchok and the fetus diagnostics.
+- using  interview skill to assess  possible alcoholism.
+- use of instrument and procedure assess alcohol .
+- conveying assessment drug.  Abuse .
+- conveying  assess find ti clinic 
+- psychiat cognitive perceptuat intellectual judgement .
+- intellectual judgt.
+- real  testing  .
+- flexible value. 
+- misconception:
+- self conception interaction between cognitive emotional control range emotional.
+- appropriatneaa of effect , decorations .major effect 
+- assessing  children and adobe behave functionning  motivation event involuntary ,culy factor , culture norm differential individual and patterned
+________
+*Industrial administration manageriah ,jbattin .
+Orefat for firtg acknowledge list .
+- general framework  ..
+Chapiter  complexity of management part one principle and general and growth of management through .
+- order 37786655 ,open 
+_____
+33.1Tpm 
+* Feature of tom structural for overall equipment effective and defect preventiin system the Toyota production and relationship between.
+- Terrotechnology and logistics maxit equipment effective equipment , equipment used half 
+- breakdown and minor stoppage 
+- acceleration determination the determination of equipment prevention 
+- maintaining breakdi five counter measure  for zero. Breakdown license operation of automated errors equipment investigation investigation development visita organization for implemented the twelve step development steo 1 announced decision  top many decisions ,step estably created step  basic. Formula implemented and stabilizer basic formula 
+-step  automanomouse  maintaining  maintaining programm.
+- step development program fully and are ton small group activities integral small integral .
+- evaluation the maturity of small group activities the truisb for application procedure proceductive 
+33,1reference 
+Safety road teaher
+Human dignity.
+- taking and responsible action .
+- identification of criteria
+- phylosophic if life 
+- incalxulationroad safety in various level of human existing .
+- coexisting human relations and safety the relt of understanding conclusion.
+- the relt .
+- the original of technology and it imolicat and education responsible.
+- seeof responsible an education.
+- the task of school.
+- the requirements of the schools 
+- road safer and indolent in accident.
+- accident accordance degree in rsa from 1977 .people 
+- people .conclt from statistics the cost of accidents cause .
+- poor training ,alcohol involved .
+- personality defect 
+- poor vision fatigue
+- possible solution to the problem quest list..
+* Traffic training in the second school ref to training .
+Introduction;
+- content:
+The traffic situation 
+- the involved
+- traffic training method 
+- certain method reqt with road safety method must comply
+- content method for training traffic youth level ,abuse among the young .legi enforcement 
+- element of natural .
+- traffic hours and denst trait method conversation planing:..
+________&&
+Duty 
+Driver you mark the right of ways but other edge.
+- compulst .
+- stop : you must stop if the director sob a traffic officer or sign road 
+- personnel form animal ..
+- general  duties of driver and passages .. travel backwards ..
+- leave a vehicle unattandes with setting to brake other mother prevent ,move off from a stationary position if it safe portion ,,
+________&
+Introduction programm study 
+Programm security b.
+- role I ject functional title work study duty ..
+
+Learning programm is part qualification is general .
+- purpose learning 
+
+
+
+...
+
+
+
+	
+
+	
+	
+ 
+
+- activity guidance English stand self 
+- knowledge synchrony decision 
+- choosing mariagf pation
+- intri bala. 
+- tertia education .
+- social conduction 
+- relation human 
+- the work 
+- corrected attit..
+______
+* 35.1Referral education the me venter 
+Referral education 
+- chao : one pedagogy on its part persoet history of education origine 
+Devet signify
+- .1 orientation introduction greeck idee
+- introduction 
+- the sophistic concept of man
+- introduction the sophistic concept of man
+- Socrates idee of knowledge 
+- Socratic idees of knowledge .
+- aristoletian idees in the infrastructure of education if stoics relief 
+- roman idees 
+- ecart Christianity august view of man' 
+- medic vok idea 
+- humanistic idea
+- pedagogy become scientific 
+- pioneer of pedagogy 
+- founder of pedagogy the history education v development 
+- intro.
+- emery on the further devt.
++ Methodology of the hist..
+- orientation 
+- aim natural reason problt .
+- general  minded future oriented .
+- factuality indivt..
+- aettu target .
+- methu u restaurant .
+- complexity present and future .norment..
+- professional competence personality enrichment.
+- comparability distinguish.
+Methode and approach.
+- basic. Scientific methode of investigation ..
+-provinciaj .
+- regulation pertaining to the control in regulation 
+____--
+- referral second David Eduard psychology 
+,- introduction of psychology.
+- psychology definition.
+- methodology of psychology test natotistic  observation testing the experimental I method the clinical methodology .
+- theory in psychology b function of theory 
+Hypothesis test verification modification 
+Explanation of behavior education 
+- explt patterns past 
+
+- phylosophic influence.
+-schools psychology present philosophy , motivation , working biology 
+Search visitor time attention analysis.
+- neurologist attet in habitant via negative vlisteb visual .
+
+____
+36. Referral: teaching the practice of nursing of a text in text nursing didactics time ,jellir, nursing 
+- univey of in conct .
+- content 
+- preface 
+- nursy education and the 
+- Philly of nursing educt 
+- the scope of pracy registered enrot
+
+
+
+
+________________
+37.1 referral:
+-award and decorations of security personnel .
+- basic diagnostics pre employment testament.
+- bomb threat response.
+- code of conduct,,code of ethics , 
+- phase construction floor of third floor .
+- declaration of policy 
+- duties and responsibilities 
+- first aid basic life.support training.
+
+-;lecture in gun safety.
+- management commitment commitment conduct and ethics.
+- program of works
+-proposal .
+- psis profile 
+- psis recruiting and recruiting hiring .- refresher  security drill
+- refresher security guard training program.
+- refresher security guard training , 
+- program instruction and proper handling of fire , troop information and education.
+
+- award and decorations secure ..
+
+* Division vof high level waste repository safety ,officer nuclear material safety and safety 
+Subject : information system security officer appointment letter program issy  duty ,operating  system and software ,mainu procedut include completed,,create seoat dutid review auditing ninise risk of elimination oppoy to conceal errors or irregularities and ensure that no one India control all phase of an activity or transat creating permission berries irregularities to go undetected ,, execution opert 
+________
+37.1Combat trinonome .
+- effective : material. Bousol
+- observation research on workplace activity of enemir of population information recruiting acquisition .
+* Composante of execution .
+- relerage of limite of sector surveyor possibility of visual zone .
+- identify of point of relerage .
+- cut of zone  fare and no fareway.
+- determine zone dangerous point clocking enemies .
+- ensuring permanent insert continue ,undercontrolev..
+* Patrol marching normal ,,running for dangerous space ,ramper for escape view cut ..
+Keep contact trinomd ..
+- mask emplacement vzone of fighting , keep tools in discretion ..
+Ensure .
+-covef  soeciy protection Vue aerinev effect ..
+* Combat of trinomd ,group order Chief command if chief if 300m ,609 m ,,natural armored  multi qualification ,,fatansun replacement of zone natural enemiev,, application of fire objective repere initiative end ,, FAMAS , fight small distance 200-300m ,face vehicle of combat infaterie ,,,,char angle of shoot , defensive adverse ,,
+
+
+- school of Infaterir ..
+-manuel of user section regiment 
+Planing diffusion..
+* Delegation military department of major state  infanteeies.
+* Arme blindee cavalerie 
+* Artillery 
+Genie ,train 
+Transmission 
+Commissioning of army if earth 
+- instruction center ..
+- training open..
+* Reserve library of army of earth total .
+* Summary ..
+* Partie 
+Preliminary .
+* Cader of employment activity guide..
+* e :750 km speed medium of  tactical fly 180km/h distance b frenchisable ..450 to 559 km 
+Weighting fly 3hours autonomous 13tone combat speed antiship 269km /h ..
+Armored ,mortrs fire arm gun antiship ,,effect munition 
+Motier if 81mm llr 45 kg 3 fardeayx ,tube plaque base unity fuse ..
+- porter : 5750 m charge ,fa fusee ,situation munition b,1 uf = obus piece180 ,1D1,489;grouot chaque consimanmation shoot neutralisation : 39;obus / 1h discovery v48 obus  personnel abrite effect , dusctruction , bo seeing ..
+-training : direction ,but input on line cuts observation , principle of series of 2 obus fm make ..
+- objecty series 50 m ..
+Centre A,left ,right code ,
+Dan's millimeter,left right ,far no far south north est oursr ,
+Shoot relerage ..
+In commander..
+* Missil antiship,anticharv,long distance ,short distance ,eryx
+*Composition : weight porter fly 
+Post of shoot ,4,7 kg 50!in 600km m on trepied ,foot ,
+- 4,3 kg 50 to 300 m on in head Mirabel  munition ,,
+Speed maximum of following objective cible : 100 milliemes distance arm of missil : 50 m angle of negative ,45° positive ,39°  speed to employment ,31° ,51° ,18 m second outcome tube ,,245 m / sec in end of fly Mirabel detection 2600 m ,1200 m identification b, autonomous ,600m autonomous v,2 a 5 heures piles dotation per group cie ,cuev= 24 vab ,12 
+Totaj : 27 missile Mila composit :300 to 1900 m post shoot kg ..
+- 50 m ..
+3120 m front of sky 209m ,d eclairement
+
+* Missil 21 kg  ..
+- diameter ,309 m,99 
+* Simulator ,RS ac ,siteryx : simulator infrasy of selector bpersonal training..
+62 computer instruction b,61 consol  monitor ,printer video ,, 
+
+* Equipment : trvm ,134 post amplifier of 100 w game freqt post earth , defense b message ..
+* Consignment ruling fixe level  cellular 
+Shoot no authorize ,,cover fire no opeb ,authousation installation friend attack ,,
+Tri ripost  ,,open fire on fly attack force or instant friend ..armed ..
+Gn29 nm..
+* Cooperation interarmes ..
+* Arme blindee cavalerie artilli genie ,akat topogry point particuy series ..
+* No revenue posiy transport protect , collection .. measure bfilter ..
+* Detection alertev,reacted ,
+- orange ,blue ,neurotixique,
+- agent chemical type delat symptoms neurse phisgen ,sufficant toux coffing inflammation noose and difficulty respiratory stress tahite ,,eyes go out of zone of fighting n,difficulty heating ,, decontamination protect ..
+- acide cyanhydrique ..
+* Light ..
+Projector : 400/800 ,,,400/1200 m
+* Observation nigty .
+
+* Distance practical of shoot arm ..munition 
+Employee RC x39 ,ofk ,ac hl 200 , iec ,ac - avh 1500, l
+Aveuglelment 
+
+* Renseignement,, information bnumericah .
+Neutrallisat destructy eclairement aveuglelment.
+Materiej .mass 36 t ,55 .
+- armement ,c20 ,c crazy ,tourej ,7,62.
+* Carburator 892 l , transmission, performance max 65 km / h ,71km / 85 km/90h..
+___&&
+Fly ,elicipteor..
+* Les stac system of telephone automated campaign multiplexer networking nspeed 39 customer , simulated ,19 customer blind line 2wire ,2,4 km and radio zone atac ,, prepresenth ,, battery reception antena volume interface .porsoire pedal blocage  box ...
+* Tableat band frequence mode of pas poid porte pikes 428 ,459mhz ,19w ,khz ,vhf , 
+* ORGANISATION transfer , evacuation center ,register nMd ..
+Search file evacuation ..zone ...
+-model dudcht : .
+Material major ..
+...
+
+
+
+
+	
+
+	
+	
+ 
+
+- composante role of chief  executive position patrol direction 
+-help memory chief section of infaterie.wirk document approval.
+- summary :
+- tactical 
+- cooperation interarmes .
+- armement .
+- optronics 
+- transmission : vi NBC .
+- information, renseignement 
+- logistic
+- health .
+- comportment and administrator langut .
+- tactical mission .
+- symbolic and represent 
+- control of  public 
+- evacuation of population consign 
+- collection .
+- the mission of safety of mission offensive .
+: light visibility ecklaur
+Harcej knowledge clocking peak point cover flanc guard fixe reduction destruction antiship attack 
+Under control objective 
+: mission defensive of mission commune ,control zone no allow defense close escorte survey way .
+* The process of combat office Cader employment of ..
+ break 
+, embuscade break hacej handling help ..
+* Missil particular mission guidance , execution operator zone contact move infiltration colone guidance itinerary non fleche jakonage pilotage if vehicle isole of point passages .
+* Mission of escorte , escort if authority,escorte material logistics no tasking of knowledge...
+" .. definition of different rebric ... message ,reel = suppose obs = suppose precision  aerien surface medium means ,can ,sub mission ,mortue ,bombd generator high 
+Defense accessories herisson ,4099 m 
+Cavalier ligature baruemer cheval piquet corner if tube ,1.60m barrier triple .
+- obstacle .: generality , obstruction a, road bridge  tunen pylones neutralisation ... possible of combat combination type of obstacle , fire value  ,.
+Mine explosive .
+,pente , neurotixique inconue ,cellulose 
+* Neurotoxicology .
+..
+Mine antiship sntichst  horizontal marking ,ideny ,mass of explosive ,6,5 ac ah 
+- mase total of 13kg ,
+- performance : 70 mm
+Of blindage ,diameter ,19 cm ,a 80 m 
+- mia. 2 hommes ,19 MN 
+Localisation ,pick  visible order .mise en place tress of security fixe balissafe ,2 metre if sole but  discrimination ,survey miach , armement of grade axe survey repli , national authority attack ,z ..foxt place estimate : ...*
+* Detect chemical level of , accountability b national origine number incidence ,alpha fr , ,,
+Knowledge sector .
+Observation position .march emplace font and back food ,post fn 
+* Defense material accessories : time 100 of networking ,10 element ,39 pick of 1,59 70 cavalier ,129 m of rice ,1kg of wire ion  ligature ,1 group of 2 hoi ,39 element piquet ,1,59 m ,149 cavalier ,249 m of rinces 5 kg fil , contrin ,,
+* Decontamination immediately personal toxicafiin liquide visage utiliuv..
+- fumigend ,obus rideaux 1599 counter  ,no traumatism stress  fatansun , movement ,
+- transmission .
+* Armement vetement personality : ,
+: author prlton lighting and invest ,7,63 mm mikd. ...* 
+* Artillery structural system type characteristics missil ,zone defense ,I observation ,means ,porte 18000m porte 49km , ,sayer 100km . ,1000km, .
+* Artillery acquisition : regiment ra drones aerien  army air satellite ,
+- drone characteristics summi observation : speed 750kn/h ,rayon action 209kn autonomous  fly altitude capacity ,sdtu tactt interesting ,speed 2h  action real time tv image infrared ,
+- geography , 
+Metrology 
+- geography; mission realisat help thematiy card topographic.artery autonomous and ,39 ,49 t canon tracts , equipment 4humain ,42 shoot bullettrm 10999 peleton of piece tractor 4×4 ctrack ..
+* Stability of air t°  hygrometer instable ,19° legers me ,cover sky , stability morning ,after noo. ,nigh shoot , telemetry vehicle observation material specific 
+...condii meteo
+- uniform : 1:,papers sector back of combat ,survey ,shois ,1 dise of ,food , plastic ,2 liter decontamination hygiene water lunch box ...recharge gaz radianetre dur ,car antibalistic ..
+- dosimetr electronics contrin ..
+- measure hygiene practice conserve,body ,toilet aooer ,hand after toilett hand food nursing ..degree magnetic ..celcuis , station earea , ,1 persone ..
+- conduct ..
+Code conduct  vehicle  time operation chief oassay keep function transport discipline 
+
+
+
+...
+
+
+
+
+	
+	
+ 
+
+- 38.reference :
+ cabine making for chatil by ward attack home craftsman.
+- the kit took
+-cabinet constructor part 1
+- construct part 2
+- entering inalaying ..
+- drawing cutting list mark our timber cabinet  work .
+- glue fitting etc
+,- typical cabinet design handing planing ..
+------;-;
+* 39.1Referral:
+ building pricing  guidence the construction industries .
+
+_______
+Feral / rock gem polishing Fletcher a completed guide to amateur lapidary order R2-899/
+- introduction :
+- I cutting a pebble in half .
+- diamante blade know scale pulley motor and  drivers bels ,tank and coal cutting table and 
+- last mine check cutting your first pebble sharpening the table .
+- the slab saw cutting your first slab blade  sharpening and sleid cleaning .
+- grinding wheels  grinding your performance using performance in jewel parking .
+- how to Cabo cho.
+- the stones sharping the done cabochon form .
+-the stones sharping the done cabochon  . with v.
+-  drilling a hole in store .
+- equipment drilling the hole .
+- 7 . simple vfaceting .
+- performance the stone faceting or forming the stone 8 gem collecting the rules success igneous rock summary of rock for summary of likely .
+- gemstone hunts in igne ge..
+_____
+
+
+
+______
+The n construction cost development professional v..
+| Grade || wage ||| wage|||salary 
+- grade 2
+- skill work
+
+- semie skill work
+- general work .
+_________&&&&
+* Eny propriettie of bbok and solide  sorrion of rock strength of rocks.geology papper national technical 
+- rock weather sol forma to ion day metallic soil type in .
+* 19 ground water as matters bears matter  management coak  in rocks as water and bimetallic ground in Africa puping test dragging .
+* Sitting of works building found .
+- found dams cutting minel embarkment subsidence .
+*Rock in construction use rock disable.
+- characteristics sans , concrete agregats two days ways agree of  source of stone..
+- geological maps .
+- sedes profile drawing convention mao symbol .
+- structural diil the form out diverse.
+- the solution of structural problem.
+- problem of strike competing outcome fault.stratgraphic ,truck  borttod , problem conformittes and accurate section isopac .maps ,
+- fault section and projection .
+-interrescting plane introdt to the fault development section parallel fault verification locating displi .
+- block pay shoot.
+- section 2 mineral identification.
+- crystallography.
+- the internal structure of crystal symetrie
+- notariion ,
+____________
+*40.1 Reference: chemical engineering : coul university 
+- fundamental of energy balance.
+- introduction .
+- conservative .
+- potentionel energy ,work nomenclature energy calculation of specifici mean heat the effect of pressure on heat enthalpy of reaction effect of pressure health formation comprest and extension recovery heat exchanger heath excht network , temperature reaction low pressure ..
+* Flow sheet .
+- introduction flow slee presenting 
+Pictogram present block diat present of stream flow rate information to be layout precious of data basic of calcui process service util , equipment identification Manuel low sheet calculation basic sheet calculation  flow sheet simple  computer aid flow diagram simple material progress ,the development of simple estimate infraction coefficient mass
+A mass balance costing project evaluation 
+- introduction accuracy and purpose of cost estimator fixed cost escalated.
+Cost estimate fixed ,infkatii,fixe cost ,inflation ,rapide capital cost estimate methode the capital cost estimate methode the factorsk methode of cost estimator to ion long factor depile factor estimak ion purchase summary of the factiral methode operating estimak of operationing cost ,evat cash flow and cash flow diagramfg time  value ,return calculation discount allowance per information analysis.
+-;8; introduction the pidiaggo ,symbols ,symbols valve secret pump , mechanical design ,wall thickness pipe support ,stressing pipe , selected dislocation cl reacti.
+
+
+
+...
+
+[
+	
+	
+ 
+
+- 41.2. studies of combat engineering ,field  artt infatet ,armor final report was writ to devt one overarching training , seven Mos this year battery has acceptabt capabii to identify candifor ..*
+*List of physicallt demanding task by mos .
+- cms physical task
+- cmts performance.
+- predictor test perfori.
+- regression coefft if test battery 1 .
+- regret coefficient of test battery 3 
+- accuracy of test batteries.
+- physical domain propot 
+- summary of reqt for predictive test .
+* Diagrat and photo under fire similarities.
+* Diagram and  photos of the casually evacuation 
+* Photo of the casualty drag simulation .
+* Diagram and photi load main gun simulator v.
+* Diagrams and photi if stiw ammo simulation .
+- schematt of the Illinois agility test 
+- percent of tested soldier completing .
+- army physical fitness test .
+- basic combat trat..
+- Bradley figthing vehicle .
+- criterion measure task simulation.
+- field artilt ammunit supply arm ..
+- high explost.
+- heart rate .
+- military entrance processi station 
+- military purpot anti tank ..
+- one  station  protection equipment.
+- rate perceio expert .
+- subject matter expert :
+* Doctrine commando ,USA army research institute ,
+
+* Background,: 
+* Soldit in the combat requirements demanding job , muscular power endurance watd readiness .
+- duty  . 
+Criteria ..
+* Introdt : pre employment test battery physical parade  development .
+- tradoc : revit material training ,matter expert ,sme results back, caporak soldier serfent first class completed surveying .
+- task idevthth .
+" Transfer ammo ,ammutbfield artillererie nwith supply vehicle : record.
+* Standay 2 round ) min or 39 round in 15 min .
+Load main gun (19k) ..
+Load the 129 mm main gun Abram tank : wear 49 lb task specific equipment b,dynamite  round
+..medicinal bakk ..
+Metronome sounding rate of 120bpm, completed down section,
+
+Statistical analysis:
+Descry statiscal  performance soldit test predactorvtestv,score ,order create score bscakd carry , battery darav, ergonomic bclass soldier passing , validation v,0,55 -0,55  test calibur equipment b,19k forct. vpredictor 
+______&&&
+45. Reference: 
+The home security  floor lighting :
+- door an windows safe one youth bulgasao for acciy .
+- content : 
+- 1 barrier again break chaine fence line .
+- low cost secut for house 
+- corrective surgery for vulnerable door .
+- barring the door the basic lock bolts 
+- putting in a better lack .
+- security window again forced entry .
+- safe voult partness with the hose.
+-the  technical for welding b steej grille .
+- 2 silent sentire lourd alarm.
+- choosing a simple but effective warning system.
+- how to snake cable through the house .
+- how electronics alarm worh two basic circuit
+- control and switch to by pass sensor protection car and it content 
+- defense against .
+- defense against fire .
+- easy ways to make your house  hard ..
+- walls and floor contain a blood .
+- puttt out a small fire with with extinguisher .
+- safe exite from an upsty.win
+- wath to do if break out .
+- coping with every hazard .
+- easy to build fence to make stairs .
+- keep it knif and poison out reach adapying .
+- house to need the inform .
+- safety check list  don't link switch unplug 
+- secuy front door fire rating for building materials .
+___________&&
+* Hand gun for self deft : hand gun self defense:  ,R10 
+- 1.trauning methodes.
+-2 . introduction :
+Shooting practice b.. training b.
+- physical  mental verbal training nated instructed  observation b.autigenic training b
+3.aims of training .
+- inspecting  equipment clothu recognizes fault ,gun steady mental preparation boeint of impact b, 
+* Training | schem | stage |™1
+- tempo of improvement in performing failling betting with training end of training.
+- 3 looking after your gun preparation for completion general distance nerve preparation table , morning exercise nourishing transportation your riffle the completion 
+- safety on the shooting range .
+- checking clothing and rifle .
+- autogenic training .
+- preparing your rifle .
+- testing ammunition in
+- testing ammunition .
+- guning the weather conditions .
+- the competition it self .
+- rules regulation.
+- warning shoots ,
+- first shoot . autogenic trat , autosuggestion,
+__________
+46.1Reference:
+Honda civic haness
+
+Engine:| specificatt || decarbot |||
+- removal dismenting examination ||| reassembly , replacement fault 
+* Cooling | specificatt|| water pain
+- draining  flushing ,dilling ,radiology /) fanbelt temperat antiduej fault .
+.* Fuej system and carburatiin b: specifications bair cleaning fuel tank  ,// water tank belt temperature 
+,- ignit system | contact break  condenser distrt | spark ignition fault finaj , fault duagtb..
+* Clutch and  actually bin mech | Mremovan dismount replacement b| inspector vrelease bear fault.
+* Gears box automatics transmission 
+Maintaining ,centre beard  universal join 
+* Rear axle | removal emplacement v| drive pinion  ails seak finaj assembly.
+* Breaking system | spect bleeding front brake collise front front brake dusj drum ,hand brake cycle vacun ..
+* Electrical system |™soecificat, battery dynamo alternator starter ||™windscreen lubricant maintaining routing maintvand service ..
+- suspension and steering || special print hub front axle stability ||| rear suspension steering brack  
+* Chao  general v operation with engine 
+Manuel test  checked living 
+* Introdt ti the sadeu first road side repair vif car jumps startub identify leaks towing ,
+- 1 week check  unders check point engine level oil coolab level brake and lunch fluid bscreev master fluid level   build , fuse .
+- tyre condition and pressure .
+- windscrt lubrication fluids and tyre wiper .
+- norm horn maintaining b.
+- light wiring  routine maintenance and service maintu diagrat and service  fault mainy .rear suspension , steering entand associate system engineering car repair procedure ..
+- engine electrician system .
+- emisstvand engine control system.
+- breakinf systb, suspension and steering ,body equipment body woibtrimad fitting body electrical system,writing digrsn ..
+* Dimensions and with .
+* Buying spare part .
+- general repair procedure v:
+* Jacking and vehicle support.
+* Radio casstt unity .
+* The system unity 
+- tools working facilitate b
+- that test check fault finding .
+- technical term .
+- safety first .
+- general bhazard
+- scandal warning  
+
+
+
+
+
+...
+
+[Message clipped]  View entire message
+
+
+	
+
+	
+	
+ 
+
+48.Reference:EPE  printed circuit board service...
+Epemg ,,/ elector 
+Order code / project || Quantity|| price 
+- practical electronics 
+
+ circuit wizard : pcb
+*- issue || topic.  ||| notes .
+-may
+Moisture alarm| get ready for a British
+- Quiz machine | revision stop 
+- battery voltage checker | for all your portable gear 
+- solar mobile phone charger || away from home school b
+- theft alarm | protect b property 
+- wailing siren flashing light |™alloween 
+- frost alarm || beginning 
+__________________&
+- project title || order code ||| cost 
+- time delay ..
+__________________________&
+Road test :  car
+
+Test summary ..
+- specifical: engine , engine output , transmission, wheels and tyre ,break ,steering , suspension ,whell
+
+- test results :
+- maximum speed .
+
+- acceleration 
+- overtaking ,
+- fuel .consumption .
+- breaking test : 
+- geared speed 
+- performance factor :
+- test condition ;
+* Power and torque | engine speed
+
+_________&&&
+* Casebook : car  garage..
+Motorbook ..
+Months R2000 book vouct engineering transplant b, results bv8;,,
+
+
+
+
+
+
+...
+
+
+
+> 
+	
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+49.Reference: notice  appeal 
+- department of government: 
+-  representative : 
+- notice appeal results follow employee refuse to comply a ccma guide award and order of the labour enforced .
+- notice appeal  order .
+- issue .
+| Issue award certificate award certificate || core award || credit award reward || time record award period employee operate task •| achievement ||||
+- sticksge probation Manuel correct award ||| prix case book award .
+* Manuel ruling practice labour | priced notice vat price reward amendment x notice || quality page normal urgent 30 page x 1 copier || projection cost written order cost review order juft appeal .
+*- ruling lra | R 50000 award notice |• 1×page 
+* Ruling lra  
+* Ccma ruling  rescission ruling award || R 5000 compliance ,4× PG 3 ,R15000 agreement .
+
+* Award ruling rescission award order director.
+Form ruling purpose instruction ruling .
+* Ccma ruling | 3 page .
+* Labour guide ..
+* Certificate outcome ccma | 1 page x5 
+* Notice compliance book ccma files 
+Elizabeth lerumo pg ..
+* File .
+- files ncouncil bargaining agreement.
+Compliance:national council bargaining private security 
+Private fund police security.
+
+- files pension .compliance:
+
+- files psira compliance :
+- files humain right . Compliance:
+- files doj .. compliance: notice motion 
+Order notice.
+- files supu ..
+- land reform court development ,ests ,, security tenure extend integrity..
+Record department labour file ,and labour court..
+
+
+-49.1 reference: sandf as workers : ..
+Military bargaining council , militaire arbitration dispute  ruling , 
+- channel command structure and recommend single including represent , structural provide , activity 
+* Limitations ,can't aligned or affiliated political party ,cannot to ather trade union ,cannot strike , not negocie close shop ,member sandf officer defense legislation at all time , activity shakk be not funded by department of defense , compelled to sign undertaking relating to the non disclosure classification information.,access to restriction base military reason ,
+..
+- dispute about collective agreement .
+- dispute resolved procedure: in order to resolved dispute..
+- failure to appeal : 
+- 15 work day arbitration award reason council b copy final ..
+- the board shall not make an arbitration award that has financial implications for state as employee that outside the mandated position of employment b.
+- if an award cannot make as results if a limitations contemplated sub board submitted adviu report to minister and information each party that such submission has been made ,any arbitration award in term regulation become bidung ,calender days after date award if minister has not tabled award in Parliament that period after date tabling the award
+- review high court. Granted , submission petition 
+
+...
+
+[Message clipped]  View entire message
+
+
+	
+
+	
+	
+ 
+
+- 50.1.reference: library bibliotech 
+
+Dhet ../ saqa explanation 
+*Portfolio evidence low 
+*Assessment: curriculum and policy 
+*Assignment: course syllabus topics
+*Assessment: policy nated 
+
+*st peace college and afric institute police .
+* St peace college tvet : nated topics : 
+And research field nated ncv , combination..
+Question answer self assessment,group assessment,class assessment 
+
+St   peace college skill job experimental:
+
+- guideline orientation pratice learner.
+Or
+___&&&___
+51.Reference:
+
+1.portofolio file poes  saqa : evaluation of foreign qualification :pg1-28//
+
+Pg2-41
+- name : tshingombe 
+- screen B1 database:
+*|| Application form on line | no submission ||
+- quotation payment  country original 
+| electrical engineering schools qualification entrance || 
+- higher education qualification || submission certificate||
+
+-||final award degree diploma ||submission.
+- transcript of academic record reflecting each of years .
+- country specific Drc school leaving certificate .
+- comment explanator leaving :
+- certificate mathematics info ,attest ispt , 
+|| South Africa qualification .
+Design non relevant ,skill development b,saqa 
+|| Total : saqa application 201911130002 does not our requirements and is being returned to you with an explanatory letter ,please ,please wait for this before contacting saqa ,kindly provide physical address ,to refunds@ saqa ,two work day.
+__________________________
+Director foreign qualification evaluation and advisory services 
+
+*.new tarrif for evaluation of foreign qualification:.
+*1. Saqa application guideline and form . update march pg1-3
+Section application form :
+I who's is making the application : 
+Qualification holder , family , personality , register , immigration practical lawyer.
+- title : tshingombe 
+- name : tshingombe 
+- surname: tshingombe tshitadi .
+- postal address ,
+* Who hold the qualification : 
+Date birth in supplier ,
+- full name of qualification bholder :
+Electrical matric grade 12 diplome, mathematics info , senior,
+Pedagogy technical award .
+- professional motoring ,
+* Study history of the qualification holder muster completed 
+*|™Name if qualification || award by institution name |||>country ||| attend : from to | completed.
+1. Electrical matric .|| Iti kitomesa || Dr congo ||| 1997-2001
+2 mathematics info
+3.pedagogic techno
+4. Professional motoring|
+
+* Why do need evaluation .
+- home affairs ,general work visa ,critical skill visa , cooperative visa , employee ,, employment , professional licensing ..
+
+
+* What would like us to with the results .
+- will pick them at the saqa office 
+______________
+- reception of application . 201911130002
+Name : tshitadi fistos.
+Surname: tshingombe tshitadi 
+Date of birth : 10 Nov 1982
+Email: tshingombe 529@ gmail.cim
+- cell 
+- priority: medium 
+Amount recei: R 450.0)
+- date of receipt : 2019-11-13....
+__________________
+New application submission bcurent : 2020001305049.
+Payments amount 
+: 202001301350405
+- amount :2200.zae
+- transaction :2029-01-39,,13:22
+Customer : tshingombe , in case of delayed transaction button 
+_________ 
+- 202001305040/20191113002
+Non compliant 
+Dear sir / madam ..
+Proof payment , application for evaluation of foreign above mentioned does not meet all saqa requirements for stipulated if d application material qualification online , therefore been returned to you ..
+Include 48h ..
+- final award school / diploma ,degree certificate 
+_______
+Certificate of bid  saqa invited 
+
+-|| unity bid learner.             ||Checkers bid 
+
+-sectiin 1: invitation to bid and bidders particular 
+- invitation to bid 
+- terms condition for bidding 
+- bidding structural 
+- declaration of interest sb
+Declaration of bidderspast scam practice 
+- certificate of independence bid determine 
+- general condition of contract 
+- section 2 requirements and speci 
+-;bid requirements .
+Special condition of tender contract 
+- total cost of ownership pricing 
+___&&&dfqeas .
+
+
+- good day .
+May please elaborate on how I may assured  in relation bti application of foreign your foreign qualification in relation submitted ,2018/11/13 and non compliant due to the following reasons.
+- outed application form , consent form not , transcript not submitted, incorrect amount. Mett ,king regards lungike mnisu , administrator office ,
+* The verification team .south Africa ..verisearch ..
+___---
+*53. Reference: topic's  information learning 
+
+Portfolio evidence low case study college portfolio evidence.
+Award diploma explanation mark and low outcome , 12/1/2023.
+Author: student and learner: tshingombe tshitadi.
+- college student and high education qualification dept university.
+Engineering electrical learner research low motion week career outcome .
+Order:R5000. 
+Price low 
+Pg1-1000 total value topics assessment.
+Nated ncv ucpd 
+______
+Content :
+- 7-8 award  
+Award abstract st peace college tvet engineering.
+- portfolio. 
+Foreign institution 
+
+
+
+
+
+...
+
+
+
+
+	
+	
+ 
+
+-54. reference: 
+St peace college 
+- filing : 1-10pg
+ learner : tshingombe 
+Moderator 
+
+Assessor.
+- assessment police requirements: engineering electrical 
+Explanation design condvr 
+.. credit subject|| requirements filing content submission ass.lok ass engineering electrical ||| core elective fundamental | credit |||| total mark .
+_______
+Full name : tshingombe .
+Email address : tshingombe 529@gmail.com
+- country enquiry : Dr congo .
+- purpose of enquiry: high education department exam irregularities @ dhet .gov za ,n3,n4,n5,n6 
+- institution details : st peace college and Africa institution police .
+Web address : https storage Africa 
+- institution physical address : 19 ..
+King regard  directorate foreign evaluation and advisory services saqa
+- the national qualification framework ( nqf) act 67 of 20008 madate saqa to provide foreign qualification evaluation and advisory services ,which it does in accirdat with the policy criteria for evaluation foreign qualification with south African nqf ,as amended 2017 ,section 29 of policy and criteria stipulated the requirements that a foreign awarding institution must meet for it's qualification to be recognized..
+_____
+PG 15.
+Explanation make model didactics learn self time table design: time table subject class studies engineering curriculum assessment police and assessment engineering integrity exercise book note book completed system manual disciplinary learner conduct guideline outcome...,total..record award attendance.. system .
+* Explanation :  case registration attendance record sheet amendment week comply invigilator,surname ,week,I'd number ..
+* Design analysis grid for test must pre assessment 
+| Subject level learning object/ fin / short response / medium / 
+* Knowledge and understanding | applying. || Analyse synthesis evaluation || investigation discovery design | total criteria close 
+_____________
+* PG 3  : section guideline: 
+- college basic advt filling diolome bassesmebt .
+- section , installation ..
+Design university b.gradyat diplome .
+______
+
+Register /saqa online 2010002013812/2004006064381/20110074343332:,high , education 
+- final award degre diploma certificate submitted 1stg
+- no provisional certificate or unofficial statement 
+- st peace registration : certificate no COm18269001/.
+- nated dhet I'd ,n diploma and nn diploma certificate: national  examin 201002023812/200400696481/20110074332
+..
+Suplementaire. . 
+Referral registration final record .fee .
+Electrical engineering| durat| reg / fee/ deposit / monthly / totaj ) extension home 
+Semester 1,2,3,4,5,6,7,8, ..
+Term 1,2,3,  
+_________________
+- st peace college / faculty eny ,time table ..19pg..topic 
+- design educare didactics ,eginimetrt engineering design time table ,methodic protection ,policy asset Poe submission ,analyse framework regulation ,amandemen 
+- Poe evidence portfolio .
+- activity least , document ,docket 
+Subject / low oytct amandety  approval..
+* Calander method meeting reqt submission caos isat ...
+Trade theory electrical text book  ,exercise book , electrtechnology ,book 72 ,note.
+- industrial electronic book 72,
+- engineering science book 72 of note ,
+- mathematics book 72 of x2,note book assessment ,.
+- assessment infiltration book 72 of ,note ,.
+* Attendance time course subject days student duty prevent lesson.
+Time ,| m | w| f | t |s
+____________________
+- st peace college and aip
+* Faculty : electrical engineering.
+* Time table , study : tshingombe .
+* Moderat facilitate ,seta security vtraing 
+- training performance train . management electronics ..
+Explanation award degree ,full . .
+* Question / answers : instruction guard installation rules savs san give safety answer qyet advice keep clean intelligence notice  papper . 
+Explanation qualification b: health 
+* Attendance time engineering council subject .
+- test award cert ,oract theory test trade internal external submission.
+* Question answer book engineering , Ana , planning , discover ,invest 
+- portfolio evidence schottische low outcome implemented battest assessment value added. 
+| Test score marks| evidence low give || evidence poes reasoning ||| evidence quotation .
+- mathematics : low limite | motion comparison test value , || 
+& Engineering science || f= g a ..m. || Compare two force  tear two frequence | compare fundamental 
+- industrial electronic ,.
+- electritechnic .|€ 
+* MarkSheet scale check guideline.
+Module subject || weight ||| scale ||| averat coverage completed btesr .
+* Test trade name center external submission subject..quest book mastering skill and devet
+* Test trade requirements subject.
+* Test trade task subject 
+* Test trade ioerau .
+* Test trade evaluation maug
+Low add subject  basic advanced ,filing low ,system low phase criteria ,fabric tear  , subject billing ruling value add , component 
+Subject module total faculty topics value ..total requirements outcome ,total task outcome value ,total operation engineering value , Master skill 
+* Score total curriculum.
+* Pre asst police , militaire, engineer in 
+Assessment warenty ..
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 12, 2025, 8:51 PM
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- reference: portfolio 
+* Practice theory guideline career ,
+Refet activity practice guidence college practice xounset principle management practbnote class ,tvt circulum instruction internak ,continkise asst icass vrepoet programme ..
+Introduction ,4 planing b,section  coursex..
+Content page docket 
+...
+
+[Message clipped]  View entire message
+
+
+	
+
+	
+	
+ 
+
+-55. reference: 
+St peace aip , faculty engineering 
+Time table, 
+PG,,1-90
+
+
+Moderator facilitate instructor , sasseta seta security safety ,stragues .
+- trainer performance train training ,manage electronics system assessment .
+-practical theory guidence career vocational .
+- reference acti practical guideline college prat counseling princit manat ,teach lecture note practical class .
+- tvet curriculum instruction  icass guideline for report 191 programme
+- content page docut docket || crit module.
+- planing for internal assessment 
+- the icass marks compot
+- assessment for different modes of delivery 
+- setting of assessment tools
+- moderation icass marks
+- evidence of teaching and asst
+- monitor of implemented 
+- conclusion :
+- trimester natural science engineering 
+- semester subject general business and services 
+
+- Anat gride .
+Pre assement  process and checklist .
+- post asst moderation process and checklist .
+,, trimester task for eny .
+Semt subject plan ..
+- recordsheet  semester .
+- subject total terb 
+75 - 78 lecture days .
+Business 1 test or assignment external incorporate ...
+- types  subject level lecture 
+-test , assignment , internal .
+Duration ,mark allocation ,
+- total mark allocation short medium response ..- knowledge , application, analysis and problem solving 
+- criteria examiner moderator analysis grides ..
+Content coverage weigy spreadsheet .
+Hode senior lecture v ,
+- files item  
+Space registration teacher .:
+- content page .
+- class regt
+& Subject syllabus.
+- subject works schedule / work plan 
+G lesson plan and teacher resource of additional support requirements by college academic policy .
+- Evidence of review .
+- previous question papers / revision / addii exercise / homework,activit ,worksheet..
+___
+** Policy academy st peace ..nqf l6..
+- resolving of crime : 
+- focuse diploma , officit in the detective service division b, department of safety sector ,saps , member privat institution v..
+Content  skikk performance police function .
+First semester , criminal investigation , administrator and communication skills , information management v,
+- practical trading  resolved of crime is vocaty course , practice police visite , patrol arrest procedut ,search procedure , evidence collection , preservation 
+Presentation .
+Practical 70%of syllabus ,theory asst contribution 39..
+Module : 
+- crime scenes and incit .
+- investigation methode and technique.
+- vehicle crime investigation ..
+
+* Career opportunities diploma policy : area security and surveillance ,
+- private security.
+- saps :
+Metropolitan police .
+- community policing .
+- national intelligence .
+Privay investigation 
+____ ass 1 activity ,st peace .
+Police introduction science .technical career 
+Explanation low portfolio evidence assessment identify.
+- section career orientation profile finsnaciah ,
+- selection process ,choose a career answer .
+
+- question rewat living leave .
+- student guideline counseling police opportunity.
+- policing excellent talent .
+- police material study career and fire arm career basic advay filling .
+- career understand job skikk opportunity job duties that what requirements .job 
+Correct job policing , retiremy ,police ranking ,
+,,_______&&&&&&&&&&&&&&
+
+* St peace portfolio .39 pg 
+Name : tshingombe 
+
+Assessment : formative summative portfolio. Guideline 
+Welcome st peace ,
+And engineering guideline career code conduct 
+
+- self assessment self evaluation.
+- 1 question: wath undestand code conduct : 
+Answer ..
+Write good thing discovery 
+- list learning 
+2.
+3.
+_______________________________&
+By tshingombe tshitadi students 
+--st peace college,   PG 1-70
+Saqa/.   research 
+Research saqa qualification 
+Final award certificate , academic transcript , original ,sworyb 
+- final 1th,2th 
+- curriculum assessment framework saqa qualification authority 
+Institution verification qualification quality control assessment summative ,formative , suplementaire extra time
+High education rsa department.
+- curriculum: n4-n6,,
+- content page .
+- topics :
+- abstract : overview national system examination and qualification framework overview : system rural land energetic.
+1.purpose : commissioning.
+2.topics ,circular research question rural energy ..
+2 .system case study.
+
+Power class work base learning 
+- 4.topics ,case study project support 
+5:topics 
+6.topics 4 defense land reform electro energy rural system 
+Topics 7.research methody .land reform ..
+Real , imagine 
+- advantages field:
+- disadvantage :
+Synthesis and field application.
+- process diagram 
+* Framework 
+
+__________________________
+* Research saqa .1.-50 PG on line information..
+Index topics comment 
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 13, 2025, 4:50 PM
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- st peace college registration form .
+Portfolio,for framework 
+Collection database information 
+Recruitment online reference / PG 100
+* Stationary 
+College b stationary management system 
+*Code alpha ,project report submitted in patial fulfilment of bachelor of computer 
+Application .
+Acknowledge .. information college .
+- introduction to system 
+- scope  system 
+- proposed system ,
+- fact finding technique 
+- feasibility 
+Hardware software requirements 
+Design 
+Digrsn 
+Data flow ..
+College need ,,pai etc 
+_____
+* System post development cost .time frame  building systems , development process phase have system analysis .
+Requirements: hardware software ,processor speed ,1gh ram , key board Lazer ,operar system visual studies vb net data base network..
+_____
+No item  quantity 
+
+
+
+
+
+
+
+Dhet 
+Stationary examination 
+* By study : tshingombe tshitadi 
+* Section A,head .
+Dhet stationary 
+* Report on errors in marking  guideline ,name marking center ,
+- section desct if error recommend chief ,
+- number of marked affected.
+- motivated recommend amendment...
+Marking plan engineering studies n1 and .
+Mark sheet ,category, irregularities, guideline..
+Office .
+___&&&&&&___________&
+-st peace college 
+--prensentation oral 
+Topics : engineering studies 
+And business studies engineering,and language business English.
+- st peace college ,1-60 PG 
+By tshingombe fiston, kekeletso .
+1.2. topics : orak presentation asst test .
+1 2 introduction learning engineering electrical thing about.
+2.topic learning engy time table assessment.
+Design table allocation mark , module award dioloma engineering electrical time.
+
+- abstract : development project cvs .
+- modeling and assessment for engineering electrical time table allocation project , engineering v: foundation system 
+3. Topics : 
+Lecture note ;
+- course home :
+Syllabus.
+- topics lecture note :
+* Introduction : engineering learning .
+* Framework and analysis tools : module 
+* Framework .
+- field trip .
+.
+- project preparation v..
+- case studies of models and assessment in policy : 
+- topics training learning institute polit assessment ...
+* 10 .topic project : 
+Create found circuit cell wath happen found wire research vprensent class , introduction test class with .
+______'
+* Activjty framework | mark allocation | module || rating || check byes || yes || no 
+_______
+* Task || timeframe || type of assessment activity || scope of asst || suggestions marks allocation |||| % contribution to year mark /)
+1. Term | test prat 
+
+2.term
+
+3. Term 
+Total ..
+Department high .
+Marking bmemo .
+Topics  ..
+Icass 
+Isat level .1,2,3,4 eny
+12.topics : 
+Drawing make labell diagram ..
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 13, 2025, 7:38 PM
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- reference: PG 1-50
+St peace college 
+- tshingombe fiston 
+Memo tech 
+Database students:
+- abstract .
+- document v.
+- summary 
+PC
+
+Textbook n1 ,n2,n3,n4,n5,n6 , engineering studies ..
+Subject bject outcome total completed 
+Self assessment, assessment ,input and out put . feedback 
+Foundation formula design
+Exercise homework 
+*1 purpose memo.
+Question/answer 
+
+1-A-A.../ BB .//CC//DD//outcome A+C+D+E
+Design circuit formula fundamental basic 
+Inventory claim.
+
+Circuit resistive .. conductive,semie conductor, Kirchoff motion low.
+Serie parallele ,mixt 
+
+Trade theory el| industrial electronic|| engineering science ||
+Circuit inductive .
+Circuit capacity 
+,, circuit mixte ..
+Ac ,DC courent circuit machine
+Transformer 
+Measure 
+Diode , transistor thyristor 
+Total balance matrix line output ..
+* Question cpd  learner .. development circuit conductance , impedance b, engineering electrical.
+- applied engineering science to master skill engineering 
+- * purpose to trade , basic trade theory fundamental design 
+* Requirements 
+- operation trade low rules skill to skill 
+- advantage .. disadvantage  of component b
+Rating field subject .
+* Applied to applied skill resolved physic mathematics to skikk electrical panel ,, ..
+________.
+Engineering studies 240 month nqf ,.applied saqa to isat practice purpose isat ,ent topics operation grinder .
+Sub task , activity ,time frame manufacture b,size time ,marks resource b, ..
+______
+Division job , division operation equipment phase preliminary phase ,semi time compey , cycle recycling.
+,,
+Time competiy ...- scale module ..
+* Cpd qualification b:
+Statement v of works experience ,logg book ,6 years /2= 3 years equivalent job , 
+- work where appropriate applyt packing  lubricant to assembly in standard .
+- where appropriate applying packing sealing ,
+- inspector checking bfinal where appropriate returning final assembly ,1th,2th ...
+- qualification integrity 
+* Undertaker material cable leaving b, conductive labels b,thermo copper insulation b
+* Correct formula b.
+R=✓resistivity × length ÷ across section diameter length gauge module dielectric test ..
+- gaz liquide ,solide .
+Q= permeability insulator ,
+- chemical PVC polymer vynic court, appropriate ,
+- A= i× u×t..test
+.. module trade to trade skill report trade , test modules bsafety fault b...---
+__qualificatiib  electronics , undertaking numeration ,
+Diagi..
+Cpd qualification : electronology ,, ..
+Procedures component b..
+
+** Laball trade skills..
+* Outcome project total design matrix card completed..drawing sharp function mathematics band engineering science function work job input output 
+___________&
+
+Reference 
+: st peace college 
+Practice.lab workshop topics total component , manipulation test experience subject make things 
+Inventory manufacture:
+ engineering electrical control trade engineering ,supply trade engineering 
+Design layout linear engineering 
+Area = 7,5 = 15,75× 2,1= 15,75 cm ,
+Volume = 6× 139×3= 780c ,8 turn / 9 turn ..
+Breakers transfo , breaker , measure instrument switch make .
+- control panel wiring campare switch way , engineering dimensions phase single v
+- electrolyse energy..
+- disct investigation make trade circuit serie parallele condensator tube triodev
+- comparator weastin bridge , manufacture resistor..
+Comparator..test wire bending trade manufacture resistor make compont
+___&_________
+Reference textbook ,assessing college st peace
+Text book project , total circuit investigation , book experimental ,project exercise b,teach note .
+Conductor , insulation, magnetic b, investigation vdata electrical wizars 
+* Unity bscience bfind 
+Content component | skill | asst
+..
+
+* Teach board
+...
+
+
+	
+	
+
+ 
+
+56.1.Reference:
+St peace college.
+Student: tshingombe tshitadi 
+Topics./  120 PG 
+Information data systems completed 
+
+
+- practice engineering electrical practical worksi and laboratory project,
+-; practical workshop and  laboratory projection engineering engineering electrical practical workshop and laboratory projection , investigation conduct detection b, traffic vehicle patrol , assessment stationary wiring table discovery fault find protection device b installation safety b.
+- electrical wire logic system ,control system , electrotechnic, electrtechnology, mechanical ,n1,n2,n3..
+* Research drawing wire electrical circuit connection test .
+- college trading b practice making things 
+ College industrial practice engineering test .
+- examination evaluation library discovery.
+Author submission: tshingombe tshitadi
+Learner and educator; 
+* Construction electrical ,
+Installation : task , installation topic built automation , system control system 
+Performance occupational skill ,
+-;related funct , fabrication insert
+- communication an mentoring technicial.
+- insert service mainttet ..
+* Electrical trade test : vocational subject : explanation importanc..
+- engineering fabry .ncv material .
+- learn outtb, .
+*
+Explanation, shap reason btrade mathematics..
+
+-; explanation mechanical reasoning 
+Tool using on wood puling
+-;, explanation bpoint circuit ,,reasoning career circuit trading ..test ..
+Exercise 
+_________
+
+_______&&&_&
+56.1Reference textbook 
+Information.129 PG
+Engineering electrical practical circuit component development assessment in lab ..
+Specifications of electrical motor .
+Fundamental cincei 
+- electrical motor basic ,concept torque , mechanical benergy ,system connection series parallele , 
+- insulation and material insulation vmaterysh   sysfeb is 
+Rated ,duty  state ,
+- control  diagram system v,contactor ...motor option ..
+Explanation n... system m control ,...
+
+____
+St peace college 
+57.Reference  48 pgv
+Information Scotland  sqa curriculum 
+
+
+
+Engineering science assignment n4 ,skill 
+Course  engineering b,
+System approach , simple b.
+_ assessment , description authority 
+Engineering b
+____________&&&&&&&&&
+Practical engineering electrical practical workshop laboratory projection ,
+Research drawing 0 outcome subject 
+Career in phase
+
+*Engineering scient completed 
+Mathy linear basic fundamental engineering, f= ma + mg ,,
+V= u +at ,= p= w×✓tb,,fu ,equation algebra ,linear  exponevt ,
+Ax ×✓by = ,
+a.ax+ b.v .y = ..
+* Theory trade electrician electi ..
+* Assessment policy ruling value poes ,iff ..
+-;design planing research field ender planing b, development bcimoon device protection v,idee ..
+* Policing crime resolve ..crime  incident vehicle , collection crime info ,, 
+
+_____&
+ 
+
+
+...
+
+
+
+> 
+	
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+58.Reference: 
+St peace college: 
+PG 1-86 
+Practical engineering electrical - practical workshop and laboratory projection engineering .
+Police engineering engineering electrical practical workshop and laboratory projection engineering investigation conduct detection traffic vehicle patrol , assessment engineering wiring table discovery fault find protection device rules safety .cony wire logic , control system electrotechnic electrtechnology mechanical, research drawing wire electrical circuit connection test , college..
+- 
+Oral assessment value engineering electrical total table | check out in 
+- student table relevant ..
+
+* Type of assignment 
+* Project type | possible information needs ||| relevant resource .
+* Visiting | campagny historical , operation process statistics ||| company prospectus , annual report 
+* Investigation | legal theory process state art problem possible solution research current debate | textt , journal article ,govert scientific industrial participate.
+* Research | details information the topics theory recent research ,rest methode || textbook , journal 
+* Theory,curry state of the art , previous b..
+* Established topics 
+Introduction method or technology b
+Your project .
+- compared results ...
+* Project , report 
+* Topics approach , outcome ,conclt .
+- title : 
+Weak title 
+Anat
+Interbr 
+Assignment 
+Protection 
+
+____
+Totsj subject matter expert 
+* Reproduction || application || analyse || evaluation ||| compare test 
+
+Subject submission evaluation .
+Learner outcome | value weight || reward || reward certu 
+
+Electrtechnology 
+Electrical trade theory
+Electrtechnology 
+Logic system 
+Devit protection 
+Engineering science
+- industrial electronic 
+Engineering drawing 
+Modi
+General aims
+
+Files assessment st peace 
+Description number : 600961135179
+Engineering science 10 page 15070391 comply
+- knowledge | undersi|| application |€ evaluation ||| 
+* Weight value of module .
+Module | description || weight value %
+_ safety precautions 
+
+Mark allocation time table | explanation theory 
+- module | explanation design drawing workshop lab..
+_ module  || code || objective |||criteria 
+Workshop 
+Hand tools b
+Material: recall section | relevant tools hr | recall different battery  sabs
+-recall 
+Join conduct 
+Soldering 
+||• test battery , manufacture specificat correctly ,ahere 
+Tender..
+Installation mountain 
+- switch board
+- motor 
+Flexible.
+Ac machine.dc machine
+Wiring connect.
+* Certificate level.
+
+
+
+____________&&_
+59.Reference: 
+- textbook:
+- st peace .
+PG .1-51
+- author submission : tshingombe tshitadi :
+- self assessor moderator student .
+- learner teacher and educator assessment ..
+- 
+ ,saqa reference award degree diplomat .
+Equivalent ,45..
+- test trade industrial exam college assessment time table activity.
+- archivist number : 01/052020 legal policy .
+- award degree diplomat certificate high education saqa framework policy .
+- submission : practical test engineering electrical write execution filling registration ,set down judgement assessment value 
+Information: 
+
+* N1 saqa is 67109-nqf 1
+* N2 saqa 67375 , nqf level 2
+* N3 ,saqa I'd 67491nqf level 3'
+Saqa qualification I'd ,,saqa title .
+- 
+- assessment criteria 
+"Practical participate work group test brainstorming 
+Planning check 
+Topic training .
+* Traine .
+- completed 
+_____&&&@
+*60.1 Reference: 
+author submission :tshingombe 
+- pg1-60
+* Material equipment African .. institution police department 
+* Requirements manufacture trade training train license 
+* License fire arm .
+- exam papper topics 
+- cv letter question 
+- company support learning 
+- wrong model
+- filing subi
+- basic to. 
+* Workshop lab completed library case book 
+Subject b,module  book answers b, requirements operational steo remanufactured..
+Explanation drawing support integrity on module support engineer electrical 
+..
+...
+
+
+	
+	
+
+ 
+
+- 61. 2reference: 
+St peace college:.
+Tshingombe tshitadi 
+- test trade industrial exam college assessment time table activity ,12 module semester time table engineering electrical , portfolio 
+Archive number 01/0520029 legal policy assessment 
+- award degree diplomat certificate high education saqa framework.
+- submission , practical test engineering electrical write execution filling registration ,set down judgement , value pg1-248..
+Student tshingombe tshitadi 
+
+.name 
+Learner : ,,
+* Caps curriculum and assessment policy statement  document grade  .
+- foundation phase ,grade
+- intermediate phase grade 
+- senior phase 
+- fet phase / 
+N1,2,3, 
+Electrical technology b
+
+- electrical technology , senior b certificate caps , 
+Background, overview, general aimf ,
+Time phase allocation , foundation,intermedy senior
+- intro wath is eleci technology 
+Requirements for electrical technology 
+- career opportunities in electrical technology 
+- teaching annual for technology 
+Subt  totaj ..
+Week topics
+Grade 
+* Engineering national vocational v.. assessment tools instrument b.
+Ent ,lecture , record report 
+
+*
+.
+Design nated cover policy time table didactics.
+Subject || assessment task||| mark allocation || | content |||| program
+* |1|2|100|| resistivity, magnetic, batteries, electrical circuit modules measy instrument, conductor , insulation control |||| week study module completed submission week 
+* Engineering science  | 108,118 ,129 
+* Mathematics 
+Engineering drawing 
+* Engineering n@ 
+* Electric ..
+Drawing label, explanation wire power meter squared v
+- completed explanation bsub station maximum allowed number support distance post ,main circuit breaker , insulation, 
+- 
+Assessment tools marking assignment schedule allocations covered .
+* Subject electrical engineering.
+* Module lesson plan ,and daily .
+* Time table 
+* Topics 
+Learner outcome objective .
+- to identify 
+- to explain 
+- to describe 
+- to mm demonstrate..
+To analyse ...teach activity ..resource 
+- resource acti
+- teacher .
+.. subject : electrical engineering .
+Bibliography saqa
+
+
+...
+
+[Message clipped]  View entire message
+
+
+
+	
+	
+ 
+
+St peace college 
+62.1Reference.
+Tshingombe b..
+Information learning..
+* Criterion :.* Resource .. write evaluation ,web base student opportunity v..
+Measure power of learning ,score 
+- a candidate ability to process reason logically ,
+- criteria attention skill test 9-12 minutes,test  concentration.
+The test is ...
+- test mechanical aptitude ,39 minutes test designy  application to install maintaining and repaired ...
+- critical skill test measures skikk entry level position that basic computer 
+
+...
+
+[
+
+> 
+	
+
+	
+	
+
+
+- criteria skill test.
+-critical basic  computer program..
+- criteria basic test , minutes 40 question assessment math grammar , spelling and language skill screen entry level overall trainability.
+- typing test : one minute test measures typing speed and accuy .
+- typing test measures speed candidate ability numerical al data entry.
+- excel ,the excel test is 20 item exam that measure proficiency Microsoft excel it take 10 minutes to complete.
+-word measure an application proficiency in Microsoft word test contains 20 item .
+- power point measure candidate .
+- computer literacy internet knowledge test 29 minutes test consisting of two tasks multiple choice questions task takes three minutes ..
+- sales achievement predator assessment measure carsctery trait ..
+- customer service aptitude profile posiy .
+- employee bpersonality  test measure twelve environment assertiveness, competitively .
+- workplace product profil assessment screen level bcandidat ,trusi reliable measure competivnrs ,
+- criteria personality inventory ,test base level candidate bopeb  extroverst, conscious agreeable extroversion neuroticism job performance..
+* Criteria band ather trademarks are the property respective trade holder  
+* License electrician asst ..
+Award 
+* Licensed electrician theory ( let) exam test board range of knowledge 15 minute in total ..
+* Licensed electrician practical test split in four part ,a practical btesr spit wiring box and switch men system,,sefe work
+* Free test 
+* Electrical class license technicial record trade school b,an supervisor work.
+
+Apprenticeship assessment.
+- trade apprenticeship aptitude test
+- test time. 10
+- question.  10
+- pass score.   80..
+* Eia elevator industrial  test .
+Test time 
+* EIT test 
+* Assessment ' 
+Apprenticeship usually ,17-25years
+- how mutch apprebybget paid .
+_ .what are characteristics of integral the apprenticeship process : 20⁰ hours skikk class room theory .
+- wy are the advantages of going ..- the apprenticeship : 
+
+- advantages use prepare material : up to date material , fujj simut practice test ,practice whitn exam ,
+- construction maintaining electrical component repair test data 
+* Topics asst report daily,log activity, report schedule book 
+* Subject translate..
+_____&_&&&__
+6.4Reference ,st peace college :
+1. Topic 
+
+2. Assessment .center .
+- study the assessment center process ..
+-;read books leadership manay.
+- prepare orak resume practice 
+Interview 
+- preparation for specified scenario .
+- prepare intervit ..
+
+* Tag ,command staff ,job , leadership ,police exam , policy job and career..
+* Modeling and assessment for policy ..
+* Course description : policy information information policy description student development band understand of quarantine technicial policy process ,case studies b, course ..
+- problem ,due session risk assessment b modej creat framework , risk assessment b, assessment risk , facilitate,draw modej power point skidec base risk ,, management.
+- case studies chemical ,case study , lecture b
+* Summary and application : synthesis term project ,course..
+* Ses | topic|| lecture note
+Introduction 
+- science a policy 
+- brief overview.
+* Frame and ansli tools ,:.modej for science 
+Modej for policy . infiltration effective policy ,.making ..
+Modej exhibition, museum bof science.
+- framework science ,policy and the public b, framework risk , precautions , projection preparation v..
+*Case studies model assessment in policy..
+Project check point .
+- rains negotiation ,
+- case study fishier ozinfv
+Country negoy role outcome .
+* Learn pathways understand assessment if requirements learners ,level 3, 3',, assessment v, accreditation v,type cresy ..
+Award in assessment the worh environment, in relate vocational..
+- lecture vs lecture vs professional 
+Module vs module , subject assessment circuit term .. warenty ..
+
+- ___&&&&&&___________
+* St peace college:.
+65.2.Reference. 
+1-120
+Information: assessment 
+- saqa award degre diploma , equivalent 45% ,50% ,1th ,2th , equivalent 
+* Safeguy vulnerable adults policy.
+- content 
+:- introduction.
+-safeguard vulnerable adults policy .
+- immediate action to ensure safety 
+- recognize of abui or neglected 
+- physic abui
+- psyi abuse 
+- financial and material 
+- actions to be take ..
+- confidential .
+- internal verification .
+- appeal b procedure BB..
+On going review b..
+Group country working.. profile st peace .
+- the rolesof assessor .
+- moderator processt 
+* Assessment team 
+* Pract methode processing a veht.
+Finger print investigation technicial search sense approxt comon 
+- international operation target trafficking of stolen vehicle motor .
+- rsa police annual report b
+- modej for prevention of corruption related
+- human factors investigation into effective bof traffic related search ..
+* Policing  question assessment college distance 
+- saqa unescu learning pathways 
+* Formative assessment , summative finaj assessment 
+" Feedt.
+*Procedure for learner with difficult 
+- external accretion
+- responsible development 
+- judging feed and support candii on assessment 
+- contribution internal quality improvement process .recording assessment.actuvity
+Role and responsible of 
+-- carryt.
+- monitor quantity assessor .
+Sample .
+Meeting ..
+Frequencies activity award body requirements.
+- new qualification 
+- evaluation of procedure 
+,_____&_&&&
+St peace college 
+Sciebono,,
+
+
+Policy 100,PG
+Saps regulation.
+Lab policy forensic detective..
+____
+St peace college 
+66.1Reference.1-70pg 
+
+Examit evaluation library discovery 
+Submission : tshingombe tshitadi.
+- learner teach and edu ...
+Practical engineering electrical 
+Assessment search assessor course ,days course.
+Explanation police sector , college polichbv ..
+- instructor role ,,
+Link professional framework b. Investigation programm 
+Time 
+Profession context
+National occur .
+- outcome.
+- learning content .
+Delivery recommend,
+- trainer role ,
+Mao .
+
+- training cycle b
+...
+
+
+
+
+	
+	
+
+
+- st peace college engineering ..
+67.1Research drawing wire electrical test practice 
+PG 1-69pf
+Information..
+* Study of police management int system ...- 
+- reseat  report : .....
+Specifications: ..
+Report municipal force Canada  ..
+- target information processing b..
+- technoltb,news , communication systems.
+- internal  operation b, system release .
+- central record stored case access retrievah for ,statuscib..
+& Specific standard for law e recordt management system ,
+Use case , diagram , analytical support crime , tactical analysis extend ,tools forecasting ,, 
+- role ,,base report .
+- report accident crach .
+- report property evidence 
+- interview report ,
+- case management report biling  warrent use case diagrams b.hov ,case aggregate report agreement b,ways cfs warrants , incident report , traffic data , property data ,and weapon ,query retriever b must query on indicator date ,, security system ,search quer ,,, secymy system tired password authority authenticator non repudiation, technologies biometrics bebtey Dara ,, 
+- use case diagram , administrator system maintaining data geofile mainy is validay location address law enforcement ,zip code ,x,y,z bindi basic
+- softy police advantage v..
+- invalude complain .
+Citizens for 
+Valid information 
+Is completed .
+- missing person.
+-,missing forb 
+- requirements.
+- testing system design..- program and code homes security..
+- information electronics citizetv
+- age , birthday , complaining 
+Forb  policng record .
+- stop check form ,delit serve ,check  I'd .check ..
+- admnisty .
+
+- compkay for invalid criminals ,is 
+- data dictionary..
+
+- implemented steo challenge and cost estimator..
+- estaby ,portaj web , cybernetic criminal,insert configuration of networking b, maintaining support ,help facilitate b, inadequate information infrastructure bpolice system ,lack of awareness of police and citizet..
+- no accept if inft communication ,.. criminal I'd , delivery stop. 
+* Wiring 
+* Police siren diagram..police interceptor modified , 
+* Controller police wiring 
+Harley ,police special vehicles..
+*Traffic light control  system ..
+Traffic. Light circuit timer ic 555 
+Component requirements.counter ,diode ,Les ,resist, variable,,construct working 
+
+
+...
+
+
+
+
+	
+	
+ 
+
+-68.1 reference: police trade engineering 
+St. Peace college:..
+Basic police education structural ..
+Saps annual report..
+Safety ...
+- introduction to policing practice ,
+
+____________________&__&___&_
+St peace college information 
+International 
+Electrotechnic commissioning 
+,
+
+Purpose : standard for and related ..
+Headqt... history , full member ,voting affiliy technicial commity
+- * electrotechnic .- content 
+- introduction.
+- general requirements for peer assessment.in ca system 
+- use of peer assessment.
+- acceptance programm 
+-national accreditation 
+- unified assessment 
+- unify assessment.
+- peer assessment requirements.
+- application of iso ,iec 17040.
+- assessment type.
+- assessment 
+- recruitment of news assessor ..
+- appointment of lead assessor.
+- cab peer assessment fundamental forward .
+*Introduction ,the iec conformity assessment board ,has formal policy that requires ..
+- fundamental element for operating a peer assessment ..-
+- assessment process. Schedule vopersted by ...
+- to accepted for participating schemes operated qualification procedure ..
+* IEEE,, transaction..
+___________
+
+
+MEMS ,, micro electronechy system .. nano electromechanics..
+
+* History ,types,silit, metals, ceramic,
+Basic process , deposited process , 
+,- physical deposit, chemical deposit , patterning, lithography,
+- electron beam ,ion bean ,ion track technology, x ray lithography, diamant,
+* Etching process ,isotropics , ant isotropics, hf etching ,electroche micak etching ,dry etching,vapor,plasma , puttering , die prep, 
+- memes : manufacture technologies.bulk micro machining , surface micromachine,thermaj oxydatiin ,high aspect ratio ,silicone ..
+___&&&&
+St peace college 
+
+69.1Reference: 
+Information 
+Material didactics lab open , workshop 
+
+Manufacture 
+
+
+Electromechanics..
+- winding .. rewinding ,coiling machine ..
+
+- transfo ... assembly ,motor assembly asychry
+- insulat test  ..
+Supplier. Unity power numericaj
+ electrtechnology ,test rotor stator
+- _____
+Electrical machine open lab 0,2 kwg system module studev low voltage,module pane 
+
+Electrical panel studies 
+
+
+- electronics panen numeric logic panen combine input output ,..flip foo ....
+Composition panen addition sustain multiplex , demultiplexing ,and ,4 na d input output ,bir ..
+Gate 
+. network connection , wav installation reseat ,
+Calculator  network interconnt atn ,framework ,ipz address , ion routine ,routines panen algot , struct routey ,test ICT panel module , connected ,texhnicB ip telept voip test ,.
+.* Panel thermotronic ,refrigeration system , research experience ..
+* Lab genie biomedical 
+___
+School genie v..
+- instrument measures ..
+- electrotechnic.. fundamental b..
+
+____
+- engineering pedagogy : 
+
+- sector : counseling , training ,multi media social,
+Level ,code rime : responsible pedagogy conceptor ,act develop competence..
+- engineering pedagogy master platform lms ,chief project technology pedagogy , platform pedagogy ,chief project e learning  expert video ,support ,, 
+& Portfolio , network ,web ..
+
+* Summary : 
+..
+Master pro ,ion multimedia..
+Master pro , defense ingenieur ..
+Master pro didactics and engineering v.
+Master pro reseat  learning and teaching science technology ..
+
+* Responsible direct , ingenieur responsible pedat , code rime ( 22213) is 
+
+
+
+...
+
+
+
+> 
+	
+
+	
+	
+
+
+- technical engineering 
+ 70.Reference: ..
+St peace college .
+* Article scientific and technicial,news technology data information..
+* Resource document; , innovation,COVID ..
+* Laballe and quality marking : marking ce ..
+_ * certificate of a product.
+- old  norm.
+- normalisation of industrial ..
+Mechanic construction norn:.
+- evolution  of Norman 
+Pluri ,,
+-multidisciplinaire  construction mechanic ..
+
+* Wath is norm technical..
+- typologies if norm
+- status if document, statutory of document France ,,internal..
+- wath is necessarily of norm ruling , 
+* Norm ruling ORGANISATION 
+- ruling ,directive ,,
+Minister arrest norm marketing..low rules...
+* Offer 
+Introduction : context .
+Definition 
+Different case engineering ,
+- phase ent founder.. engineering investment..
+* Study of pre engineering..
+Studies of site implemented 
+- pre - charge note of pieces booking 
+- calculation previsionan of product workshop 
+- pre selected principle ..
+** 
+
+
+...
+
+[
+
+
+	
+	
+B 
+ 
+
+-71.reference 
+- st peace college ..
+PG 1-46
+- registrar form 
+By  studen : tshingombe tshitadi 
+Information learning..
+Data learner ..
+
+Manufat .design guide , tutorial thermoelectric..
+Large inventory of premium quality peltier module , 
+Wikipedia..
+Background information ..
+- a typiy thermoelectric system.
+- thermal schematic.
+- design process.
+* Estimate heat loads
+* Define temperature.
+* Choosing a peltier element 
+* Choosing a tec controller.
+- choosing tec controller .
+* Heat sink .
+- fan 
+* Example calculation .
+* Temperature sensor .
+* Power sut reqt .
+- test your setup.
+- thermoy cooling assembly ..
+
+Peltier cooler applied accros device  
+Contents :
+- operating principle.
+- construction 
+- design .
+- materials.
+- identification and characteristics.
+- strength of weaknesses .
+- benefits 
+- disadvantage.
+- performance .
+Consut product industrial 
+Public..
+* 
+
+
+* Binary additional: 
+Binary system :
+- binary substrate 
+- binary arithmetic b.. circuit diagram 
+72..reference
+
+* PG 1-40..
+Telephone ...
+* ------;
+Information gazette , dhet gov n4-6  notice  training .. lecture pory of assessment tools ,and  education  program , program department ..marker. Programm  or any other . marking center ....
+*____
+* Education  computer base ICT  years learning v,comparat  analysis of software to conduct computer test , majer ,bank over text book module lines .
+
+_______________________________&&
+73.Reference: 
+Portfolio and files submission: 
+Memorandum 
+Textbook completed self assessment 
+Homework,class work evaluation 
+MarkSheet ,test 1,2 term topics : 
+N1,N2,N3,N4,N5,N6, 
+Exam paper 
+
+Exam papper previous, question and answer marking ..
+*
+St peace college .and
+* Higher education training depat higher education and training republican of south Africa.
+* Marking guideline.
+National certificate electrical trade theory , 5 PG ,,
+* Question papper consist 5 pages ,formula sheet 
+Time 3hours,marks ..
+* Answer .
+* Instruction and information.
+* Question relating to the wiring of premises must be in accordance with the sabs code of practice.
+* Candidate will be penalised for untidy illegbble work .
+* Read question carefully and answer what been asked ,
+* Question answer order subsequent of must not be separated .
+* Rule off on completion of each question .
+Mark .
+- rule off completion of each question,1mark 
+_____
+* National certificate engineering science n1(15070391)
+X papper question papers 10 PG 
+* Instruction and infot answer ball question 
+- read all the questions carefully .
+- number the answer according numbering system used in the questions papers.
+- answer must rounded to three decimal 
+- all calculation must have following three steps . formula replacement answer .
+- gravitational acceleration shouk 2,  
+
+
+* Industrial electronic n1.
+- question papper 5 page and formula 
+* Mathematics n1.. marks 100
+26 November.
+* Instruction and information .
+- answer all the questions 
+- read all the questions carefully.
+- number of the answer any order but subsection  of must be together .
+- round off final answer to three decimal place unless indicated otherwise. 
+______
+7.5.Reference.. portfolio file 
+St peace college and dhet ,
+Ekhuleni tech .....
+Past exam papper memo , cost order R300,examin access R 1000 
+N2..
+* *Engineering drawing N2..7 page ,,
+
+* Marking guideline consistent of 9 pages
+
+* National certificate ,electro technot N3 ,time 3 hours ,marks: 100
+Instruction information 
+- answer all questions v,read question carefully v,number according to number system in the questions .
+- the correct information must be copie question papers st,
+- rule of after comply must be done in pency .
+- the sketches  diagram must be neat reasonable large and fullt labelled .
+- the answers must worker to three decimal places ..
+- use the correct units for ..
+PG 23..
+_ mathematics certificate n3..
+- N3 electrical trade theory 
+_______
+National certificate electrotechnic N4 ..non programmable calculator may used ,
+Question papers consist 6 pages a formula sheet 2 pages..
+**Marking guideline .
+N4 ..marking guideline consistent of 7 pages
+ ..
+N4 . entrepreneurship and business management n4 , question papers 
+N4 mechanotechnology
+N 4 electrotechnic 6pages
+N4 industrial N4. 6page
+N4 mathematics 
+N5 engineering science
+
+...
+
+[
+
+
+	
+	
+ 
+
+N5-n6 exam paper,and mark guideline 
+St peace 
+- n1-n6 
+St peace college portfolio.
+1-33
+* Assessment outcome st peace college band aio activity low exhibition pe exam ..
+*Expert intelligence ruling 
+
+75..reference
+St peace college 
+Portfolio , 
+Formal technicial college instruction n1-n3
+Part (N4-N6 ..n diploma ..
+Icass term engineering .
+Subject || week || week 
+Lecture science engineering studies .
+Analyse gride..
+* Process      || responsible || timeline 
+* Criteria | examination || moderation 
+- cover page || 
+- page .
+.. criterion 4 ,cognitive ,
+Criteria ,yes / no
+
+- subject || assessment task || assessment took ||| content ||| duration and mark allocation || assessment date 
+
+Task | time frame || type of assessment the duration alloct | scope of assessment ||| contribution icass trimester |||
+
+. subject ...
+Years ...trimester
+Icass trimester MarkSheet||| class marks task || final icass mark - rubric for the assessment of practical task business studies 
+
+
+
+
+Assessment guideline ,
+Moderation of assessment , internal moderation ,periods of validity v, assessment requirements ,type of assessment v,baseline assessment , collection evidence record ..
+
+----------
+--st peace college:
+76.Reference:
+Tshingombe tshitadi .. certificate 
+Additional information:
+Assessment center irregularities:
+Submission 
+
+
+Time table exam papers1-46.
+Test 1: mathematics / faculty engineering electrical 
+Preparatory phase and selected orientation assessment n4,n5,n6 , certificate preparatory ,/ diploma criteria continuing supplementary.
+- time 3 hours .
+Subject ex...
+1. Explain:    ...........100   award mark
+2.discucc 
+3.explain .
+4 calculation 
+List 
+- statement.
+Calculate.
+- calculate .
+Drawing and explain
+- investigation 
+- analyse ..
+
+__________
+79.
+St peace college 
+Dhet ..
+ portfolio evidence of low 
+PG 1-98 ..
+
+
+Irregularities final papers  exam 
+Submission 
+Additional information:
+- I'd n final award  dioloma 
+Question / and answer mark ..
+
+...
+
+
+
+	
+
+	
+	
+ 
+
+* 78.reference 
+st peace college..
+Portfolio evidence low.
+Portfolio exam ..
+
+1-78 pg
+- test trade industrial exam college assessment time table activity college ...
+Exam previous papers st peace college 
+By tshingombe fiston..
+* Supervisor in industry ..n3..
+N1 to n6 .....
+______________
+St peace college ..
+1-96 pg
+Application registration ..
+Irregularities  letter register submission final n5,n6  n diploma award certificate.
+..
+Portfolio evidence ,,police institute ..vs 
+Information..
+Instructeur .
+Exam policing ..and engineering n diploma 
+- administrator and communication skills exam ...
+* Exam papers ..
+* Management information 
+* Management system information 
+Portfolio learner guideline information and document system inventory 
+* Supervisor portfolio evidence .
+
+* Portfolio planning : evidence low dures .. portfolio evidence ..
+Files
+
+* Computer practice n6 ..
+Information system .
+* .. evidence low..
+* Assessment engineering course assessment summative continue test , 2 years semester .
+- scope ,topics ,off engineering v..
+* 
+* N5-6 exam .. mathematics 
+
+St peace college ,dhet nated 
+Question and answers:
+
+* Electrotechnic, electrtechnology, industrial electronic,power machine, engineering science , industrial electronic..
+- control system..
+______&______&__&
+* St peace college filing 
+79.1Portfolio.
+* PG 1-50
+* High education department saqa ,st peace portfolio 
+Tshingombe 
+Award  n diolome 
+50% , 50/100.. equivalent.
+Name surnt accreditation minimum.
+I'd / name qualification // provision / move file in our ..
+- subject file studer 
+- test circt nice  ..
+Test operation , 
+- tools assessment mark checks : instt .
+- volt , statement of worh programm b....
+* Resource hume learner .. finalize.
+* Problem sector ent..
+* Abstract school.
+* Hypothesis : low phenomenal .
+* Acknowledge: 
+** Synthesis .no record irregularities ..
+* Purpose : planning  structural multiple 
+* 2.1 purpose operational step : operational research : examination diploma b..
+* Research abstral purpose : not meeting finaj instu regulation .. final 
+* Purpose ,exam center workplace power a.
+Supply meter square ..
+- engineering case study ..
+-.puroiae advantage disadvantage research trade in panel wiring skills ,purpose reason..
+
+Switch engineering 
+* Design panel  test operational , ac ,DC verification ,,trs semiconductor,test operational transmission v..
+** 
+Statement of work experience logbook..
+Code trade .. issue bn 360 credit ,180 are award to experimental training for achievement n diploma ,,
+______
+80.1reference 
+St peace  college ,and a
+Faculty : electrical engineering 
+* St peace   college assessment engineering b,filing 10 PG 
+Foreign institution , 
+- inquiries 65946..
+Saqa enquiry response two days further research ....
+_______________
+Letter saqa 
+Dear tshingombe  ..
+- section 29(a) of policy and criteria for evaluating foreign qualification with the south afrt as amend ,march 2017 stipulates the requirements that foreign. Award institution must meet for iti qualification to be recognised.
+- saqa bases the advice below on infot curry to  saqa reserves the rigfg to change this advice ,should new authoritative information come to it's attention.our online application documents stipulates the following in terms schooling qualification, saqa accepts only school leaving qualification issued by official examing , certificate body in  country of origin ,and not by school where based on external examiner.
+- no certificates  of evaluation will issued for for school leaving documents other than those in respect of completed national school exit qualification issued by the relevant authorities ..
+- therefore ,only school leaving qualification correctly awarded by the authorized national examination body in the  Democratic republic of congo will be recognised and not school leaving documents issued by the the school itself ..
+- please note the purpose of this overseas institution email is to give some direction regarding accredited and non accredited foreign institution for purpose of recognition and acceptance ,by saqa for foreign evaluation ..king regards  authentication service saqa .
+* The national qualification framework nqf act 67 of 2008 mandates saqa provide a foreign qualification evaluation and advisory services which win accordance with the policy and criteria for evaluation foreign qualification with the south tnqf as amended march 
+2017 section 29(a) of policy  and criteria stipulated the requirements that foreign award institution must meet eits qualification to recognized 
+
+...
+
+
+		
+
+Portfolio evidence low base saqa enquiry b/
+
+
+
+	
+	
+ 
+
+Portfolio evidence of low verification coverage..
+Discovery.
+N3-N1/ grade 12... business English, physic, 
+Grade teacher phase police traffic safety security , exam questions metric open ,master skill engineering matric ,time ,, 
+*Designing model  didactics : subject ..term 1,2,3
+1 evidence low organisation supervisor planing ,
+2 low supervisor management v..
+-loa design system cloud Police management system , regulation size poes docket ..
+- low poes evidence police operation ..
+Low  system engineering fundamental explanation distribution system noise bonding shiejd light discharge v fault protection communication marking priority output physical architecture product element decision database  input archicad decissiin  control , verification low thermo electrical operation  manut performance vs curren max  controk  ..
+- Poe evidence low  mathematics rult term nomination trinomiaj polynomial factorisation sign  different product quotien low additional substrate multiplication division low of exponential power low trigonometry . Triangle algebraic identify low limited low continuity function low derivative  function existing relationship  low .
+- Poe evidence low physical engineering low system international low  unity relate meter kilograms litre Newton pascak amperage  joules celct kelvin meter second kilometr voltage  per ,evidence low static kinematic dynamic reasoning low force acceleration ,low if cylinder .low strength 
+* ,poes  evidence low electrical trade theory  electrical commissioning eic sake sans ,skill engineering outcome ,ac,DC machine serie exciting independence shunt compound load operation design .
+Character load power sign ..
+
+Low explanation generating supplier low inductive phase ,,test crime prevention low ,
+Total  grand skill development..
+Low operational requirements trade nated and ncv combination ....
+Assessment explanation low rules ..
+
+Irregularities material scripted and backlog sita project printed ,, career.
+Outcome..
+Operation trade low, construction,trade requirements phase trade low compared close code 
+Theory and practice trade code low ..
+
+
+. 
+
+	
+	
+ 
+
+- st peace college 
+Ref 
+ application form  
+ n diploma,, reference ..
+- workplace experience...
+* Letter .
+- academic information.
+Examination number | name instructional|obtain ||level || date passed acknowledge..n4,n5,n6... 
+
+____________________________________
+St peace college  and dhet
+80.1Reference: 
+1-3 PG
+Application NN diploma  and write job ncv combination nated and .. application.poe 's 
+Theoretically and practical on job 
+And function of function ,, function grade trade to workplace experience 
+Aware ,reward , irregularities job leaver awareness job on trade framework qualification n diploma.
+
+- name : tshingombe fiston 
+- assessment curriculum outcome .
+
+- 1.1 file running job employment vocational guideline.
+ID flips 0016910025
+- project , photography drawing , curriculum vitae , document design , homework financial legal wall documents .
+- 1.2content  PG data academy 
+
+- 1.section examination is results statement letter appeal ..
+- section letter data lms experimental 
+- info add back log  item workplace cvs 
+- management information systems and learning 
+- vocational guideline total theoretical bass framework total grand entry exhibition.
+- practical school management .
+- orientation class practice file store room cvs .
+Learner .
+- psychometric learner facilitate career job cvs write mentoring cognitive analysis synthesis evaluation.
+- technicial document archive file library case casebook review program page order price  work job .
+- choice career job hr.
+- personal training . issue license ..
+* CSD treasure supplier ID R016921978
+DTI: invoice .
+- R& D tax incentives reg : 2013/0344989.
+
+- civic ,
+
+...
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- seta  lms ,I'd =127952
+- assessor moder 
+- sasseta psira verification.
+- sarb: ID 61095446 vocational rules.
+- sars :SF7478: TM portfolio maintenance.
+- Microsoft ID: 9953174 ,Azure dev .op I'd 
+- scheinerde  I'd / 607069d9-fa26-423a-9d8c-d810df173a87...
+- bill material I'd ..
+- modicon plc configuration mort ,tech exper assessment 
+- eskom I'd : drop file 
+Off autg = 9a2334e83af@afc6dec30difc6,Dec 30dif59,
+-city power : badge ..
+Compliance city power
+- regional revenue
+|Designing description file ||.  Check|| no
+- destination description files .
+- total faculty career guidance rwite career outcome.
+- total experience: content 10 pocket 290pg
+- pocket section 1- file examination  25 page ,1-25 PG..
+A) statement N1,N2,N3,N4,N5,N6
+B) allegations irregularities letter .
+- C)in studies .
+D) statement swiorn affidavit,
+E)incidence report resolve complain .
+F) record academy transcript 2100203 812
+G) results 202311 release pass all subject letter qualification.
+H) cup exempted mark university capacity development letter minister transcript . registration . bachelor minister Lund's marking maraca .
+J) devt tvet guidance ma..
+K) evaluation foreign  qualification quotation 
+L)st peace  college certificate award electrical safety experience theoretically practical section .
+M) record training scheinerde certificate ,2 PG certificate of completion work experience.6 PG.
+
+N) Alison learner record certificate : diploma cpd certificate , engineering studies security detective police  forensic diploma platform 
+- meeting aluminum lms assessment .
+- certificate book mark registration up met police metropolitan police  career engineering ,isc candidate official candidate transcript  trailhy tableaux 
+IP  candifat property certificate original.
+- R) ID. Homes affairs permit 
+Cvs
+Pocket section 2 files 25 PG evaluation resulted complain case wallet document .
+A ) complain ,B case incidence dhet record 340311006003192 Microsoft.
+C) saqa purpose accreditation non credita saqa record outcome explanation letter ..
+D) procedure evaluation copy final saqa graduation diploma nqf national framework qualification outcome letter , ratification letter saqa employee experience relate Dr congo school leavers ,Qcto .
+F) outcome complain intelligence service inspector general  investigation cvs Poe record from datase ..
+G) Doj case civil ..
+H) cs treasure incidence close tendered supplier resolved ..
+J) congratulations test plan evaluation case book Microsoft incidence resolved 5 visual case support ..
+- pockets section 3 files 22,
+-A) letter completion practical t
+B) appeal statement results award.
+C) record transcripts irrey .
+- pocket section 4 ,files record sheet schedule irregularities registration time table , additional final years calculation vweigh ..
+- pocket 24 PG metropolitan 
+Section A) on line submission for : 1-5546-24 data right .met uk .
+- B) intelli property IP license MIO 327,24-0100certife copie copy answer submission  affidavit career city power topics visited site ,on line .
+- pocket 6:18 PG memory drawing .
+Project design : theory exam outcome draw .
+A) label outcome skill development subject,skill practical from work engineering practical theory trade nqf ,6 Scotland qualification trade skikk practical level ,67 work experience occupational .
+- pocket .city eskom project implications job curriculum experience visited ,city power eskom .
+- eskom science under key learner word process ,relay issue along license research.
+- cvs experience bibliotech libraie company.
+Pocket ,8 ,12 energy power electronics power project discovery design job ,job simulation theory machine instrument research job file job assembly job book ,ac ,DC machine , energy ,energy power transmission generation cogeneration , economic advanced .
+- issue license , algorithm ,I'd employee , issue certificate exam file , 
+- guideline vocat interview total career guidence accreditation choice field .
+- years achievement scored career faculty engineering electrical studies guideline test interview rwiten 
+- faculty policing traffic paralegal test career.
+- faculty business educare education career teach assessor moderator 
+
+- faculty it ICT 
+- vocational orientation statement interview company .
+- total grand engineering career.
+- talent engineering subject studies engineering senior staff , cognitive,scale waiting analyze, synthesis interview notice ,
+- practical school orientation practical office school room  practical office school class homework class ,
+- theorie
+* Portfolio : practical rules discipline discovery 
+___________________
+
+
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 19, 2025, 4:16 PM (13 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+Inventory prizes award literature and Nobel research prix litterary word key
+Explanation letter course subject 
+Discovery circular n diploma nn diploma printer ...job . Code trade national and ncv  job  company .award poes 
+Prize award.irregularities regulation.job 
+Prize awareness 
+Prize award framework qualification assessor facilitate moderator discovery
+___
+
+* Portfolio Parliament alert*award
+_____
+
+Notice motion  ruling dhet policy framework 
+
+* Prize letter nomination secret creative 
+Arrested ministerial..2023/1226 low
+Appeal statement results award degree diplomat .. institution academy police and national skill national trade registration 
+Notice motion low ,saqa meeting 71638 policy ..
+-Legislation education dhet  deputy minister dhet dbe and nrf nsf low rules amended nated and ncv saqa Dr congo leaver school regulation agreement phase circuit/. Dtic sarb cpic sector dme,lms .. private sector eligiblity,bill amendment prize code trade manufacture low training sector engineering trade operation skills 
+
+- administration education/ education dhet  
+- education social dhet government ..
+- method research course initiative project creation registration national award awareness .. conduct assessment ruling notice motion ...
+
+Creative allegat to Qcto  saqa retain ,letter to authority minister for results  investigation..
+___________
+Prize letter award ..
+Irregularities material irregularities 
+Letter record acat and transcript academy : to dhet deputy ,, create ..
+- weighting of course engineering 
+Industrial electronic, industrial, engineering, electrical trade theory, mathematics , industrial electronic,
+Mark guideline error low : 
+Create low contribution workplace asst  
+Low not appropriate stationary and marks retain ..
+____________
+Prize award ..
+Created record academy years transcript / buchelor engineering 
+Ucpd and 
+Create arrested minister is 210002023812// 2023/11,, release  college 01/02/2024
+
+ 
+Incident INC00025277051 report have been resolved assistance .
+Dhet , N3, qualification  achievement , complain response.. 
+Compliance ,person /minister / municipalities dhet ,,
+Notice motion low 
+Letter sita  appeal career backlog project appeal irregularities.n4 ,n3 subject fail candidat rwiten 2 subject fail , pendy rwiten 2
+Creative job ....
+Prize inventory..
+______
+Prize award 
+
+* Automated reply letter explt theoretically practical base . experience 
+Call center  dhet gov .za Omni microsoft.cin..
+- thank for contact dhet .regard nn diploma nated and ncv enquiry .news issue , replacement or combat must submission 3-6 month , waiting printer.. appreciate..
+
+___________
+Prize award 
+Screen saqa explanation cv
+
+-Evaluation of foreign qualification 
+-Team B
+-application check list
+* Documents 
+|Application forms| submitted| not submitted 
+| Quotation payment reference number  signed correct  amount not  submitted,short
+| Certified copy I'd  ,yes submission 
+Signal consent form ,yes
+* Document issued in original country 
+|Document in foreign language| yes
+* School qualification general university entrance qualification 
+| Issue official if application if not original 
+Relevant bord minister education | certified certificate,certified transcript , subject list 
+*High education qualification 
+| Final award degree diploma certificate | 1th submitted ,
+
+Not provisional certificate or unofficial statement 
+Transcripts of academic record reflecting each years of study   | 1th not submitted 
+- official statement from institution.| 
+
+* Country neco ..
+Exam certificate / report 
+* Country Mozambique 
+Minister
+* Country china 
+Ambassador 
+* Country Dr congo school leaving certificate 
+Baccalaureate 
+Attest the reussit aux baccalaureate ( relieve individual de note ) bulletin note
+- diploma d ' etat submission 
+- non  compliant..
+* Profession member / design short course 
+- short course 
+- saqa .
+
+____''
+Screeners initial 11.2019
+___''''
+St peace college 
+Award certificate in electrical 
+Follow , safety 1,design db ,socket outlet ..
+______
+Dhet  ,rsa 
+Statement of results 
+Exam number 
+Tshingombe tshitadi 
+ fiston 
+Industrial orientation n3, plant operation theory , electrtechnology , electrical trade theory..
+- industrial electronic, electrical trade theory , mathematics 
+_____
+Dhet
+National career advisory portal 
+Ncao value question results..
+Item | desct 
+______
+Incident CDs treasure ..
+Resolution.
+Description.
+__---
+Training theory practical experience company..
+Scheinerde r electrical 
+-eaton 
+Microsoft 
+
+
+
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 19, 2025, 9:19 PM (13 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+To: st peace college and institution.
+Date subject letter .
+To concert serves confirm Mrs was participate in the workplace integrated learning program research assessment irregularities exat nated ..
+- dear client  thank you for contacting nqf information center nic , please note if need assistance with evaluation of foreign qualification you can assist.kindlt note thate I have referred your e
+mail to the evaluation team  to assist with the process you need following ,king regards nqf information centre ,nic saqa Pretoria 
+___________
+* Re : / award dioloma certificate MarkSheet transcript letter experience theoretical practical engineering n study outcome .
+___"
+Re: letter explanation theoretical practical base .n diploma award engineering electrical,jxl6wjl
+- dear Mr/ Ms fiston 
+Thank you for email.
+- please note that application for evaluation is done online. 
+- attached are the guidelines for the application and the country requirements be ware that the maximum turnaround time for connection of the evaluation process 90 working days .kindly note that our system is not compatible with the IP phone ,ipad ,and Mac book ,your are advised to use device ,ensure that your fault internet browser is google chrome and that ..
+_____
+
+Price arch internet 
+
+Re: release results statement and finalize award diploma , irregularities case ..
+Support @ archive Zendesk.
+The internet archive team internet archive ...
+It's dispiriting to see that even after being made aware of the breach weeks ago ,I has still not done the due diligence of rotating many the apu keys were  exposed secret ,as demonstrate by this message Zendesk token perm to access 800k + support ticket .whether trying to ask general question or request removal your site from way back machine your data is now the hand of some random guy if not me it s be some ..
+________
+
+Life on scheinder
+
+Customer notification : 
+To value channel partner .
+Document envelope : I'd 2872DD67-435C-4079-A408-3DE7221E2254
+Subject : price increase on power products family announcement letter:
+Dear value customer : dues to increase production cost on our MCCB family product division ,we are compelled to inform your a price increase on this ranger as you are aware ,we have maintained our price on this range for the last two ( 2 ) years  in lieu  this will a 6% price increase on our MCCB ,moded case circuit breakers family product which includes compact nsx compacts ns ,compact ins / imv ,go pact and cvs this has made after careft consider of current condition and variouse cost factor v.
+New pricing structure will come into effect on the 1st January 2025 we understand important of these products to your operation and assure you that this decision has not be taken light our commitment to delivery exception value and support unwavering .
+- we appreciate your understanding and continue partner bteam ..
+Rsa 
+
+Talent acquisition team 
+*Schneider electric talen application ..power  system medium voltage intern role team application impressive selected to continue b,will keep resume ,, 
+Training and university college o
+Fiscal years 
+Graduate 
+Theory practical on job
+Case support load 
+________
+Eaton talent 
+
+Update around application  the job has been filed , commercial finance manager appreciate v
+Heating support 
+- engineering production.sucessfuly 
+- market Eaton 
+Produce project : 
+
+_______________
+Microsoft team  price
+Recruitment 
+Microsoft career  unify candidate poison applied AI engineering continue b up date
+____________________________
+Career metropolitan. 
+
+Request an intellectual property ( IP) License 
+- date : 15 December 2024
+
+Your details . tshingombe fiston 
+- company engineering tshingombe / peace college 
+- e mail 
+- phone ..
+- request an intellectual property IP license to use  a trademt belongings to met mayor office fo policing and crime mopsc ..
+Pg1-33
+Career ..job ..
+
+* IP MIP-329-24-01000-000
+Pg1-20
+* Request an intellectual IP license . 
+Date 27 June 
+MIP-318-24-0109-00
+* Request an interview service met office for commercial purpose such a research for book 
+*MIP - 319-24-0109_99
+Ask us a question about using the met 
+* Data right official .
+Dear tshingombe fiston , freedom of information requested reference number 01/fou/24/040452M..
+Decissiin reason ,act  proof address 
+-
+Apply to attend a misconduct hearing :
+MMH-3919-23-0100-000..
+- contact the fire arm license .
+FA-36838-23-0100-09
+- explosive regulation b
+- cnr - 50615-23-0100-00..
+* Expression of interest withdrawan 
+Met recruitment team . Dear tshingombe you have successfully withdrawan your record of interest from our system if you ave decided this isn the role for you  still interested in joining the met please a look a t other opportunities we  currently got available you can view our career here  many thanks the outreach team ..
+
+___''_
+Salesforce trailblazer 
+
+Career 
+* Https// prod- uk - a online tableau .com / #/ site / tshingombe fiston 30a602d47
+User traffic view count project Chile 
+
+
+* New Zealand defense force recruiter trade rank country combination ,career  military experience  profile 100%
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 20, 2025, 4:16 PM (12 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- st peace college 
+Reference: 
+Information management system 
+Learner on line  computer outcome online data system web published network page ,Facebook ,online line 
+Mbit information 
+Presentation 
+- certificate of achievement ,,
+In recognize of outstanding accomplished and contribution engineering , electrical compliance , assessment police conduct engineering and competent submission portfolio marks value completed week daily time table ,,,job experience 
+- pg1-1 file:/// st peace CD index certificate st peace .htm 
+- gift certificate : 
+Learner feedback note cash redemption value note ..
+Pg1f 16
+- st peace college assessment police ,and assessment engineering policy .
+Time table engineering police subject module trade ,
+Compliance affidavit ,code conduct ,
+- case studies : ECSA  rules of conduct registration  case .
+____________&___&&&&&&&
+* St peace college 
+Reference: guideline 
+Orientation policy 
+  Practical brigade sector police assessment examination evaluation library discovery ..
+disciplinary .
+Pg1-10
+* Assessment policy engineering weigh value saqa award degree dioloma supplements meet or not meet ..
+Bookmark description|| mark word min | re mark max || n1 to n6 
+Topics subject | 109 page , knowledge analysis discovery not || note book copybook exercise book review page covered extra book information || comment feedback award 
+* Trade theory electrical 
+* Industrial electronic 
+* Engineering science 
+" Engineering drawing 
+* Mathematics 
+*Electrtechnology 
+* Business engineering 
+* Organisation industrial 
+* Level write electrical 
+*Assessment police level 5/120)
+Traffic  low , management framework 
+Exam papers 
+Total value 980 PG , award ,× 1 award , outcome ..
+Reportserie number || nature occure ||| action take corrected ||• record transcript 
+
+Drawing design mark 
+__________
+Bright st peace report 
+Purpose meeting on duty academy ..
+Ob  book incit book safety politic munii permi building government ...
+Pg1-3
+
+_______
+St peace college 
+1-10 page
+Register form Microsoft 
+Event registration 
+Personality information .
+- student number : 
+Student first name .
+- student last .
+
+Leave sick .
+
+- it  device request form remoke work ..
+- expense  form 
+______
+St peace college 
+
+Reference : compat sector private supply close tendered open close private sector engineering and policy private sector assessment .
+PG 1- 10
+Services providers tender
+Curriculum information desk assessment police stationary information system design ..
+_______&__
+St peace : college and institi .. academic students brigade .
+-sectir st peace integrity guard academic officer police academy ..
+Purpose topics :
+- recruiting .
+- job requirements .
+Rank office 
+Faculty 
+________
+Time ..pg1-29
+..1.1 company marketing circulum assessment cash industrial trading and business support .
+1.2 statutorial : low labour relation skill industrial trading support services engineering .
+Vision 
+Missy . submission 
+______&&
+Program st peace college visual basic 
+- assessment engineering electrical information management system communication , administration skill manat delivery framework work 
+- assessment 3 topic subject 
+_______&
+Invitation to bid .
+Part CDs  invited bid requirements of the name : 
+-bid number | R0169241870| closing date | 2023/09/2
+| Are the accredited || if yes  ||| are you based supplier the ||| 
+Totaj number of item offer ||
+* Certificate of independence bid determination 
+_______&info @sabs.co.za ..
+- subject subject 
+- online 
+_ council planners .. statement query v..
+* ECB ,, electrical conformance board of sa 
+___&&
+St peace college 
+81..Reference 
+Portfolio 
+
+City power application form for trade assistant .
+Personality details:
+- surname: tshingombe -tshjtadi
+- first name : tshitadi 
+- age : 
+- I'd 
+Gender .
+Do you have disability.
+- are you a south Africa citizen : yes / no 
+
+- do you have a criminal record : yes / no 
+
+Qualification .
+Other qualification | name || qualification certificate || year obtained
+ 
+* Cvs  tshingombe tshitadi cv 
+PG 1-2.
+Summary : scope research 
+1.2 abstract :
+- experience : engineering electrical city power ,st peace . portfolio  evidence 
+_ administrator training and resource humain 
+2.resume and cvs :
+Course : engineering electrical work experience 
+- title / position : 
+Portfolio evidence based assessment practical topic st peace college , project research saqa .
+- award degree saqa award ..
+- panen wiring engineering , 
+
+
+
+
+
+
+...
+
+
+	
+	
+ 
+
+* 83reference: st peace ..
+Department health 
+
+* Appointment if a service provider to supply and deliver ,rdx 320 vacuum autoclave . part 
+1.introduction :
+2. Background:
+3.scopes of the project:
+4.purpose .
+- budget  project 
+Time frame :
+* Pricing schedule ..
+Name the company 
+Quotation number 2022/NDOH-0809
+Closed time 
+.item | description of goods || part number ||| quantity 
+
+* Supply chain management  dube.. confirm  our system whether it right product..
+_______&_______
+Your CV critique ..
+- cv means give honestly ward assessment some job search  job seeker competing  review.
+- visual presentation and organisational: point .
+Cv writing : career summary is not strong ..
+Digital read ess : cv is format  19% cv ,applicant tracking system , correctly .
+- CV scan test results  you can next  step ,team top cv  rwite land interview .
+- a professional written keyword optimized ,learn ,an experly 
+- A .CV ,cover letter linked profile written ,60- day interview ,see our success ..
+Most resent employee 
+____
+St peace college..20 PG..
+
+Application nsf skill fund 
+- company  phase 
+Project 
+_____
+Ref 
+The dtic  invoice : information PG 1 . referred back cancejn 
+Question 
+Form dtic project 
+
+___&&
+St peace college 
+PG 1-4
+R&D tax incentives :
+Reference outcome the application 
+
+*Dashboard .
+Overview .
+Companies:
+Projects:
+Company linking : 
+Annual report: 
+Project submission b
+
+* Dst...research and development ( R& D tax  incentives notification of change report 
+_ project programm 
+* Technology and human resources for industry program thrio  PG 1-5
+_________&
+* Reference: 
+St peace college:
+Pg1-4
+- QCTO.
+-working group wG nomination form . qualification development / review 
+1.1 nomination for the appointment as working group member proposed ..
+.subject matter expert assessment .
+Stakeholders grouping | yes
+Employee from industrial.
+Employee organisation 
+- assessment expert .
+- regulation bodies 
+- statutory.
+- training provider .
+Acceptance nomination group .
+-.declaration by accepting nominees 
+Quality partners
+_______ 
+QCTO ..
+Page 1-5
+* Scoping report template .
+
+* Scoping meeting .
+- preliminary details of qualification intended for development : qualification type , qualification title ,nqf level , credit v
+Preliminary details of skills programe intended for development 
+
+*6 analysis of stakeholders consulted for scoping met.
+- classification |number of participants where meeting 
+- work place practice .
+- professional body statutory .
+- employer associate 
+- employee associate 
+- education and training provider public .print
+- assessment specialist examiner moderator experience 
+- curriculum development specialist .
+- teaching and learning special.
+- Qcto occupational qualification part qualification skill programm evaluation checklist .
+- section qualification 
+-qualification skill | types || title desc|| 
+* Name surname contact project 
+* Name contact subject matter ..
+QCTO  .record of feedback evaluation moderation 
+Evaluation date 
+Peer moderation .
+Oeerd 
+- sect : criteria | sme response || 
+Section completed  the curriculum document of qualification part
+* Rational 
+* Purpose 
+* Entry document b.
+Rules of combination b.
+Soft skikk includ
+Foundation learn 
+- Qualification document report template : 1-3 
+*_____
+QCTO 
+With regard of n certificate please direct dhet ( n4-n6 n diploma inquiries or umalusu.. n3 or ncv  certificate ..
+The institution in question is not registered under the dhet  check college  Qcto ,,,  nqwako 
+- please Qcto Des not issue any statement results 
+
+- verification client request rejected  certificate register ,own certificate 
+- I have copied our QA unit ,they will be able to respond to you accordingly b.
+Director system monitor labour market intelligence 
+__________
+St peace college saqa 
+- reference:
+- 90674 national n diploma engineering studies statement of work experience logbook
+Statement of work experience 
+Instruction:
+Program code
+Saqa qualification I'd :
+Saqa learning proy
+* Learner details : name I'd number .
+
+Company name address , supervisor.
+
+Trade test  work in technicial .
+|Ofo- code || trade     ||. Code 
+Air condition refrigeration 
+- refrigeration mechanotechnic 
+- electrician
+- electrical mechanotechnic 
+- armature windu
+- trabt 
+- cable joined 
+Instrument techn
+Special 
+
+* Component : db design ,cabmr ,ds electrician. .
+- 
+_____________
+St peace college - saqa
+Reference 
+N diploma award dioloma 
+Research :
+PG 1-57
+Name : tshingombe tshitadi 
+Reseat career implemented circular saqa qualification engineering electrical ..work experience theoretically pratique assessment ,
+Saqa institution foreign transcript  requirements graduate award nqf high certificate no meeting leave school expended assessment 
+
+Submission | name || date || status ||| electronics certificate 
+- 200
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 20, 2025, 9:53 PM (12 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+-submissiin | name | date || date || status
+- 202303115021|| tshitadi fiston tshingombe || 2023-03-21 , pending | engineering electrical 
+- 202207125014 
+- 202207085055 
+- 202211165081
+
+*Engineering electrical where appropriate apply lubricant ,packing .
+Material in accordance specific operating , inspection checking final assembly , where appropriate signature evidence that , obtain v following , readiness vrecord , obtain errors , checking electrical equipment v, remove vrecord test undertaker electronics equipment.
+- adjusting and calibration assemble ,returning and testing repair  
+Selected 
+Terminology inspection ,metrology ,standard, calibration tolerance measure 
+Visual inspector 
+Mountain wire control release 
+Summary : current  making  
+* Report : accreditation course 
+Resource 
+* Back of the invention :  replacement defective electronics compont
+* Summary : present invention methode replacement v, provision bonding 
+* Basic connector .,type connector  classic.
+* How to use desoldering compound. , soldering ,heater  component 
+* Quality standard code : elementary performance vbold 
+* Manufacture skill.
+Performance criteria 
+Selected correct 
+Technicial drawing .
+-1 drawing check validation against job requirements or equipment 
+- interpret technicial  assembly or object recognize , dimensions are as appropriate v field of employment 
+* Purpose .
+To describe the procedure for creation review and approval of product related .tearing storage handling .
+- to describe the process filing sister architecture , description vdicgbf f ,
+- product number specificatt ,
+Writing  routing  ,I tain  and resolving the comment charge planned to control document.- control the final document review approval routine , maintaining master files quality insurance..
+Document change request b.
+
+Material control..
+* Detail draw , assembly drawing bfir instruction manual 
+Schematic assembly drawhv , diagram  machine shopping 
+Report writing ,matter policy concerned ,make routine insoectio ,wether live working 
+
+* Choosing equality control labek ,shink labeling v.improper 
+__&&__________&&&
+
+_&&&&dear. Tshingombe tshitadi fiston
+The purpose of this foreign institution enquiry service some direction accreditation and non accredited foreign ,kind regards 
+Direction foreign 
+
+_______&&&
+Application for evaluation of foreign qualification
+Non  compliant  27,2021
+The application for evaluation of foreign qualification of above mentioned does meet all saqa requirements stipulated in the application material and below outstanding .
+-application form , invoice generator 
+Proof payment ,valid document 
+Finaj award school ,diploma , degre certificate ,.
+____
+Saqa feed back complain or no complain 
+________
+The requirements and procedure for evaluation on line will the registration page ,after applying on  line  sign and submit with follow 
+A printer bout on line application b,copy of finaj award graduate certificate..- 
+26/8/
+__&&&&&
+Final ..award certificate , academy transcript 
+______saqa submitted application closing date cv 
+Saqa reference : 2923/434 senior manager ICT ... 
+
+
+
+
+
+
+
+
+
+	
+	
+
+
+84.1Reference 
+
+Sasseta v evaluation rec 2532 , hrv
+
+Weight  , responsible 
+- at wath nqf level is your hr qualification.
+- how many years experience in performing general hr 
+- how many years I. Performance payroll duty 
+- how can rate your knowledge of hr information 
+- computer literacy Ms excel and word ,
+- do have relative working b experience bin forb of duty performance your self 
+- have you suspended fron 
+- application declaration 
+100/100
+
+Lms , sdf 
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 21, 2025, 7:08 PM (11 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- reference st peace college 
+App register form ecsa   
+Register self service portal ECsA - 00125662 reference v... engineering council n...
+- reference  space  member council education ..
+
+- reference IEC 6238-1 :2018 academy master class..
+Quotation 
+Customer 1005391..
+Quotation n-002360 
+Meeting training virtual 
+
+-Reference sabs  academic ,sale 
+Webstore
+Reference: iso  academy virtually 
+
+-Reference:  sarb book  cvs profile 
+Portfolio ref no : PG -1-11 3/4/tt/tshitadi/tshingombe 
+- artisan - electronics CT , robotic process ,automation engineer bstd ,manager supervisor bank 
+
+PG 1-10
+-the referral request has been sent
+ successful.jib IRC32431..
+Job titles banknote processor , location jhb cas center 
+- PG 1-6 career job invoice 
+Career graduate student.
+Cvs - 
+
+
+* Candidate project cvs sars PG 1-1..
+Notice if appeal 
+Survey screen psychometric assessment team outcome.. registration customer..
+Ralph vill..
+
+* Reference of brigialk  of attendance . 
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 21, 2025, 8:48 PM (11 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+*reference CVS: 12/2022
+St peace college.
+* Research experience .
+- engineering electrical implemented time table to job time  company experimental trade.
+* Education : study st peace college 
+* Work  experience 
+: title / position:
+City power training / st peace college training .
+- award degree diploma saqa / award panel wiring electrical .
+- skill .
+- engineering electrical st peace 
+
+Engineering electrical visit st peace college /city power .
+* Organization :
+* Tshingombe tshitadi ..
+Skill trade theory ..
+Summay ; scope research framework study trade theory practice engineering study time table assessment allocation ..
+-abstract : knowledge study case engineering design analysis investigation .field ..
+- experience 
+- education diploma high : 
+* Practice assigny : 
+* Rubric ....
+__________________
+*Reference:
+Portfolio:
+St peace college dhet saqa nated / city power career outcome 
+- research college engineering careers join gov company department implementation time table framework college to company electrical engineering low .
+Name  cvs : title ..
+PG 1-10 
+
+.1. content : engineering electrical career project  officer outcome legislation government engineering gov .city municipal engineering theory and practice experience b
+2 . requirements : metering.
+3 . testing desktop : 
+Experimental measure data results energy recovery years research input  balance output ,res
+Metering function b... old consumption :
+Procedures,fearture
+Calculate  tendered value career total education trade .
+Subject | theory trade test | practical test | exam || exam | grand ..
+- contact nr || description || published || closure date || bid document..
+------
+PG 1-10
+Portfolio.
+
+* Strong city design policymakers practical operating at city subnational ...
+- education and education for innovation the power of digital technology  ICT   combination education industrial 
+* Vacacy bulletin ref: .. recruitment sdc @ city power co.za : completed ...
+Visited studen open day.  
+Up date 
+Technicial indicator description .kpi 
+Short definition || purpose and important || source data ||| method calculation ||| data limitations ||| calculation on type ||| reporting cycle ||| new indicator ||| desire performance indicator responsible 
+_-------------___________________
+St peace college / city power :.-
+Reference:
+Portfolio 
+PG 1-78
+Research job .. readiness experimental theoretically practical base 
+
+1.scope : research implementation framework study trade theory practice engineering study time : table assessment allocation framework regulation in government city and eskom training center development infrastructure support training training experience studen 
+2. Abstract:
+3 - purpose .
+- task 
+Step 
+* Ask / answer factor permit : 
+** Answer factor sub contractor tendered and customer value .. 
+____________
+St peace college,
+Reference 
+Dhet government 
+Experimental theoretical/ practical 
+* Engineering electrical career job workplace office engineering outcome trade engineering outcome education engineering work partnership visited meeting engineering innovation college job function to government industrial experience function job and gradient function job industrial engineering electrical and social ...
+,* curriculum ..
+* Content : engineering electrical career project office legislation government gov city municipal engineering theory and practice..
+1.2 scope of workplace engineering career :
+Summary assessment outcome education technology b.
+Department : defense ,police security :
+- dtic department trade industrial 
+- dmr 
+Science innovation :
+- purpose : assessment :
+- case study how to make calculation substation : 
+* Requirements substation ..
+,- purpose requirements 
+Requirements power station 
+Requirements: cable dimensions : ... 
+
+
+- functional principle ,calcuj effective norn ,note consultant..bureau  etude
+- requirements domain application b network 
+Table of contents : engineering electrical career job workplace ..
+* Introduction to sustainable electrical energy systems mandatory , structural of energy systems ,basic. Analytical skikk for electrical energy systems component associate with electric energy systems ,ansli of electrical power and energy conversion system mendatator for fault in power analysis and control of large network analysis and control electronics power system plant asset management monitor ...
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 21, 2025, 8:58 PM (11 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+Reference: 
+St peace college/ 
+Dst ..gov city power st peace college 
+Programm research development support ,st peace lecture and learner development under planning department high education vs saqa vs Qcto vs seta research resolved time table examination assessment police , portfolio  document system integrity police : 
+2.1 : purpose  innovation practical and practical  science technology ..
+2.knowledge .
+- strategies phasing module cvs implemented .
+- development human system 
+..
+* Basic science infrastructure : implications of research innovation mission 
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 22, 2025, 7:42 PM (10 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- reference:
+St peace college  
+Eskom. Cvs 
+
+- personal:
+Title : Mr 
+Initials : ts
+First name : tshingombe 
+Surname : tshitadi
+Rsa : tircog00910619
+* Current  total to company : R95000.00-R1100000.00
+
+.. education info ..
+Qualification | institution. || Years qualified || qualification rank || time taken to complete ...
+
+Professional registration.
+- employment history.
+| Company|| position || salary ||•outputd ||| achievement |||| start date ||• end ||| employment ||| reason for leaving .
+
+- st peace college | panel wiring ||| R 0-R10000000||| panel wiring electrical design distribution bo|| certificate award panel electrical wiring issue || 2023 / 10/25 || 2 | close tendered
+
+--st peace college / city power cv ||| student learner ||| R 9500000-R 1100000.
+||| Learner engineering || 2032 || 
+Outputs : portfolio career research college engineering gov . tshingombe fiston 2023 department of science and innovation socio economic ..gov program .. lecture and learning under planing department high ..
+--------
+* Resumes 
+Eaton career :cvs pre
+Preference 
+- skills ..
+___&_______&___&
+* St peace college : dhet ,saqa qcto
+Reference:
+Portfolio evidence low 
+
+PG 1-50
+Re: appeal application qualification occupational n diplomat award Dr congo leavers 2016 submission and transcript certificate record supplementary ,rsa completed n diplomat studies engineering n4,n3,n4, n5,n6 quality insurance body irregularities in progress marking re certificate re accreditation insurance body 2022 , irregularities transcript script material the theory electrical subject evidence practical framework scope ..
+Quality council trade Qcto ..
+- requirements 
+Title nomenclature.
+Title description : engineering electrical n studies national trade examine 
+*Section b: qualification development qualification b..
+* QCTO: scoping report template : 
+- work ...
+- registration ..
+..
+
+* Application : 
+Reference : 
+Enquiry : 
+* 15. Days work topics ...
+* Statement of work instructions n diploma ...
+..4.1.enquury : Qcto certificate accreditation : 
+* Cert and assessment occupational . requirements trade n diploma award certificate 1th , ,2 th ,3th ,4th  saqa qualification Dr congo .  
+3 purpose orientation industrial organizational planing supervisor management management system data portal student b.
+- theoretical and practical examination n diploma occupational council and qualification trade engineering studies ..
+* *Purpose practical national framework tools instructeur.
+* Theoretical framework base experience outcome basic electrical trade ..
+- purpose : entry criteria .. industrial orientation..
+- purpose learner examination completed b: applies skill electrical trade theory : explanation low appliance to subject b..
+"* Purpose : explanation low speed control of motor mean outcome normal increase  low connection 
+..
+* Purpose engineering practice component b,cabling joint armature ,DC .. outcome entry : engineering trade low work preliminary ..trade associate ,trade basic advanced ,x exposevt xl. X = work exponential ,x work operation factor product back activity b work exponents ,static analyse visa technology brating minimum , variation x= x 
+Low work x logarithmic bperminmonth 
+* 
+___&______________________
+St peace college : dhet / 
+Reference letter
+Pg1-110
+
+Re/ award diploma certificate MarkSheet transcript letter experience theoretical practical engineering n studies outcome...
+To st peace college completion letter , practical experimental log book ..
+- 1.@ section one .. profile job application n..
+- 1.2 design of reporting template : table excell ups in engineering electrical software b: .
+1.3 library iny service : sciebono career and st peace ...
+1. Technicial documentation simple business files and data during operation document size store career control ..
+- 2 section two 
+- purpose career explanation course customer training manufacture executive scheinerde electrical plc , level ecosteuxure control expert program level 2'...
+- basic requirements for electrical calculation non  computer must standard sheet heading completed filed 
+- career education graduate didactics evaluation assignment ..
+* Dtic  process manufacture trading compont conduct switch machine ac DC trade design generation transform  trade education relay 
+Invoice
+* Process claim invention b.. pcb  , 
+
+Cell manufacture  machine ,, engineering manufacturing 
+Manufacture measuyr instrument machining process ...license tradec
+
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 23, 2025, 7:48 PM (9 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+* st peace college.
+*Reference:
+Portfolio evidence low
+* Dhet tvet / college nated  plan college 
+Teach and learning plan 2022 /2023
+* Lecture dhet and st  st peace college internal external learner portfolio textbook .
+*PG: 1-30
+- part 2 framework and conceptual understanding of plan .
+*.   Aim of plan : vision college and mission college and institutr examination  subject  ..
+* Objective of the plant :
+* 5 . understanding  phylosophic  for delivery of quality teaches on and learning in tvet in tvet college teaching .
+
+* Key delivery area ..
+* Implications  and monitor of teaching and learning plant topics trade engineering national ..
+- addendum not completed response :
+* Purpose :
+Qcto : occupational qualification skill programmed  development report requirements qualification document final verification meeting ..
+* Trade test Qcto saqa .criteria measure the power of learning trademark of education testing services ...
+
+*Liken send electrician 
+* Purpose of course daily course tender provider service required trade skikk phase 2,2,3 trade test readiness close report weekend attendance 
+
+- curriculum value add assessment is subject to changed ..
+
+- purpose dhet : education input output ..
+- purpose manufacture relate theory practical component equipment trade ton max chain load diameter trade code objectives criteria ..
+
+-dhet vs sasseta accreditation assessment ,mil std safety security training merseta gov . gazette ..
+- dhet vs saqa Qcto practical work experience lab workshop workplace industrial trade purpose machine manufacture .
+- purpose instrument measure trade engineering electrical instrument measures control lab ...
+- purpose : education learner : engineering physical science engineering cover...
+_______________________________&&
+* 
+St peace dhet : 
+- assessment career job .
+- application name : tshingombe tshitadi 
+- permit award ..
+Evaluation saqa vocational framework qualification nqf..
+1.technical and vocational education and training lectures learning work integrated learning.
+- company mission vision college design conciliation practice Manuel .
+Note ,other list senior lecture office 
+- coursework specifications .
+Course work ..
+
+- course ,1 group assignment individual presentation.
+
+- icass portfolio of assessment pos .
+
+
+Name of lecture.
+- learning program .
+Subject 
+- level 
+- class group .
+* Administration of students portfolio teaching / lecturing information 
+* Name of lecture .
+* Sace registration number:
+
+* Teaching / lecture experience :
+* Workplace experience :
+Lecture appointment date .
+- lecture duty,, lecture assessor lecture declaration compilation of icass portfolio of assessment 
+- hereby declare that I have icass  portfolio administrator filed accordance policie ..
+_ statement record MarkSheet assessment..nated ncv 
+Grand total years academy 
+* Sace registration: educator name school 
+* Form ..
+*___
+*Learning management system acceptance factor for technical and vocational .
+- design work base methodology research ; criteria requirements ||yes| no|-
+- lms tvet institution  discovery important factor can help improve acceptance of lms .. motivation 
+- quality information saqa framework insurance.
+Lms stakeholders  assures online tvet teaching effective .
+- lms integrity with activity it lecture ability generator keep track student progress .
+- lms  years internet phenomenal created wold population lms  blackbord , Schoology , Google classroom according to study conducted .
+* Management syy solution ..lms learner transfer ..learner psychomotor.
+Lms system underlying..
+* Lms : development of education technology made online base course students retriever learner made available by lecture web browser b.system  system facility b that control learning .
+* Content tools  maximum delivery . 
+*  Lecture and students .
+**Student deal problem identification component or system ,students improved amphazie tvet .
+" Technology acceptance model user research to determine  measure technology based ..
+* Acceptance of information system has been tested  vary level of experience and system , accepted information technology b user have awareness bof and information description b.
+* Lms have positive perception . litterateur approach b factor infli  booleans operation .
+Lms : adaptation learning base effective . satisfaction  infot . validation accepted item  results bwhich show b..
+- item need evaluation accepted commented expert  rejected ,sq 10 
+-Adoption of the electronics portfolio management system in tvet corporation diplomatic . certificate: ..
+
+* System remaining low because is rejected  need effective framework  factor influence  positive performance 
+* Outcome based educare : methode students learning learning process , optimized curriculum planing process course goak ..
+- value  system hardware software methode communication data resource work collection .
+
+* Data analysis : after collected survey where processes  descripted were performed b.. academy using 
+* Reliability : 
+* Assessment of normality and Commons methode bias
+* Results : obtained  profile of demographics variance explained 
+* Theoretical contribution : 
+* Practical contribution :
+Limitetioj 
+_____&&&&&
+* Watch  video on theory of learning :
+* The nature of knowledge and implications of teaching 
+- scenario 
+- theory research best practice teacher 
+- epistemology theory of learning .
+- wath is epistemology 
+* Objective :
+Conginitivitui conney ..
+The nature of knowledge changing, knowledge is commodity ,nature 
+Academy knowledge 
+- academy knowledge of author form ..
+" Summary 
+- methode of teaching campusr focused 
+- scenario lecture figth the system .
+- five  perspective of teaching.
+- the origine of classroom  design.
+- transmission lecture learning by listening .
+Definition 
+The originals of lecture 
+- there technology b make relevant b
+- does news technology make lecture relevant band role for lecture in digital age 
+- why lecture still main form education.
+* Interaction lecture seminar tutorial learning by talking .
+* Learning doing 
+* Core design principles 
+* Experience design modejd
+,* experience learning in online environment .
+Strength and weaknesses of experience learning models .
+Learning by doing apprenticeship b
+- the importance of apprenticeship as teaching methods .
+- key features of apprenticeship 
+. learning nurturing social reforms modej teacher b
+- Addie's model
+- online collaborating learning : core prince inquiries.
+,g competency based learning b: wath how  design 
+- community of practice .theory behind community ..
+***** 
+* Problems statement tvet .
+Purpose studies
+.- theoretical framework.
+Method approach vs  research design .
+-
+
+Litterateur review vs  work integrated bvs workplace learning vs problem bases learning vs experience learning ..
+-theoretical vs industrial placement vs placement experience vs skill vs theory vs classroom teaching vs practice b,, 
+- data generator 
+
+-work place in industrial vs teaching experience in tvet vs company vs money..
+*Data presenting pedagogy knowledge vs using machine bvs cvs vs engineering b learning skill subjects b computer vs methodology reflecting 
+* Job purpose
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 24, 2025, 6:50 PM (8 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+* lecture eskom city power.
+Job title: trade assistant job grade task 4 ..
+Job report to team leader 
+Job preparation .
+- demarcating of work place cleaning.
+- assist in the authority erection of sco
+- comply to safety health environment .
+- identify hazard condition and fault equipment that impact overall 
+- nqf 2 equivalent ..
+- senior management ,profy qualification,skilled ,total ,male  , senior ..
+- report city power integrated report .
+- reward policy ...
+- tendered , data ,pricing ,firm , agreement contract data ..form of acceptance,formal contract , invitation, declaration for procurement above R100000, preference claim bid , valid tax clearance certificate ..
+* Technicial schedule .
+* Electrical for Qos inputs ,
+* Power supply per clause :
+* Supply protection requirements per clause 
+* Test free fall transport package .
+* Manufacture of current transformer .
+* Manufacture type designated 
+
+* Ambient air temperature ,c - 10to 4 ..
+* Altitude m 1800
+* Average humidity 
+* Level of population very heavy st..
+* Indoor or outdoor user indoor .
+* Nominal  r.m.s voltage ( un ) kv 6,6 / 11 .number phase 3
+Frequencies : 50 hz 
+- basic insulation level 75 / 95.
+- dry type current .
+- core  yes/ no 
+- material copper .
+: diameter mm
+Mm. 
+Quality assurance :
+- class accuracy  reactive .light communication optic  
+Number led kwh ..
+Load profile recording comply : 
+- programmable demand  measure kv ..
+- energy measurements data retention kvar/ kwh ..
+- data extraction comply : 
+- does meter provide  for minimum time .
+- requirements , 
+" Marking and packing 
+
+iKon* manufacture ,relate voltage ,rated amperage 1-20 
+* Installation operation and maintaining decommissioning and disposal phase requirements for environment management system b..
+* Clamp cab size 75-100 single ..
+* Manufacture.
+- does the design comply ,do the thread rod length comply ...
+
+___________________&
+Mil std 462D department of defense for control of electromagnetic interference characters of subsystem.
+- purpose :
+- application:
+- general applicability:
+- structure:
+- emissions and susceptible designation.
+- applicable  document .
+- government document drawing and publication .
+- metric units 
+- non development item .
+- safety critical .
+- test setup ..
+- joint  procurement .
+Filtering ,non government,
+
+
+  switching transient, verification requirements measurements tolerance ,
+- shielded enclosure b,
+- radio absorber material,
+- composite ground plane 
+- power source impedance ..overload ,rf hazard ,test configure b, safety ,interconnecting  leads cable ,
+- electrical mechanotechnic interface 
+- operation bEut 
+- operating frequence turn , measure b,dectorv,
+- computer controlled  
+- emission testing b.
+- bandwirh 
+* Calibration of measuring equipment ..
+* Measurement system test ..
+* Antenna factor .
+* Emincontrok requirements versus intended installation .
+- emissions and susceptible vreq
+- conducted emissions power leads 10khz to 10mhz ..
+- applicability .,limits ,test procedure ,test  data presentation ,conducted antena 
+* Transmit mode for transmission and amplifier ..
+* Conducted emissions on power leads shall not exceed applicable . Include lind aircraft .
+* This test  equipment shall , measure receivers ,currents probes ,sinal generator ,data recording device , oscilloscope ,resistor ,lisn ,setup test setup shall , maintaining  a basic. Test  , removed replaced ,
+* Calibration configure the test setup for measure system check .
+
+* Non conductive ,1,5 meters  ground , 59 termination or 50 input of measuring to power source signal output port : 52 k ,59 h , 
+Frequence ohm ,tolerance + 29% ..
+* Design methode ..
+
+Experimental measuring the band of semie conductor  voltage ,field magnetic b
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 25, 2025, 6:50 PM (7 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+* ./. Design work base methodology | criteria requirements.
+* Experience 8 measuring the band gap .of of a semiconductor.
+* Experimental ,measuring the induction voltage in a conductor loop moving within a magnetic field.
+* Experimental 4 analysing the thermodynamics cycle of heat pump using the moilker diagram...
+* Warning ,TT undefined .
+* Experimental set up 
+Power electronics .. DC/DC ..
+* 
+Experimental diagramm , results table , primary 
+* Company:
+- experimental name : verification of the transformations.ratio of the transformer .
+- single - phase power supply 230v and 50 hz ,
+- regulating transformer auto ,0-259 .
+- 2 ammeters range ( 1-10A.
+2 voltmeter ranger ( 0-500v) .
+2 wattmeter ..
+* Training system for electrical power engineering .advance..
+The transition energy industrial ..
+* ____&&&__________&&
+* Lecture have different perception of effect of internal continuously..
+- drawing from an interpy constructivist so
+* Research ext lecture and learning experience brole subject  lesson plans  are drawn  teaching learn processs  computer practice lecture  module assessment plan  indaxtire activity:
+* Monitoring effective  of teaching b 
+* Schedule v is time table  module will be assessment task to be administered  and mark  allocatiob t.
+
+* Pre assessment lecture are reqy  subject expert mark tash  process ,
+* Computer practice module lecture experience of assessing tvet  lecture , 
+
+
+* Student fail to complete  to complete programme  pratique training portfolio band logbook  , inadequate college show limitations and lack of exper ..
+*Assessment 
+* Lecture experience time constraints barrier for assessment v computer , executive internal marking : 
+* Time allocated for teaching and assessment should ensured  curriculum coverage tasked planing  implemented v..
+* Electrical trade practical sector  2 years nqf : 
+____________________________
+
+St peace college 
+* Reference:
+PG 1-46
+
+* Course engineering and technicial vocational lesson textbook.
+Education technicial and technology : course topic core : elementair, intermediate, fundamental ,phase senior teacher note ..
+Subject technicial engineering completed ../ 2023
+*Textbook engineering subject and technicial lesson 
+* Manuel guideline curriculum theory trade .children pre - engineering orientation b.
+- guideline instrucy engineering 
+2.abstract : 
+- 3.focus preparation service operational mentoring career : 
+3.1. national frane nqf n requirements career children care mentor psychosocial children ..
+- module books  designing : 1,2,3,4,6,6,8,9,10
+Module 1 : safety security policy engineering and re - engineering.
+- module 2 : tools hand engineering hand care assessment rubric formative summative  grade and phase .
+-module 3 : material conductor instructor engineering care learner and teacher .
+- module 4: field  engineering assessment moderation engineering.
+- module 5 : method instrumental didactic method measure engineering analysis analysis assignment control .
+
+- module : generator memories grade and phase engineering learning module transmission b..
+- pre requirements attand..
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 26, 2025, 5:49 PM (6 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+Reference:  
+Company experience workplace theory practical 
+
+Eaton .. design guide SA081002EN
+* Power distribution system :
+* Drawing notes: touch screens , Ethernet gate way to meter to transfo measure 
+* Generator protection .
+* Typical protection relaying for smKl generator ,,to
+* Typical component of power system , generator  : self balancing generator differential .
+* Typical application by facility type : small health facilities electrical system , single transfer switch 
+* Economic factors : typical distribution and riser diagram for commercial office building 
+* Sparing transformer system 
+* Power system analysis: breakers on symmetrical current rating basic  fault find : check capabilities , x ,r x/ r , line ground fault 
+* Maintenance and testing : typical on line paralling switchgear line up feeding the essential electrical system : other application .. optional remote PC with software touch screen  revenue metering to  switch gears 
+Reference data code standards , IEEE design letter ,ama city for conductor rated 2000V 
+* Protective relay element symbol 
+
+* Drawing notes key interlock scheme in lv switchgear 
+* Distribution equipment downstream 
+* Power system : fault calculation : 1/x= 
+* Ups types system : static conversion ,normal mode
+* Frequence hz acceleration 
+- design response  seism demand.
+Switch gear design ..
+The goal : power system with built real time analysis : design machine learning algorithm : ...-
+* Design ds : design document : construction  contract  project contract award  stage  design mechanotechnic plumbing b,correct breaker plumber.
+- correct cable  size large load ,oftentimebr*
+* Requirements : electronics  bid ..
+* Design engineering diesel partsble bank , breakers  can not close if s1 open 
+* Drawing notes key interlock , main switch ,bus ,85A,489/277v,4000A,3ph,4w breaker rating 
+- ups connection  DC ac running batteries Eaton ..
+________________________
+Reference 
+Mathematics for computer science b: revised
+Laboratory , technology Massachusetts b..
+Department bof electrical engineering and science computer and artificial intelligence ..
+* Content : wath is proof , proposition ,predicate ,axiomatic , vs proving implications vs proof by cases ,provf ..
+- the well ordering proof ,factoring intu primes ,logic formula 
+- proposition logic in computer program , equivalent and validity , algebraic , predicate formula , sequence, function, binary relation  finite ..
+- ordinary induction ,strong inducy ,state machine b machine b, state and transition ,the invariant principle ,partial correct ..
+Partial correctness recursive definition and structural induction .
+- strings ..non egative integers ,games 
+- induction in computer science .
+- infinite sets .
+Invite cardinaliy ,halting problem ,the logic set ,does 
+- prime mysteries ,
+Fundamental theorem arithmetic ,
+- modular arithmetic ,remainder arithmetic ,
+- turning code ,multiple inverse ,Euler 
+- Rsa public key encryption ..
+Whath has sat got to with ..
+- direct graph partiaj vertex ,adjence matrix ..linear order ,product order , equivalent relation ..
+* Communication between network,routing ,routing measure , network design simple graph ,vertex adjecent ,sexual demographics , isomorphism , statics bcoloring planner ,classifying polythedra 
+* Counter : 
+Sum asympy ,value, sequence repetitive b, combination 
+* Probability : event , birthday ,
+- random variable , distribution linearity deviation b, 
+Proposition statement b,o'clock ,game  integer .claim  non negative integer ..
+_ claim fault claim  easier x,y,z satisfy 
+Complex computer program b, calculation correct check colorativivity
+- case of CPU chip  manufacture  notorious past mistake methode verification program and system research .. predicate ,,perfect square  tru or false..predica become true ..
+* The axiomatic methode , proof is sequence b,justify..
+P implies if O then A call implications , quadratic formula if ax 2cbxccD o and then b- 2 ,4ac = 2a   proving reprhasing  if is even integer great her than ,2 n is sume two primes if 0 x, 2 the 3x 4xc2> 0  couple ..
+Proof theory , if 0 - 2 then 3x - 4x c2,scratch work ,claim
+
+
+- statement of contradiction n
+Case problt 
+Generality of problem staty..
+_______&&&&&
+* Industrial electrician :
+* Essential skill inventory assessment guide .
+- essential skill 
+- technicial reading .
+- numeracy 
+- oral communication 
+- computer use ,writing 
+- essential skill answer key 
+- techno ...
+Trade essential project research resource skill ..tools
+* Wath percentage of electricians are employee in manufacture and industrial education .
+* As electrician how does your average annual salary compare to other occupational..
+" Unite measure ..physic.  ...
+
+* From diagram .
+* What is whilk happened if the component in series circuit fail ..
+- how many 69w bulbs can you put on circuit , amperage ,,
+
+* Code answer .
+- what types of circuit can smoke alarm installation .
+- what are the exception .wath is wiring methode for smoke alarm ..
+- installation of smoke alarm device..shall be supplier b mix light ..rules installation prohibition by rule ,where circuit protect ,means  interconnecyin 
+* Individual  technicial skill plan ..
+- time line .mid ..
+* Occupational skill ,block
+____&&_&
+Reference: basic electricity continuing education professional development course ..
+* Technicial learning college 
+* Basic term .
+* Section electricity introduction :energy foundation ,joules , how electricity is generated ,electrical transmission .
+Post quiz
+* Forms of electricity : static magnetic electricity electromagnetic electric charge ..
+- electrical principle introduction : electrical power distribution ,electronic introduction b,electrical principle application b..
+- hydraulic analogy principle : hydraulic component , 
+* Classical mechanic : potential difference ,power resistance power current ,ac DC ,alternative..
+- circuit coil and capacity .
+- transformer : efficiency triangle ,wy delta polyphase , single phase connecting loads phasor ,power factor ,single phase transformer identify circuit interrupter b..
+* Electrical motor : motor lubrication ,electrical motor induction
+..basic home electricity ..
+_&&&&&&&&
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 26, 2025, 9:12 PM (6 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- engineering : is the 
+Wikipedia  PG 1- 10
+Engineering discipline skill professional and applying scientific , economic , social and practical knowledge in order to design and build structure machine device system material and process , American engineering council ,abet ,the creative application of scientific principle to design ord development structure machine apparatuse .....
+* Contents : 
+- history :
+- ancient ara ,: pharaob 
+ Renaissance era 
+,moder era ,
+- main branches of engineering..
+Methodology .
+- problem solving .
+- computer use ..
+* Social context .
+- relationship with other discipline .
+- science .
+- medicine and biology .
+- art 
+______________
+*Further education and training, saqa  . certification electrical engineering: 
+Saqa I'd :
+_______&&
+Reference Wikipedia 
+1-60 system 
+- intro to civil environment engineering :
+- background : responsible  treatment sustainable  student mentoring ..
+
+* Survey and site development : lecture topics : 
+
+- introduction .
+- measure 
+
+- measure .. topological .
+* Geographic information system : introduction to global positioning 
+- history civil discipline 
+Civil engineering discipline and educare 
+- education 
+- practicing engineering 
+- sub discipline, construction, earthquake engineering , forensic engineering, geotechnical engineering,material science , survey , transportation, municipal or urban engineering ,water resources ,civil engineering ..
+--+++-
+__________
+Engineering drawing textbook practice 
+Defense ...
+______________
+Electrical engineering course :
+- introduction.
+- the single phase 
+Reminder on description of sinusoidal , introduction 
+Study balanced .
+- single phase transformer ,reak transfi ,DC machine , engineering operation ,creation field ,synchronouse machine , asynchronous rotating ...
+_________
+Department health  examination .
+Health electrical mechanotechnic engineering certificate competence : 
+Introduction b, acceptance 
+
+- exemption :
+- summarise procedure : 
+- mines certificate : 
+- acceptable trade and experience :
+..trade in the apprenticeship has served | minimum appropriate post apprenticeship experience general maintenance b
+
+- trade : electrician ,armature winder || 2 years  : general electrical maintenance >
+- n diploma 
+* Syllabus plant engineering : theoretically ..
+- safety manager 
+- electrical technology..applied thermodynamics..
+-structutesand strength material .
+- theory machine 
+
+*Practical knowledge..: 
+
+- planing and commissioning of project operating planned maintenance,
+- testing repaired  motor phasing synchronism  motor operation fault discrimination..
+__&&&&& .
+St peace college 1_50pg 
+
+syllabus health safety act mining , section minister power , general provider regularly 
+____________
+
+*Reference .
+St peace college 
+- mil - std 1285D.
+
+Fsc ,fuses fuse holder , lightning arresters , electrostatic dischars and telephone protectors ..
+* D1 scope : 
+-  requirements military electronics design ..
+- applicable document .
+- general requirements b:
+- functional marking .
+- terminal identify : acquisition document light arrest ,line ,load ind icator,
+- part identify marking : 
+- other functional marking : electrical circuit diagram ,cautionary marking marks , assembly b ..
+* Identify number :
+- manufacture source code name of trademark ,
+- current rating  when applicable .
+- date code when applicable .
+- other rating and marking  when applicable b.
+
+_________&&
+PG mil std - 13231..
+Note  indede user issuer of dodiss 
+Marking for shipment.
+- seriaj number .
+- air transportation item .
+- reprocurement : 
+- permanency and legibility btesr .
+- subject term listing .
+* Name and caurinbplate .
+Cautious b.
+- priority of identification information on parts assembly b.
+- marking 
+-------
+
+Mil std ,1000; 
+Design bactivity  tank automotive command werrentsymbiotic ,gage code
+
+ drawing format size letter ,drawing ubering  duplication of assignments system be based.
+Responsible transfered ..
+- item pin . requirements, interchange ,reparablf , meeting requirements b.maintening design bredras original bactivity v
+- contractor manufacture ,commender defense service logistics center  batlr ,total length 
+
+________
+Mil 
+
+Introduction to system eny management 
+- system engineering management in dod acquisition.
+- the system engineering process .
+- requirements analysis :
+- functional analysis and allocation.
+Design synthesis .
+- verification :.system engineering utput ,:
+* System analy and control ,..
+Work down  structural 
+- configure manay.
+Technicial and audit
+Trade studies .
+Metric
+Rush.* Planning organizing and managing 
+- system engineering planing  
+- product improvement b
+- organizing  and integrating system .
+- contrsider..
+
+__________
+* System engineering fundamental ::
+- general.
+Application.reference document 
+Description.facikity ground system.
+- ground and power distribution system .
+- electrical noise communication 
+- bonding ,shield grounded relation ,safety practice 
+- earthing electrode subsystem ..
+- light discharge .
+Fault protection b sut summary v,resistance reauirebrb 
+,- soik measure one electrode terminaj methode , water pipe ,resistance property .
+__&&&&_&&&&&&&
+Mil std 1323 ..
+Scope ..
+- application .
+
+- general .. government 
+-; specifications v, document government and non goveyv.
+- assembly .
+- commercial and government entilr gage ..
+- commercial cots .
+- container ,decalcomonis
+- design activity,
+- function marking .
+- join electronics type design .
+- manufacture  identify b
+- nati supplier code for manufacture 
+- order  ,
+- party identify b number pin 
+- procuy instrument 
+- sets 
+- selected item drawn 
+- sequence of marking. .- general , nomenclature ,join electronics design ,army nomenclature 
+Inspector stank .
+- special character ,
+- contractor and government entity cage .
+- identify bmarker equipment .
+Uniquely .
+- limited .- used pack .bag 
+- reference designated government v.
+Reference 
+- derayj .
+- type number manufacture 
+- electron tube 
+- electrician electron parts and printed wiring board,name plate ,soecificatitn
+- I'd contev 
+- marking battery circuit .
+- warning label .
+- high voltage notice 
+- radioacty material 
+- non ionizing  radiation .
+- technicial litery
+...
+
+	
+	
+ 
+ 
+
+* unified facilitate guide specifications .
+Part 1.General .
+- reference..
+- definition:
+- submittals:
+- quality assurance:
+- installation drawings :
+- standard product 
+- alternative qualification 
+- alternative qualification 
+- material and equipment .
+- material and equipment manufacturers data .
+Warrenty 
+* * System description:
+- selection criteria.
+- powers meters .
+
+- voltage requirements :
+- current requirements.
+- electrical measurements.
+-meter accuracy:
+- an on the meter display output and reading capabilities.
+- installation methods .
+- disconnecting switches :
+- meter programming :
+- communication :
+- communication methods .
+- optical port : 
+- serial port : 
+- Ethernet : 
+- communication protocols and methods 
+- communication channels surge protection : 
+* Meter data protocol :
+* Open protocol 
+* Transformer mounted  meter system schedule ,base ..
+Milliamps signals, outcome 0-1 mA or 4-29mA,, alarm outputs for alarm control 
+
+* Submittal '::
+*_________________
+Reference: 
+Support: 
+Product system support process:
+-organisational level support :
+- intermediate level 
+- depot level support : 
+- product system disposable :
+- analysis of the .
+- kills and competence : 
+Engineering competence : 
+Aligning engineering 
+- ORGANISATION engineering activity sandf : 
+
+- technicial service role :
+- integral .
+- identification of the core competencies of the sandf .
+ - approach to structural 
+- approach to tech :
+- introduction :
+Vision , mission , objective 
+- acquisition: 
+Overview 
+- the engineering professional : 
+-; system engineering activity .
+- the operational and support life cycle phase of product system 
+
+-- introduction to the manage expertise ,process competence,competence integration ,culture , ORGANISATION learning, he manages project b.
+- project stakeholder :
+- description..
+- ORGANISATION transforme .
++Strategic analysis ,:
+- competitive advantage :
+Knowledge expertise  skills 
+- competence 
+- competence process .
+- competence process , competence integration , competence , 
+- organisation learning ,
+Management project ,project stakeholder 
+- description of programme and project management 
+- contracts and agreement .
+- project team :
+-roles in project :
+- project life cycle : 
+- undertaking where project is appropriate v;
+- value system and value chain overview :
+Value system .
+- the product life cycle  and vLue :
+- organisation transformer : 
+- analysis strategic sandf 
+- ORGANISATION 
+- competence area .
+- introduction to key succes factor :
+- key success factors :
+- environment organisation 
+- five force analysis 
+- competitor and product portfolio analysis 
+- client analysis and market .
+- environment dynamic 
+- finding analysis key success 
+* Statement of problem :
+- rsa defense vision 
+- constitutional aspect 
+- defence white papper .
+* _rsa army engineering schools v, original ,insigns , previous , curriculum ,phase engineering ,combat engineering 
+* Training basic of militaire engineering 
+Mine warfare, basic field engineering ,user power tools. , obstacle and defensive ..watermanship ,bridge building, demolition, 
+* 2 phase military engineering training specialization 
+* Engineering regiment during operation ..
+* ____
+* Military science career 
+Bachelor of militaire science real life  faculty skikk defense force .
+*Subject:
+Degree what you 
+Career 
+- organisation and resource manage : the minimum sandf requirements ,,technology
+____________________________
+Security information,/ management system information security v: 
+*Description:
+* History and development .
+- secure network programming 
+- SSL 1.0,2.0 and 3.0
+-TLS 1.0
+TLS 1.2...TLS..
+* Digital certificate :
+- certificate authorities .
+- algorithm .
+- key exchange or key agreement .
+4.3 data integrity .
+- application and adoption 
+- websites.
+- web browsers.
+- libraries.
+- other uses .
+* Security : 
+SSL..2.0
+Ssl3.0
+
+* Attacks against TLS /SSL
+* Renegotiation attack.
+- downgrade attack : freak attack  logiam attack .
+- cross - protocol attack drown .
+- beast attack .
+- crime and breach attacks 
+- timing attacks on padding 
+- poodle attack : 
+- RC4 
+.turncarion attack .
+- unhology pack attack 
+- sweet32 attack .
+- implications errors : hearthbleed bug , berserk ,attack 
+Cloudfare bug .
+- survey of website vulnerable to attacks .
+* Forward secrecy .
+- dealing with man - in - middle attacks .
+- certificate pinning .
+- perspective project 
+- DNS chain 
+* Protocol details :
+- handshake 
+- basic TLS handshake.
+- client - authenticated TLS handshake .
+- session IDs
+- session tickers .
+- TLS recird...
+______________________
+- reference security 
+- introduction :
+- background to the study:
+- research aims :
+- limitations of the study :::
+- research form approach
+- summary 
+* Information security policy standard practice :
+- introduction :
+- five pillars of information security 
+- identification and authentication 
+Authorization, confidential,integrity,non repudiation,
+* Information security from business , information protection: 
+It security b standard v
+- is 
+- common criteria :
+- other development :
+- summary 
+* Compliance issues reported on the global territory .
+Introduction : 
+- critical success security v
+
+- global information security survey research : 
+- information security breaches survey b.
+Online survey security immaturity: 
+- computer science corporation 
+Compliance ccma labour security 
+- cybercrime telecon network :
+- comparing other development countries different 
+- diffence and specifications b
+- Ed culture 
+* Research methodology b: 
+Introduction b.
+- technicial for data collection b,highft response ,flexible , identify ,faster approach process.
+* Sample design probably 
+Size calculation b hypothesis b
+- testing conformance to security standard .
+- testing presence and application security v policies . testing compliance 
+- testing measure practice of security kpid ..
+-;testing between characters implemented practice b...
+-; hypothesis testing 
+- nonparametric test 
+- statiscal test ..
+Response 
+- analyse of responsibility .
+- analysis of information security practices perpecub..
+* Reason security strike policy balanced protection core resource learning , court  dataprocess .
+
+
+
+
+
+...
+
+	
+	
+ 
+
+- 
+.. handshake protocol,alert,changed ,primary 
+Code | level type | connection stare
+- warning | connection or security may be unstable .
+- fatak | connection or security may be compromised or an unrecoverable error has occured .
+_ close notify | warning fatak || notes
+- unexpected message | Fatah | 
+- bad record Mac | fatal|| possibly a bad ssl implemented pay load had temped fto fire walk rule ftos server
+- decryption failed ||| fatal || TLS only reserved 
+Record overflow || fatak || TLS only reserved 
+- decompress failure || fatak 
+,- hand shaj fatal  
+- no certificates / warning / fatal ssl 3.0 reserved up
+
+
+reference: 
+
+
+
+User guide intelligence fencing system .
+- introduction : high voltage sensor fence awk ...
+Circuit guideline: 
+- points remember : sensor determine if a drop voltage fence requirements maii voltage falls set point value yellow indicator light up  voltmer  to DC put is probe  points pads vr1  ..
+- led indicator : 
+Source ,7 volts 
+- vr1: point value factory preser at 2.5 v .
+Vr3 user adjuster ni volt alarm factor
+Device wiring to fencr ,siren piezo sounded battery 12 v, relay 12 v , ground
+* Suggested latching relay diagram , maintenance .
+- installing the fence ..
+- connection from the rg - 7782- security panel   alarm security b, battery connection ...
+* Multi wire fence ,
+- enclosed area ,, charge wire , insulation,return ,feed , ground rod , high voltage ground rod 
+*Intelligence 1 years limited warenty purchase ....
+Repair replace ..
+Safety integrated labour CCTV 
+* Perimeter fence good .
+*Consumer electronics : security alarm , networking 
+* Overview : druip 18 is powerful version of drud 15 LCD  out joule 500 load intelli is ideaj serie fensr 
+* Feature : LCD , display , background vcolour LCD display , druip , quick walk test mode .
+- high voltage monitor on note sysfeb ,earth wire monitor alarm there is temper , easy use tag switch for control the unit if the keypad option .
+- connectable to an armed  response radio .
+- gate monitor 
+- lightning and power surge suppression built in .
+- internal battery backuo system in case failure b..
+* Specification :
+- high voltage output : typical energy 500ohn load joule , voltage 9009 v ,alarb  number zone 2,number earth zone 2 ,, resucit,yes
+- energy contrin and display : keypad for remote contrin energy 2 max tag switch to control the energetic without ,yes ,remote,on / off input ,yes displacement the outputs return voltage yes 
+- gate and panic button input .
+- timed gate switch input ,used to monitor open and closing of the gate yex .
+- panic button input yes.
+- alarm output : siren output ,time programmable yes .
+- strobe light output to visual indicate  an alarm condition .
+- power supply and battery backup system .: mains supply voltage : 239.
+- typical power consumption under normal operating condition ,18VA.
+- internak battery backup system in case of power failure capacity of batteries :7ah
+- typiy standby time with fully charge battery ,24 hours .
+- solar powered panej can connected power energy b.,60watts .
+- solar voltage regulator deep cycle battery size ,5 amo ,
+- recommended in amon hour ,29 % discht ..
+- wire length per energy live wire in series system both .
+- galvanized wire ,1,2mm optimal performance maximum 8 km .. stainless wire steel ,1.0 mm  grade .optimsj ,0,7 km ,max 1:km ,,to 19 km...
+_______________&&________________
+* Fundamental of electrical engineering : license b
+- introduction :
+Signal rpresent  ,analog ,digital , structural communication systems :,. fundamental signal , 
+- community information  signal ..- signals and systems : complex number , calculation bcomolex..
+* Circuit with capacitor inductor ,impedance ,time frequencies ,power in the frequency 
+- equivalent circuit b,
+- transfer function :
+- design transfer function : 
+- formal circuit  node .
+- node method .
+- power conservation circuit b, electronics b,operational amplifier b,invented amplified ,active filter , 
+- intuitive way of solving ,op - amo 
+- the diode ,andlog signal prices processing .
+- simple circuit analysis ,solving  resistance , superposition ,.- thevenin and mayer ,.- detective work ,bridge circuit b, Cartesian plant .
+- cook curve ...
+- trigonometry identify and complex ..
+- transfer function b..
+- using impedance b
+- measure chais ..
+- simple ,circuit 
+- power transmission .
+- optimal transmission ..
+- optimal power transmission ..
+- sharing chanej ..
+- mystery 
+ - long  and sleepless .
+- a testing ,
+- black box circuit .,analog  hun rejected b.
+- a simple circuit .
+- an interesting and useful ..
+- circuit v analog computer ..
+* Element signal ,sinusoidal ,complex exponential ,unit steo ,square wave ,signal ,discretion time signal ,
+- reak and complex valued signal .
+- complex exponential b.
+- sinusoidal , 
+
+- symbols  value ..
+- cascade interconnection , parallele interconnection .
+- feed  source ,amplifier ,delay ,time reverse ,derivative system and integrator .
+- time  problem 
+- discovery root , 
+* Analog signals processing : voltage ,current , generic , circuit .
+- ideak circuit elements , resistance,caoscititb ,ideak reak word ..
+* Oscillating am radio 1-mhz ,196 mhz ,,
+* Phase  determine ( t= 0 ,l
+* Communication information with signal  modulator career b..
+A=AO(+kT) ,AO and are ..
+Problem ,RMS roots ,+ t)=s(t+T) ..
+- whao period 
+
+Wath is modem ,modulator  demodulator b connecting ocbdigitsj  chsndj  binary  transmission ,1 anscence 9 , 
+-;what is smallest transmission b interval bf ...- classic communication block diagram applied ,,advanced mo
+
+Block  diagram , transmission ,x+t) ..de 
+ASCII , 
+...
+
+[Message clipped]  View entire message
+ 	
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Sun, Jun 8, 4:48 PM
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+-1. Contents : taking a Microsoft office special exam .
+- selecting a certificate path
+- test taking tips
+- certificate benefit.
+- using for a certificate exam
+- working in the Microsoft office fluent user in interface .
+- using the companion.
+- CD contents .
+- minimum system requirements.
+-; minimum system requirements .
+- installing the paratices files .
+- using the practice files .. getting help 
+.
+____$$$___&_____________________
+- using Ms office 200
+Create and format ,doc 
+- template 
+- bordes and background themes .
+- lay out document.
+-page setting head and footer .
+-- properties.
+- table of content 
+- index .
+- bookmarks 
+- cross reference 
+- hyperlink 
+Personality 
+- common setting, research review..]>>
+- formatting content 
+- format text and program character formatting 
+- paragraph formatting 
+- styles
+- quick stylea
+- line break and hyperlink.
+- manipulation text .
+- copying and moving , finding .
+_______
+- working with visual content 
+- insert illustrated 
+- picture 
+- shapes ,
+- smart art diagram 
+- sizing art diagram
+- sizing position 
+- format illustrated 
+- cropping rotating 
+- stacking order 
+- groupe .
+- alignment and district 
+- format text graphics 
+Word art drop 
+----organizIng content 
+- structure conte by 
+- building block organization 
+- customer quick parts 
+- use table and list .
+___________________
+- modifying table 
+- table structure .
+- table formattt
+- text align 
+- calculation 
+- insert and format
+- reference table 
+- merge document 
+- data source .
+- labek source labek envek
+Envelope 
+- ibjecty
+-- objective 
+_________________
+Review document 
+- navigation docuy
+- navigation truc 
+- compare 
+- document version 
+- tracking .
+- insert, modified.
+
+_______________________________
+-sharing and securing content .
+- prepare document for shary
+- file formats .
+- compatibility checker.
+- document inspector 
+- editing and formatting 
+- password 
+- right management 
+- finalizing 
+- attach digital signal 
+____
+* Using Microsoft office 
+Creating and manipulation data .
+- insert data by using autofill
+- filling service 
+- copying data .
+- ensure data integrity.
+- data entry restriction 
+-;input and error message 
+- duplicate rows
+- modify cell content and format 
+- charge worksheet 
+- change work.
+View 
+- zomm levej .
+-programev
+________
+Formating data and content
+- format worksheet .
+- them
+- gridling 
+- worksheet taos 
+Worksheet modify .
+- inserting deleting .
+- creating modify.
+Red data informer 
+- cell ref
+- worksheet ref summarise 
+Summary data using 
+- look up Dara con
+___collBoratting securing 
+- management workbook change ..
+- comment
+- protect and share 
+Password 
+- workbook protect
+Work sharing .
+- permission diitaj signature finalizing save work, companies set print data worksheet print area page work. 
+______ insert modify column ,
+- insert deleting ,format cell and cekk ,built number format ,merge cell formatting 
+- presenting Dara visual ,create and format ,flooring ,layout chart moving chart apply insert illustrar , picture vsmarr shapest 
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Sun, Jun 8, 7:55 PM
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+Using Ms power point .create formatting presentation.
+- creat new present.
+- blank present .
+- template .
+- outline .
+- customize slide .
+Themes .
+- background 
+- add element to slide .
+-:add element to slide .
+- layout .
+- content place holder .
++ Customer element .
+- creating and formatting 
+- text boxes .
+- size and position 
+- shape 
+- basic formatting v
+- working with visit contev 
+________ collaborating delivering presenting 
+- review present .
+- protect present .
+- compression 
+- finalizing 
+- prepare printed 
+Material ..
+____
+Using Ms out look 
+- managing message .
+- create send e mail message 
+- send 
+- replying and formawardind 
+- automated message .
+- message .
+- attachment .
+- saving confu .confirm e mail security 
+- permission .
+_______
+- flags .
+- scheduled delivery 
+- receipt 
+- email view 
+- e mail 
+- reading pane 
+- management 
+- recruiting ..meeting requirements 
+- task management accepted decline assignment update ..
+
+- managing contact personality creat modified .
+- organization information .
+______ using Microsoft .
+- structures data base 
+- define do data type 
++ Table analyse 
+- creating data ..input mask validation.
+
+	
+ 
+
+- networking academy.
+-;lab how connected .:
+- objective : survey 3 ,4 parade each 
+- background source :
+- requirements resource:.- stept 1 create a spread sheet similar to the the one ..
+
+- hour 
+Person | age 43| gender | device | task | time in|™
+-; summarise find 
+- average , amount btime spend connected interview .
+- gender ..
+- information way business address..
+
+___________
+Lab : introduction to Arduino 
+Object : 
+Part 1 : installing the Arduino ide software 
+-:part 2 using the Arduino .
+- background to control hardware lab learn .
+- requirements resource : Arduino res boos .as cable for connection .I led 
+Name is . publish ..
+- device manager 
+- portable .
+- local pin 13 pin ground Gnd ,run sample code ..
+- run simple code launch Arduino to used ..
+- ______lab basic python 
+Programming :
+- objective .
+- part 1 : launch virtual .
+- box enter 13 IOT 
+- server vm 
+- part 2 : python box .
+- part 3 IDLE for Putin .
+- background : puton .. scenario in this lab  learning basic python programming soecificaj module v.
+- reauire resource : 
+- a modern personal computer with internet access and rom ..
+- virtual box with 1120T server installer ..
+- part 1 launch virtual software virtual .12IOT server step box 
+-lab IOT related job and learning  opportunity.
+- objective : purpose lab learning.
+-;part 1 : identify true iot related.
+- part : research available description .
+- part 2 .
+- background scenario .
+- requirements resource.
+- req : web browser to research job current available internet of things .
+- identify doc job design 
+- determine ..- explore learning opportunity google b.
+- compilation a dabase of IOT related job and learning work .classmatt req ..
+- reflection are  3 pattern ..
+________
+Lab using excell to forecast 
+- objective .
+- input data into a spreadsheet 
+- background scenario .
+A way predicting value future base ..
+- requirements options go .
+- input data Ms excell 
+-data | 
+- b : perform calculation .
+> >>1+2
+3
+>>>2*4
+8
+>>>6/2
+3.9
+C)
+Print text string 
+>>>" How are you ..
+C ) use the type ( ) command ..to ..
+
+
+Lab : research intent based network ibn .
+- objective :
+Part explore the Cusco intent based ibn ..explore ibn community..
+Background scenario network scenario network connect adapt protecnorify base platform capture ..
+- requirements .
+- explore Cusco intent step .
+- part introduction : .step ,wath steo started make intent wish .create intent 
+
+	
+
+- requisition for procurement:
+| Requirements number | date receiver
+Department it | project code|™ estimate cost : 500000009,budget funding source ,, approved 
+-: description good or service | unit | approx cost unit | approx total cost 
+- remote 
+- tv
+- office 365 power point wireless presenting pointer 
+Computer machine PC lap top ,charger libraries hand book office digital 
+System info 
+______
+Submission:
+-enquired
+- author :learner 
+Position -data ..
+______
+Document attached route for
+- quotation..
+1.purpose : procure screen wireless ..
+2 .project / prograbb background : it department ,ICT ..
+3. Analysis main consideration 
+
+- financial implications : 
+Item | quantity | estimate cost 
+Recommend amedes ..
+Reward award ...
+
+______________
+Education library workshop panel 
+Time table lab 
+Research cost reward file studen portfolio cost buyer saling research .
+Education industrial lab learning.
+
+	
+ 
+
+Purpose:Research material didactics...
+Didactic learner psycho skill...
+
+ base theory frawork theory practical info management system... Policy . safety,security mil ...
+Civil low research : info computer network..communication policy vs policy arkhase radio fix ...
+It intelligence system dod vs dod communication report ..modem policy vs model regulation mil policy enforcement low ... regulation justice mil correction policy voice router stand by interceptor module rada system....
+
+	
+ 
+
+- completion module : 
+Magazine research ..news paper ..career path library 
+
+
+-client oqnent development:
+- structural engineer:
+- quantity surveyor:
+- project manager:
+- steewoek contractor and .
+- structural steel detail .
+- metal roofing and deck .
+- bank desk installation.
+- roofing and closing .
+- steel work .
+-load 2.0kpa
+- max : 500kg .., 60%
+- 15m.
+- load ..
+_________________
+In the consulting engineering business .
+- overview :
+- engineering industrial .
+- architecture scientist.
+- depending .
+- skill group.
+- client control of project schedule.
+-: introduction: work service .
+-:project is definitely .
+- project.
+- project report.
+-project successful rate infrastructure..
+
+* ORGANISATION:
+- technical manager professional 
+- practice theory.
+-Domain project technical.leader meeting.
+- design concipitean .
+- complerin design.
+* Project manager: 
+- project manager professional responsible successful planning design executive time budget project .
+- project oversee
+- effect of dual management function.
+- ensure effective control of project schedule culture technical.
+- client engineering 
+- decision making .
+- superiority conflict 
+- team attrition.
+-afforalability .
+- Holo effect .
+* Dual - management function impact assessment 
+- project scope time cost quality.
+- important scale range it set from very was selected nior and junior management rated any .. project .
+- strongly impact project function experience on days to day basic on projects 
+_____________.
+- arch PC tow.
+- introduction.
+Project team:
+- client .
+- property.
+-; development 
+-architecture.
+
+- and facade .
+- structure.
+- construction.
+- steel fabrication.
+-; fabrication faced.
+R1,5 billion project .
+-;450000m2 office , 3500 employee 
+- concrete fromee
+. structure ,closekwize ..
+________________
+- engineering civil:
+Land mark pwc town.
+- from
+- on the cover
+- profile
+- joint structural division 
+- structural engineer 
+_______________________________&__
+- reason term piling design [ reduces |
+- tab : driven cast in situ versus pilling from contract award 
+-pilling design .
+-client site temporarily 
+-:pilling work 500 m day
+- client site client up piling .
+- client site 
+- client pile head trimming handover half piling .
+- client completed pile .
+- ref piling .
+- client :150 m day .
+- trm site clean up ( n/ a.
+- client start pile cops week 5-1.
+- client short completed pile..
+
+_________
+1|2|3|4|5|6|7|8|9|10|22|12|13|14|15|
+Weekend 
+
+
+- structural division:
+- verification and ecsa ,iso 90000
+- structural engineering competence.
+| Outcome.         | Assessment criteria 
+-communication environment| proof bodies 
+|Produce viable |
+|Scope of design 
+Toking stability 
+Durability 
+Determine 
+Document 
+Form and size
+Special 
+__________
+Legislation government 
+- procurement 
+- quality assurance 
+- brie accord
+- two different development 
+- implications 
+- structural using 
+- compliance criterion 
+- general arrangements section and elevation connect 
+- connect 
+- properties primary concret 
+- testing procedure 
+- storage and handing 
+- basic construction 
+- construction..
+________________&&&&
+- timber engineering research 
+- reduction import load .
+0,5 kn / m present of 0,25 kn/ m 
+- 0,67 load 
+- characteristics is the ,,1,5/0,67= 3.24
+Eurocad ,kmod = 0,6;
+- 60% ,totsj load  rest of loading a ...
+Emean fin = Emean / ( 1+ alph 3 x kdef ..using 
+
+Emean module elastic k is factor . Evolution,alpha is a value action 
+
+	
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+•	experiments.
+•	Didactic approach: The multidisciplinary laboratory covers from the most basic concepts of electrical engineering to the simulation of more advanced configurations and network topologies.
+•	Skills development: The didactic experience allows the student to simulate different real life scenarios and acquire analytical troubleshooting skills through practical hands-on training.
+ 
+SOLUTION LABORATORY FOR POWER ENGINEERING 
+Read more 
+ 
+GENERATION, DISTRIBUTION, TRANSMISSION 
+The electrical energy is today an essential factor for the industrial and social development of any country. It is commonly obtained from non-re-generative sources such as fossil fuels, and as consumption per capita and population grow, its limited production needs to be efficiently managed to satisfy the increasing world demand. Modern electric power systems have grown and expanded geographical…
+Read more 
+ 
+POWER PLANTS 
+The generation of electrical energy consists of transforming a type of energy (chemical, kinetic, thermal, light, nuclear, solar, among others), into electrical energy. For industrial generation, facilities called power plants are used, which carry out some of the aforementioned transformations. These constitute the first step of the power supply system. As energy consumption will continue to in…
+Read more 
+ 
+SMART GRID 
+The term Smart Grid is used to refer to the smart electrical distribution network. They are basically electricity distribution networks combined with modern information technologies, which provide data to both electricity distribution companies and consumers. To provide intelligence to traditional electrical networks, telematic reading counters are added, that allow to know real-time consumption…
+Read more 
+
+
+
+
+
+ARTIFICIAL INTELLIGENCE 
+In the didactic laboratory for the development of Artificial Intelligence solutions, the challenge-based learning (CBL) approach focuses on providing students with practical, real-world challenges that allow them to apply theoretical knowledge in specific situations. Rather than simply presenting information passively, this approach engages students in solving problems and creating innovative solutions. Students are faced with challenges that simulate real-life and industry problems, such as process optimization, anomaly detection or efficiency improvement. Using the hardware and software available in the lab, as well as artificial intelligence tools, students work in teams to develop practical solutions that address these challenges.
+•	
+ 
+LABORATORY FOR THE DEVELOPMENT OF ARTIFICIAL INTELLIGENCE FOR COLLEGES
+DL AI-BASE
+
+•	
+ 
+SEMI-AUTOMATIC ELECTRIC MACHINES LABORATORY WITH ARTIFICIAL INTELLIGENCE
+DL OPENLAB-SA-AI
+
+•	
+ 
+EQUIPMENT SYSTEM FOR THE STUDY OF INDUSTRY 4.0 “SMART FACTORY” ENHANCED WITH ARTIFICIAL INTELLIGENCE
+DL I4.0 FACTORY-AI
+
+•	
+ 
+SMART GRID ENHANCED WITH ARTIFICIAL INTELLIGENCE
+DL SGWD-AI
+
+•	
+ 
+LABORATORY FOR THE DEVELOPMENT OF ARTIFICIAL INTELLIGENCE
+DL AI-2.0
+
+
+
+LABORATORY FOR THE DEVELOPMENT OF ARTIFICIAL INTELLIGENCE
+DL AI-2.0
+Career experience discovery
+
+Table of Contents
+Career experience discovery	1
+4.1 Sci-Bono ICT Academy <notifications@edu-sci-bono-ict-academy.odoo.com>	12
+Images in this message are hidden.	12
+Introduction	13
+Course Completion Guide	13
+________________________________________	13
+AI Fluency	14
+Chapter 1.01: What is Artificial Intelligence?	14
+Introduction to Artificial Intelligence	14
+Defining Artificial Intelligence	15
+What is AI?	15
+What Makes AI "Intelligent"?	15
+Algorithm	15
+The Turing Test	16
+The Turing Test	16
+Turing's Goal	16
+AI in Everyday Life	16
+AI vs. Fiction	17
+AI Fluency	17
+Chapter 1.02: Knowledge vs Intelligence	17
+Introduction to Knowledge vs Intelligence	17
+The Chinese Room Argument	18
+Key Differences: Knowledge vs Intelligence	18
+Knowledge vs Intelligence	18
+Practical Examples of Knowledge vs Intelligence	19
+AI in Medical Diagnostics	19
+Applications in Modern AI	19
+The Fuel for AI: Data	19
+AI Fluency	20
+Chapter 1.03: Data Everywhere	20
+Introduction to Data	20
+Data: The Fuel for AI	20
+The Importance of Data in AI	20
+The Data Explosion	21
+How We Produce Data	21
+Refining Raw Data	21
+Quality Over Quantity	21
+Applications of Data in AI Systems	21
+From Data to Value	22
+AI Fluency	22
+Chapter 1.04: Finding Patterns in Data	22
+Introduction to Patterns in Data	22
+Patterns	22
+Pattern Recognition in Action	22
+Time-Based Patterns	23
+How AI Models Identify Patterns	23
+Pattern Recognition in Social Media	23
+Business Applications of Pattern Recognition	24
+Machine Learning and Pattern Recognition	24
+AI Fluency	24
+Chapter 1.05: Machine Learning	24
+Understanding Machine Learning	24
+AI vs Machine Learning	25
+Distinguishing Between AI and Machine Learning	25
+Historical Origin	25
+Types of Machine Learning	25
+Mathematical Foundations of Machine Learning	26
+The Bicycle Analogy: Learning from Experience	26
+Learning Through Experience	26
+AI Fluency	27
+Chapter 1.06: Types of Machine Learning	27
+Learning Methods in Machine Learning	27
+Three Main Types of Machine Learning	27
+Supervised Learning: Learning with a Trainer	28
+How Supervised Learning Works	28
+Unsupervised Learning: Figuring It Out on Your Own	28
+Clustering and Association	29
+Reinforcement Learning: Learning from Rewards	29
+Reward-Based Learning	29
+Deep Learning: Taking Machine Learning Further	30
+Neural Networks and Deep Learning	30
+AI Fluency	30
+Chapter 1.08: Natural Language Processing (NLP)	31
+My account	31
+Ranks	32
+Badges	33
+Pages	35
+Elementor Data Updater	36
+Love using Elementor?	36
+Filter pages list	36
+Pages list navigation	36
+Pages list	36
+tshingombe fiston <tshingombefiston@gmail.com>	41
+Your 3CX Live Chat is almost ready!	41
+Next Up	41
+Electrical	42
+HR Approved Policies	42
+Course Description	42
+Learn from Industry Experts	45
+Actionable Training	45
+Industry Exams	45
+Premium Material	45
+Our Most Popular Courses	45
+ECD	45
+Cyber Security	46
+Electrical	46
+Introduction to K53	46
+AI Fluency	46
+Be in Demand with Our Professional Training	46
+Industry Partners	46
+What Our Students Have to Say	47
+L1: Introduciton to AI Quiz	48
+AI Fluency	52
+Course Description	52
+Our Most Popular Courses	54
+Experience,base frame theory practical on ...Competition science career engineering.rwiten job scie Bono and department education . institution	55
+>	66
+>	68
+>	73
+>	81
+>	87
+>	94
+>	105
+>	105
+>	114
+>	115
+tshingombe fiston <tshingombefiston@gmail.com>	130
+tshingombe fiston <tshingombefiston@gmail.com>	133
+>	161
+tshingombe fiston <tshingombefiston@gmail.com>	173
+tshingombe fiston <tshingombefiston@gmail.com>	180
+tshingombe fiston <tshingombefiston@gmail.com>	183
+>	191
+>	199
+>	212
+tshingombe fiston <tshingombefiston@gmail.com>	234
+tshingombe fiston <tshingombefiston@gmail.com>	240
+tshingombe fiston <tshingombefiston@gmail.com>	244
+tshingombe fiston <tshingombefiston@gmail.com>	257
+tshingombe fiston <tshingombefiston@gmail.com>	261
+tshingombe fiston <tshingombefiston@gmail.com>	263
+tshingombe fiston <tshingombefiston@gmail.com>	267
+tshingombe fiston <tshingombefiston@gmail.com>	268
+tshingombe fiston <tshingombefiston@gmail.com>	272
+tshingombe fiston <tshingombefiston@gmail.com>	278
+tshingombe fiston <tshingombefiston@gmail.com>	283
+tshingombe fiston <tshingombefiston@gmail.com>	286
+tshingombe fiston <tshingombefiston@gmail.com>	291
+tshingombe fiston <tshingombefiston@gmail.com>	313
+tshingombe fiston <tshingombefiston@gmail.com>	316
+
+
+
+
+
+
+
+
+
+
+
+
+
+	
+
+
+
+
+
+
+
+
+
+
+	
+ 
+
+-1.1 career center discovery 
+
+Experimental: grade school  to job level beginning  intermediate advanced on job post minim cadet junior senior .. principle. ..
+Overview:
+Explanation 
+.1.2 psychometric assessment service:
+1.3 development life stage life stage 0-80 years .
+. Early childhood,scholatisc,career , preschool,grade 1-13 school,speed ..
+- school readiness physical learning barrier neurodevelopment ,
+- disorder learning amongst , assessment , assessment accomodations 
+-2. ICT Sci- boni : academy program : I t @ sci boni co.za 
+- UIR skills .
+- youth aged 18-25 training ite CCNA security Linux IOT , python essential skill 
+Skill and career readiness skills .
+- module basic to advanced word excell access power specialist 5 - day digital literacy scie certiport expert .
+- accredited end user computing technical support and system support 
+- flow to build  self a bright technical future: 
+- considering a technical career .
+-let get down to work .
+- how do I play father 
+- technical course career engineering praticL problem solution where a qualified technician come TVET college.
+-realistic , investigation,artistic social enterprise .
+- education :   | nqf| qualification type
+- school     | 1 | grade 4
+- technical education | 2 | grade 10 nation technical 
+- technical education |3 | grade 12 
+- tvet     | 4| honourable degre engineering 
+- university technology • post graduate diploma master degre ..
+.-- discovery outcome 
+Job function grade ,function of function 
+Talent semester 
+Duty 
+..senior level,cadet level , ,minim ,l 
+Sector mining qualification labour qualification non in saqa nqf qualification 
+Category,artisant tradman skill man semi skill , ouvrier ,,  cadre. 
+Qualification years technician consultant professional ..
+-3.1. the career pathways skilled product work ,on artisant , technician certifiw skilled engineering manufacturing professional working of engineering team is artisan 
+-3.2.career in mechanical technology testing quality product material computer .
+- refractory reason cuts ,and shPw soft stone blacks and slabs for construction..
+- 3.3career  technology electrician wiring 
+Electrotechnic  panel builder.automorive electrician.
+.
+3.4 career technology civil: carpentert ,tiled plumber installation builder..part 3 how 
+- are you realistic | can you | do you , summer.
+*Practical mechanical | fix electrical things | explore mechanic work hand building  thing ..
+*Are you investigation inquisition  analytical scientific observant logic | think abstract || explore idea ,explore ideas,use computer ,reform laboratory 
+
+
+*Creative intuitive imagination innovation | develop new idea || solve problem read stories paint ..
+*Friendly modeliste , insight understand| teac or train other express freelance lead ||| use social or interpersonal people with ...
+
+* Are you: entreprusing are you self confidence assertive know to ask for | star project ,convince things sell thing promo ||| do you like make decisions that affect other use energy or drive ..are conventional .
+* Well organize .
+- accurate., consent | can you work under guidance an authorized,write report keep accurate record , performance calculation|| do you like to follow define make chart table work with number ..
+
+_______________________________________
+
+News papper written job library career center and readiness job book page magazine ,,1to web ,, education department and science technology department combination..
+
+Article 
+
+Research fund ,nrf / dst career department . education and  science 
+
+* Lecons nano technology : water medicine ,energy ,mining .
+* What is nnanotech
+
+
+* Where : energy come from ,non renewable source .
+* Activity , 1,2,3  build better solar panel danger of mining .
+* Extension activity.
+* Activity choose activity : 
+* Describe the mining that are showing.
+- describe the mining that are .
+- poster is colour and creative :2 marks 
+- posted shows origt idea :2 marks
+- poster clearly presented : wmark 
+- information on posted information 2 marks .
+- group work al learner where .
+- in gas detector are user in metal oxide nano wire use poison  gas invest resistance .apparatus ,a torch bulb ,battery ,two batteries threw electrical .
+- write an investigation question : 
+- write a hypothesis for you :
+- procedure the investigation : 
+- connection your : build circuit.
+Begin pen.
+- once you have completed.
+- now lead .
+- observe brightness .
+Now decrease the length of pencil observe  record .
+- 4 analyse your data investigation .
+- write a conclusion:
+- if you want to print only part worksheu you conselected the range you to print and will often printed 
+
+
+	
+	
+ 
+
+- research career impletation financial service schedule implementation,sight system.
+
+-Execution phase job trading : phase preliminary,selection phase insurance ,phase finalize pre projection ,reprojection , 
+
+ procurement .. February 2025..
+C.business assumption..-
+- proposed implementation option for phase ,1 product database .process costs scope.
+- processes for part proposed : advance procurement.
+- workflow processs 14 department.
+-suppliers .
+BBEEE create customer requirements information.
+- update supplier email address ,general ledger ,,
+- G L account updated sector ,configura email it smto ,create projects ,assign cost , customer of report builders form ,
+: requisition :............R1000
+- Rfq:10000
+- purchase orders :..10000......
+- supplier invoice :10000
+- return to supplier : ..10000
+* Services : 100000
+- data cleansing excluded proposal if requirements it will parr change ..
+- scie bon master transaction data preparation :10000
+- customisation it proposal .
+- installation 1 server and 10 workstation : 10000
+-: customization of report builders forms :-teating
+Installation on 1 server .
+- the consulting team will include testing as part of deliverables .
+- training be provide 
+- responsible. Testing advanced procures work: 1099
+- data migration :
+- scie bon data in excell import file : 1000.
+-operatiinal go live development: during , project plan sight tech month ,
+- general : suitable computer data backup device ,operating system ,
+- disbursement: 
+- the charge subject period review adjustable..
+- travel 
+ : private transport R 585 or ,085 per km rand ,  fligfg taxis customer .
+
+Travel time , insurance, accomodations,substance ,out town expense , communication,other ..
+Salary database 
+- salary bursary experimental job theory base practical base .
+- data management system info
+-data management info  
+- reward info case .sale force trend
+- life cycle  recruiting profile polfine recruitment .. amendment.
+Overload ..
+Protection data : legal data depot 
+Archive data internet library bibliography internet : 
+Protection: popia 
+
+
+- traffic .warden ..fire script encryption 
+- fox network force .. awareness cost
+Cleaning data force guard security info system,policy safety info system ,
+Casebook court processor aware .
+Contractor subcontractor 
+Office travel : cybernetic telemarketing.
+
+Deployment azure GitHub cost .strip bank 
+Key .authenticator code , social security 
+Contribution data 
+
+Ai generated 
+
+*General terms and conditions :
+- proposal acceptance:
+- commencement: to timeley date commence service shall, 
+- payment 30 days .software cash delivery 
+- force majeure 
+- disputes and jurisdiction 
+- term contract 
+
+
+4.1 Sci-Bono ICT Academy <notifications@edu-sci-bono-ict-academy.odoo.com> 
+	May 29, 2025, 2:53 PM
+	
+	
+to me 
+ 
+
+Images in this message are hidden. 
+This message appears suspicious. Don't show the images unless you trust the sender and the message.
+Your Account
+fiston 	 
+________________________________________
+
+Dear fiston,
+
+Your account has been successfully created!
+Your login is tshingombefiston@gmail.com
+To gain access to your account, you can use the following link: 
+Go to My Account  
+Thanks,
+________________________________________
+
+
+Sci-Bono ICT Academy 
++27 11 639 8400 | yusufm@sci-bono.co.za | http://sci-bono.co.za 
+
+Powered by Odoo 
+
+
+
+	
+	
+	
+ 
+
+IntroductionCourse Completion Guide Offline Content CertificationsNext Steps FAQs
+Introduction
+________________________________________
+Welcome to our AI Fluency Program! We’ve partnered with Microsoft to bring you an exciting opportunity to master AI. Through Sci-Bono’s AI Fluency Program, you’ll gain the knowledge and skills to integrate AI into your everyday life—no technical background required.
+Our program includes 44 bite-sized videos covering everything from AI fundamentals and ethical considerations to real-world applications. Best of all, you can complete the course in just 5 hours and earn all 6 AI certifications for free.
+Start learning today and be part of the future of AI!
+Course Completion Guide
+________________________________________
+ 
+To get the most out of our AI fluency content, you must complete the courses in the following order without skipping any sections. 
+ 
+We will be tracking your progress to ensure a thorough understanding of each topic:
+
+1. AI Basics 
+2. Generative AI 
+3. Internet Search and Beyond 
+4. Responsible AI 
+5. What is Microsoft Copilot 
+6. AI For All  
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.01: What is Artificial Intelligence?
+Understanding the fundamentals of AI
+Introduction Defining AI AI Intelligence Turing Test Everyday AI 
+Introduction to Artificial Intelligence
+Artificial intelligence, or AI, has become a buzzword you might have heard recently through social media, in conversations, or even on TV. However, it is not new. In fact, you have been using AI for years and might not even realize it.
+AI has evolved from a new concept to a technology integrated into our daily lives.
+At times, AI is portrayed as a force capable of changing the way we live, work, and interact. But beyond the hype, AI is a tool that has been evolving over decades, shaped by the contributions of countless individuals across various fields.
+And AI is not just for those who work with technology—it is for all of us. Understanding the fundamentals of artificial intelligence helps demystify this increasingly important technology and empowers us to engage with it more effectively.
+Defining Artificial Intelligence
+What is AI?
+AI is the ability of a computer system to learn from past data and errors, enabling it to make increasingly accurate predictions for future behavior.
+This encompasses a broad range of activities, such as problem-solving, speech recognition, learning, and decision-making. AI systems can process and analyze vast amounts of data to identify patterns and make predictions that would be difficult or impossible for humans to discern.
+AI encompasses problem-solving, speech recognition, and innovative thinking.
+What Makes AI "Intelligent"?
+So, what makes AI 'intelligent'? At its core, AI is the intelligence demonstrated by software or machines in performing tasks that typically require human intelligence.
+These tasks can include recognizing patterns, solving problems, or making decisions. For example, when you interact with Siri on your mobile phone, it is not exhibiting intelligence in the same way a human would.
+Rather, humans have programmed it to respond to certain prompts and execute functions, such as providing the latest weather update in your area or letting you know your local news.
+A chess-playing AI follows algorithms and strategies, learning from experience.
+Consider a robot playing chess with a human. We observe it making strategic moves, but does that mean it is 'intelligent' in the human sense? Well, the answer is no. The robot is merely following algorithms and strategies it has been programmed with, and it learns from past games through machine learning, which allows it to improve its performance over time.
+Algorithm
+Sequences of step-by-step instructions given to a computer that equip it to solve specific problems.
+The Turing Test
+The question of whether a robot's actions during a chess game equate to intelligence, or if it is just executing a programming process, is not a new one.
+Human A Computer ? 
+The Turing Test evaluates if a machine's responses are indistinguishable from a human's.
+Back in 1950, Alan Turing, a well-known mathematician and computer scientist, asked the question: "How can we determine if a machine is intelligent or not?" To answer this question, he created the famous Turing Test.
+The Turing Test
+In the Turing Test, a human questioner would interact with either a human respondent or a computer. The questioner would then have to evaluate whether it was a computer or a human being that was responding.
+The purpose of the test was not to see if the answer was correct. For example, when asking a question like "what is the sum of two plus two", Turing did not seek to assess if the answer would be four, but more specifically, to evaluate whether the respondent was a machine or a human.
+Turing's Goal
+When Turing created this test, he was trying to reach the point where it would no longer be possible to distinguish between responses from machines and humans, where machines would be able to respond with the same functionalities and nuances that human beings have.
+AI in Everyday Life
+AI has advanced significantly over the years and is increasingly present in our daily lives. Take for instance your interaction with social media apps, like Instagram. The app uses machine learning, a subset of AI, to determine the content to show you next based on your recent activity.
+AI is present in many everyday devices, from smartphones to smart speakers and home robots.
+A similar process is at work when you finish looking at a program on certain streaming apps. The app's AI analyzes your viewing habits to recommend what you might want to watch next.
+AI vs. Fiction
+Even though AI is all around us, it can be portrayed inaccurately, a common occurrence in Hollywood films. Some films depict AI as having feelings or being superior to humans. Usually, these narratives serve to provoke thought rather than accurately represent how humans interact with AI.
+These representations are artistic interpretations and do not actually reflect AI's capabilities. So, while AI can mimic certain aspects of human intelligence, it is important to remember that it operates very differently from human intelligence.
+AI does not have consciousness, emotions, or the ability to understand context in the same way humans do. It is a tool created and controlled by humans, and its capabilities are limited to what it has been programmed to do.
+That is why it is so important to understand what AI is - it allows you to discern fact from fiction.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.02: Knowledge vs Intelligence
+Understanding the key differences between knowledge and intelligence in AI
+Introduction Chinese Room Key Differences Practical Examples AI Applications 
+Introduction to Knowledge vs Intelligence
+Continuing with the question, "Can a machine ever truly be considered intelligent?" In 1980, John Searle, an American philosopher, created a test to answer this question, known as the Chinese Room Argument.
+Artificial intelligence has evolved dramatically from its early conceptual beginnings.
+Correct, artificial intelligence is not a new concept, as it has been developed and tested throughout history. The Chinese Room Argument provides an insightful framework for distinguishing between knowledge and intelligence in AI systems.
+The Chinese Room Argument
+Let's dive into Searle's famous thought experiment, the "Chinese Room Argument."
+汉字 
+The Chinese Room Argument: A person manipulates Chinese symbols using rules without understanding Chinese.
+Imagine you know how to speak Mandarin, but your friend does not. Your friend enters a room filled with symbols and a rulebook. The rulebook states: "When you see this symbol, answer with that symbol".
+You are outside the room, sending your friend a message in Mandarin. Your friend, inside the room, does not understand Mandarin, but follows the rulebook. They look at the symbols, figure out the pattern and respond accordingly.
+When you receive their response, you may think your friend understands Mandarin, but in reality, they are just following a set of rules without understanding the language.
+Key Differences: Knowledge vs Intelligence
+Knowledge vs Intelligence
+This test is intended to show that knowledge and intelligence are two very different things. When it comes to AI, a machine may not know Mandarin, but it knows how to recognize the pattern and answer with a message.
+Knowledge Intelligence 
+Knowledge is information stored and accessed, while intelligence is the ability to apply and adapt that knowledge.
+Perhaps this analogy with Mandarin is not part of your daily routine, but interacting with AI virtual assistants like Siri might be. Who has not asked Siri to tell a joke or share a story?
+At the end of the day, these systems convert our language into something they can recognize. They are constantly searching for matches in their databases, but they don't truly comprehend our language. Let's look at another example of this.
+Practical Examples of Knowledge vs Intelligence
+Imagine you are not feeling well, and you arrive at a doctor's office for a visit. You will go through a series of questions asked by nurses, "How long have you been feeling like this?" "What is your pain like, on a scale from 0 to 10?"
+? ? ?  
+The medical diagnostic process involves repetitive data collection that AI could streamline.
+They would check your vital signs, and then when you finally see the doctor, you'd repeat much of the same information. It is a repetitive process that takes up time and resources.
+AI in Medical Diagnostics
+Now, imagine a second situation: Upon arriving at the doctor's office, an AI system asks all these questions. It swiftly analyses your responses, takes your vital signs, and any other relevant information. By the time you meet with the doctor, the system has already generated a preliminary diagnosis based on the patterns it identified.
+It streamlines the process, allowing the doctor to address your needs more efficiently. This system operates intelligently by identifying patterns within the collected data thereby accelerating the diagnosis and treatment process.
+Applications in Modern AI
+As we have seen, knowledge and intelligence, while interconnected, are fundamentally different. Knowledge is about understanding the world around us, while intelligence is about applying that knowledge in new and innovative ways.
+Knowledge and intelligence work together in AI systems to create practical applications.
+But what fuels this programming? What allows AI to recognize patterns, make predictions, and learn from past experiences? The answer is data.
+The Fuel for AI: Data
+Data is the raw material that powers AI systems. It provides the foundation for both knowledge (stored information) and intelligence (pattern recognition and application). As we'll explore in the next chapter, understanding the role of data is crucial to comprehending how modern AI systems function.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course
+About Privacy Policy Terms of Use 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.03: Data Everywhere
+Understanding how data fuels AI systems and impacts our daily lives
+Introduction Data Importance Data Production Data Refinement Applications 
+Introduction to Data
+Have you ever wondered why data collecting is so important in today's world and what it can be used for?
+Data is constantly generated through our everyday digital interactions.
+Data: The Fuel for AI
+Data is the raw material AI systems use to analyze and make predictions, and you probably produce way more data than you realize, even just through your mobile phone.
+Back in the 1990s, the rise of the internet marked a significant leap in access to data and the use of AI. This era set the stage for the data-driven world we live in today.
+The Importance of Data in AI
+Fast forward to the present, we have no shortage of data fuelling analyses and personal pattern recognition processes.
+1990 1995 2000 2010 
+The exponential growth of data over the decades has fueled AI advancement.
+Just imagine how much data is being created while you watch this video. Maybe you are sending a text message to a friend. At the same time, someone next to you might be on a call. Somebody else has just posted a photo on their social media page while another has started a new video series that piqued their interest on a streaming app.
+The Data Explosion
+Data is constantly being generated with each passing second. Every interaction with digital technology—from scrolling through social media to shopping online or even just having your phone in your pocket—creates new data points that can be analyzed by AI systems.
+How We Produce Data
+Correct... all these actions create new data. Let's explore some common ways we generate data in our daily lives:
+People produce data through gaming, phone calls, watching TV, typing, and even at gas pumps.
+A man plays a video game, a woman is on a cell phone, a TV displays a bird, hands type on a keyboard next to a gas pump. All of these everyday activities generate valuable data that AI systems can learn from.
+Refining Raw Data
+Yet this raw data requires careful refinement. Data needs to be refined because the quality of the dataset used to train algorithms have a direct influence on the accuracy of the AI model.
+Raw data must be refined before it can be effectively used by AI models.
+Quality Over Quantity
+That means that diverse and representative high-quality data is essential to developing advanced AI models. The refinement process removes errors, inconsistencies, and biases that could affect the AI's performance.
+Applications of Data in AI Systems
+Consider a music streaming service. It uses the data from your listening habits, such as the songs you skip, the ones you play on repeat, and the playlists you create, to recommend new music that you might like.
+Your Daily Mix Your Top Songs 2024 Your Time Capsule A New Song For You 
+Music streaming services use your listening data to make personalized recommendations.
+This is a practical example of how data is used to enhance our everyday experiences and how datasets train the AI models to recommend the next song for you. And that is what we use machine learning for, to analyse and learn from the data. But it does not stop there.
+From Data to Value
+Once we have this information, we can use it to train AI models, improve products and services, make predictions, and even uncover new insights that were previously hidden. It's about recognizing patterns and making connections that might not be immediately obvious.
+So, the next time you use your mobile phone, remember that every action you take, every piece of data you generate, contributes to this vast, interconnected web of information. And it is through understanding this data that we can truly unlock the potential of AI.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course
+About Privacy Policy Terms of Use 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.04: Finding Patterns in Data
+How AI identifies and utilizes patterns in data
+Introduction Pattern Recognition AI and Patterns Social Media Business Applications 
+Introduction to Patterns in Data
+Data is constantly being created and refined to train AI models. But what exactly are these models looking for in the data?
+AI systems look for patterns within vast amounts of seemingly random data.
+Patterns
+Patterns are identifiable repetitive behaviors or structures that occur within data. AI models are particularly good at recognizing these patterns, mainly because they have access to a large volume of data.
+Pattern Recognition in Action
+Let's consider LinkedIn as an example. Have you ever noticed how LinkedIn suggests people you might know or jobs that you might be interested in?
+in David Senior Art Director at Microsoft, Barcelona Susanne Software Engineering Manager at Microsoft, Paris 
+LinkedIn uses pattern recognition to suggest connections based on your profile and behavior.
+It is not just based on your connections or job search history, but also on the behaviors of people all around the world who have similar connections or job interests.
+Time-Based Patterns
+What is really interesting is platforms like LinkedIn may look for patterns not only within your professional network and job preferences, but also in relation to the specific times you are active on the platform. For example, many people tend to browse apps during their lunch breaks or after work hours, so apps may suggest new connections or posts at those times too.
+How AI Models Identify Patterns
+This pattern identification does not just occur on platforms like LinkedIn, but with many companies across many apps and platforms.
+#  #  #  
+AI systems identify patterns across user behaviors to predict preferences and interests.
+Imagine the benefits of understanding what users really want or even creating new consumption trends based on the market. This understanding allows companies to customise their services for each user, thereby enhancing the user experience and boosting satisfaction.
+Pattern Recognition in Social Media
+It is about using data to meet the needs of the user in the most effective way possible. Every click, every like, every search - these are all pieces of data. AI models process this vast amount of data to notice patterns.
+Every click on a website provides data that AI can use to identify patterns and preferences.
+These patterns help the AI model tailor your experience, making it more relevant and engaging. It is like having a personal assistant who knows exactly what you need, even before you do!
+Business Applications of Pattern Recognition
+Think about the World Cup. What are potentially the best-selling products before the tournament?
+10 
+Recognizing trends like team shirt sales during the World Cup helps businesses make strategic decisions.
+You might be thinking team shirts. Recognizing this trend of team shirt consumption can provide a unique competitive edge for companies. It could even help in the new development of products or features.
+Machine Learning and Pattern Recognition
+But how does an AI model learn to recognize these patterns? Well, it does so through machine learning. In the next chapter, we'll explore how machine learning enables AI systems to identify and utilize patterns to make predictions and decisions.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course
+About Privacy Policy Terms of Use 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.05: Machine Learning
+Understanding the differences between AI and machine learning, and how machines learn from data
+Introduction AI vs ML Learning Types Mathematical Foundations Learning Analogy 
+Understanding Machine Learning
+You might have heard the terms 'machine learning' and 'AI' used interchangeably, and you may be wondering, 'What is the difference?' Well, there is a difference, and it is important to understand how they are different.
+AI ML What's the difference? Artificial intelligence Deep learning Machine learning 
+Machine Learning is a subset of AI, but the two terms are often used interchangeably.
+AI vs Machine Learning
+Artificial Intelligence refers to the intelligence exhibited by software and machines. Machine learning, on the other hand, is a subset of AI. This means that while all machine learning is AI, not all AI involves machine learning.
+Distinguishing Between AI and Machine Learning
+Machine learning is a type of AI where a machine learns from the data it has been given and can identify patterns in that data. It is also the process by which machines learn from data and improve their performance over time.
+Artificial Intelligence Machine Learning All machine learning is AI, but not all AI involves machine learning. ML 
+The relationship between AI and Machine Learning: ML is a specific approach within the broader field of AI.
+Machine learning uses different types of techniques such as supervised learning, unsupervised learning, and reinforcement learning. The term 'Machine Learning' was introduced by Arthur Samuel in 1959, who created a program that played draughts against itself.
+Historical Origin
+Arthur Samuel, an American pioneer in computer gaming and AI, created a program that played draughts. The machine analyzed the game through repetitive plays, identifying strategies to win and avoid losses. Through playing the game and learning what to do to win, it began to detect recurring patterns and would increasingly follow a pattern.
+Types of Machine Learning
+Machine learning can be divided into three main types: supervised learning, unsupervised learning, and reinforcement learning. Each approach has distinct characteristics and applications.
+Supervised learning X Label: Cat Y Label: Dog Unsupervised learning Reinforcement learning + - 
+The three primary types of machine learning: supervised, unsupervised, and reinforcement learning.
+•	Supervised Learning: The algorithm is trained on labeled data, where inputs are paired with correct outputs.
+•	Unsupervised Learning: The algorithm is trained on unlabeled data and must find structure without guidance.
+•	Reinforcement Learning: The algorithm learns by interacting with its environment and receiving rewards or penalties.
+Mathematical Foundations of Machine Learning
+To achieve effective machine learning, Samuel had to use mathematics. Concepts such as linear algebra, calculus, probability, and statistics play a crucial role in understanding how machine learning algorithms learn from data and make predictions.
+Linear Algebra: A = [a₁₁ a₁₂] [a₂₁ a₂₂] Calculus: f'(x) = lim Δx→0 [f(x+Δx) - f(x)]/Δx Probability: P(A|B) = P(B|A)P(A)/P(B) Statistics: σ² = Σ(xᵢ - μ)²/n 
+Mathematical concepts such as linear algebra, calculus, probability, and statistics form the foundation of machine learning algorithms.
+These mathematical concepts help in optimizing the performance of the model, understanding the relationships within the data, and making accurate predictions. They are the building blocks that enable machines to learn from experience and improve over time.
+The Bicycle Analogy: Learning from Experience
+Need further clarity? Let's consider the analogy of learning to ride a bicycle to understand how machine learning works.
+Learning Phase Application Phase 
+The process of learning to ride a bicycle mirrors how machine learning models progress from initial training to independent performance.
+Learning Through Experience
+When you first learn to ride a bicycle, you might start with training wheels. These training wheels are like the initial data set that we feed into the machine learning model. They provide basic guidance and stability. As you practice more, you learn to balance, pedal, and steer. This mirrors how a machine learning model begins to recognize patterns during training.
+Eventually, the training wheels come off, and you adapt to different situations – riding on hills or through crowds. Similarly, a machine learning model applies what it has learned to new data and tasks, improving its performance based on experience.
+This draughts game and bicycle learning analogy highlight the fundamental concepts of machine learning: learning from experience, replicating results, and improving performance. As we continue to explore AI and its capabilities, remember that all machine learning is AI, but not all AI is machine learning.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course
+About Privacy Policy Terms of Use 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.06: Types of Machine Learning
+Exploring supervised, unsupervised, and reinforcement learning approaches
+Introduction Supervised Learning Unsupervised Learning Reinforcement Learning Deep Learning 
+Learning Methods in Machine Learning
+Ever wondered how you learned to ride a bike or play an instrument? It's all about learning from experience, correct? Well, machines can do that, too! They can learn in three main ways: supervised learning, unsupervised learning and reinforcement learning.
+Supervised Unsupervised Reinforcement AI 
+Learning from experience is fundamental to human learning and machine learning.
+Three Main Types of Machine Learning
+Machine learning algorithms can be classified into three main types:
+•	Supervised Learning: Algorithm is trained on data that's labeled with the correct answers
+•	Unsupervised Learning: Algorithm is trained on unlabeled or raw data
+•	Reinforcement Learning: Algorithm is trained by interacting with its environment to achieve a goal
+Let's break down each type with a simple analogy: learning to play football.
+Supervised Learning: Learning with a Trainer
+In the first scenario of our football analogy, you have a trainer who supervises you and teaches you all the rules.
+Rules 0:0 
+In supervised learning, like football training, the algorithm learns from labeled examples provided by a "trainer."
+They carefully explain that when the ball enters the goal, you earn a point, and when the ball goes out of play over the sideline, it must be thrown in by hand. They explain all the rules, how many players there are, how long the game lasts, and so on. In this case, you have a person supervising you and teaching you all the rules of the game.
+How Supervised Learning Works
+In supervised learning, the algorithm is given a set of input data along with the correct output (labels). It learns by finding patterns that map the input to the output. This is similar to how a football coach might show a player exactly what to do, and the player learns by following these instructions.
+Examples of supervised learning applications include:
+•	Email spam detection (spam or not spam)
+•	Image recognition (identifying what's in an image)
+•	Weather forecasting (predicting future weather based on historical data)
+Unsupervised Learning: Figuring It Out on Your Own
+In the second scenario of our football analogy, you are on your own. You start attending games every Thursday and Sunday without prior instruction.
+? Cheering Groaning 
+In unsupervised learning, like watching football games without instruction, the algorithm identifies patterns without being told what to look for.
+Initially, you are puzzled. Why are players using their hands from the sidelines in a game primarily played with feet? Why is the crowd cheering when the ball hits the net, and why do they groan when it does not? But as you keep watching, you start recognizing patterns and understanding the game's dynamics.
+Clustering and Association
+Unsupervised learning algorithms find structure in data without explicit guidance. There are two main types:
+•	Clustering: Grouping similar data points together (like recognizing that certain players on a team work together in specific formations)
+•	Association: Discovering rules that describe relationships in the data (like understanding that when the ball goes into the net, the crowd cheers)
+Applications include customer segmentation, anomaly detection, and recommendation systems.
+Reinforcement Learning: Learning from Rewards
+Now, let's consider a third scenario, which is like reinforcement learning. Imagine you are practicing penalty kicks.
+Positive Reward Negative Reward 
+In reinforcement learning, like practicing penalty kicks, the algorithm learns from positive and negative feedback.
+Each time you score a goal, you feel a sense of achievement, which is a positive reward. Each time you miss, you feel disappointment, which is a negative reward. Over time, by trying different ways of kicking the ball and learning from the rewards, you improve your ability to score penalty kicks.
+Reward-Based Learning
+Reinforcement learning is based on an agent (the learner) that interacts with its environment, taking actions to maximize cumulative rewards. The key components are:
+•	Agent: The decision-maker (like the football player)
+•	Environment: The world in which the agent operates (the football field)
+•	Actions: What the agent can do (different kick techniques)
+•	Rewards: Feedback from the environment (scoring or missing)
+Applications include game playing, robotics, autonomous vehicles, and resource management.
+Deep Learning: Taking Machine Learning Further
+Remember, all machine learning is AI, but not all AI involves machine learning. Machine learning can be broken down into these types: supervised, unsupervised, and reinforcement learning. But we can go even deeper.
+Input Layer Hidden Layer Output Layer 
+Deep learning uses advanced neural networks with multiple layers to process complex information.
+There are advanced forms of machine learning that mimic the human brain's own method of learning. They take the concepts of supervised, unsupervised, and reinforcement learning and apply them on a much larger scale. This is called deep learning.
+Neural Networks and Deep Learning
+Deep learning is a subfield of machine learning inspired by the structure and function of the brain called artificial neural networks. Just as neurons in the brain are connected to form a vast network, deep learning uses artificial neural networks with several layers - hence the term 'deep'.
+These networks can learn and make decisions on their own. They excel at tasks such as:
+•	Image and speech recognition
+•	Natural language processing
+•	Recommendation systems
+•	Medical diagnoses
+In conclusion, machine learning approaches vary based on the task at hand and the available data. Understanding these different types helps us appreciate how AI systems learn and adapt to solve complex problems. As we move forward, we'll explore deep learning in more detail and see how these neural networks are revolutionizing artificial intelligence.
+Previous Chapter Next Chapter 
+© 2025 AI Fluency Course 
+AI Fluency
+Module 1: AI Foundations
+Chapter 1.08: Natural Language Processing (NLP)
+Exploring how AI understands, interprets, and generates human language
+Introduction NLP
+...
+
+[Message clipped]  Entire message not available offline
+
+
+	
+	
+to Sci-Bono 
+ 
+
+•	Home 
+•	Begin AI Journey 
+•	Courses 
+•	Help & FAQs 
+•	
+•	
+•	
+•	fiston 
+•	
+My account
+
+
+Connection & Security 
+Configure your connection parameters 
+
+
+fiston
+st peace college
+20 percy stree jhb
+yeohvill
+jhb 1030
+South Africa 
+0725298946 
+tshingombefiston@gmail.com
+•	Home  
+Courses   Discover More at Sci-Bono   Contact Us  
+•	
+Follow us
+Copyright © Sci-Bono Discovery Centre | ICT and Youth Development Department 2025 
+•	Home 
+•	Begin AI Journey 
+•	Courses 
+•	Help & FAQs 
+•	
+•	
+•	
+•	fiston 
+•	
+Ranks
+Keep learning with Sci-Bono ICT Academy. Collect points on the forum or on the eLearning platform. Those points will make you reach new ranks.
+How do I earn badges?
+When you finish a course or reach milestones, you're awarded badges.
+How do I score more points?
+You can score more points by answering quizzes at the end of each course content. Points can also be earned on the forum. Follow this link to the guidelines of the forum.
+Ranks
+•	
+Doctor
+10,000 points 
+•	
+Master
+2,000 points 
+•	
+Bachelor
+500 points 
+•	
+Student
+100 points 
+•	
+Newbie
+1 points 
+Badges
+Besides gaining reputation with your questions and answers, you receive badges for being especially helpful.
+Badges appear on your profile page, and your posts. 
+
+Get started
+Register to the platform
+212 awarded users 
+
+Know yourself
+Complete your profile
+121 awarded users 
+
+Certified Knowledge
+Get a certification
+57 awarded users 
+
+Power User
+Complete a course
+46 awarded users 
+
+Community hero
+Reach 2000 XP
+1 awarded users 
+•	Home  
+Courses   Discover More at Sci-Bono   Contact Us  
+•	
+Follow us
+Copyright © Sci-Bono Discovery Centre | ICT and Youth Development Department 2025 
+
+...
+
+[Message clipped]  Entire message not available offline
+2 Attachments • Scanned by Gmail
+
+
+	
+	
+	
+to Sci-Bono 
+ 
+
+Skip to main content Skip to toolbar 
+•	About WordPress
+•	Sci-Bono Online Learning
+•	Live
+•	2323 updates available
+•	00 Comments in moderation
+•	New
+•	Setup Payments
+•	WPForms
+•	Purge SG Cache
+•	
+•	Howdy, tshingombe
+Pages
+Add Page 
+________________________________________
+Call & message for free with 3CX SMB! Activate Now
+LearnDash Stripe Addon Deprecation
+As of June 13, 2023 the Stripe plugin will no longer receive feature updates. We encourage you to switch over to Stripe Connect, however you can continue to utilize the plugin without upgrading. 
+Setup Stripe Connect - Stripe Deprecation FAQ
+Notice: You are using the auto-generated password for your account. Would you like to change it?
+Yes, take me to my profile page | No thanks, do not remind me again
+Elementor Data Updater
+Database update process is running in the background. Taking a while?
+Love using Elementor?
+Become a super contributor by opting in to share non-sensitive plugin data and to receive periodic email updates from us. Learn more.
+Filter pages list
+•	All (32) |
+•	Published (30) |
+•	Drafts (2)
+Search Pages: 
+Select bulk action
+Filter by date 
+Pages list navigation
+32 items « ‹ Current Page  of 2 Next page› Last page»
+
+Pages list
+Table ordered by Hierarchical Menu Order and Title. Ascending.
+ Select All
+Title
+Author	Comments Sort ascending.
+Date Sort descending.
+
+ Select About 	About — Elementor 
+Edit | 
+		
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2018/12/06 at 12:49 pm
+ Select About 
+About — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select All Courses 
+All Courses — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select All Courses 
+All Courses — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2018/12/07 at 12:51 pm
+ Select Cart 
+Cart — Cart Page 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select Cart 
+Cart 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2021/09/17 at 4:20 am
+ Select Checkout 	Checkout 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2021/09/17 at 4:20 am
+ Select Checkout 	Checkout — Checkout Page 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select Contact 	Contact — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2019/03/19 at 1:42 pm
+ Select Contact 
+Contact — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select Courses 
+Courses 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2023/09/08 at 7:10 pm
+ Select Dashboard 	Dashboard 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2023/07/26 at 9:09 pm
+ Select ebooks 	ebooks — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2024/02/11 at 3:03 pm
+ Select Home 
+Home 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2020/08/25 at 10:13 pm
+ Select Home 
+Home — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select Home 
+Home — Front Page, Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2018/11/19 at 7:50 pm
+ Select Instructor Registration 	Instructor Registration 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2023/07/26 at 9:09 pm
+ Select My Account 	My Account — Elementor 
+Edit | 
+	
+| Trash | View | Edit with Elementor
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select My account 
+My account 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2021/09/17 at 4:20 am
+ Select My account 	My account — My Account Page 
+Edit | 
+	
+| Trash | View
+ashleyanthonyadams@gmail.com
+—No comments 	Published
+2025/02/06 at 10:03 pm
+ Select All	Title
+Author	Comments Sort ascending.
+Date Sort descending.
+
+Select bulk action
+32 items « ‹ Current Page1 of 2 Next page› Last page»
+
+Thank you for creating with WordPress. 
+Version 6.8.1 
+
+...
+
+[Message clipped]  Entire message not available offline
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	 May 30, 2025, 12:03 PM
+
+	
+	
+to Sci-Bono 
+ 
+
+Your 3CX Live Chat is almost ready! 
+Copy the following URL into the “3CX Talk URL” field in the 3CX Live Chat configuration page in wordpress: 
+https://1173.3cx.cloud/engineering 
+Use the credentials below to login and start customising your Live chat: 
+Login:https://1173.3cx.cloud/#/office 
+Email:tshingombefiston@gmail.com 
+Password: ∗∗∗∗∗∗∗∗∗∗∗ 
+LOGIN 
+Next Up 
+After logging in, you can view your live chat settings here:
+https://1173.3cx.cloud/#/office/#/office/numbers-and-messaging 
+•	About WordPress
+•	Sci-Bono Online Learning
+•	Live
+•	Customize
+•	2323 updates available
+•	00 Comments in moderation
+•	New
+•	Edit Course
+•	WPForms
+•	Purge SG Cache
+•	
+•	Howdy, tshingombe
+•	
+ Search
+Skip to content 
+•	Home
+•	About
+•	All Courses
+•	Contact
+•	My Account
+
+Electrical
+Course Status: Not Started 
+
+HR Approved Policies
+Course Description
+The purpose of this course is to keep everyone abreast of the HR policies that exist within the organization. It is important to work in an environment governed by frameworks and policies.
+African American carpenter man use electrical saw to cut timber in factory workplace and his co-worker still work in the back.
+In this course we will cover
+•	Disciplinary
+•	Bursary 
+•	Health and Environment
+•	Employment Equity 
+•	Fraud and Corruption
+•	Grievance
+•	IT Governance 
+Course Content 
+Expand All | Collapse All 
+Lessons Status 
+1 
+Safety, Health And Environmental policy 
+2 
+Signed Substance Abuse Policy 
+3 
+Signed Retirement Policy 
+4 
+Signed Bursary policy 
+5 
+Succession Planning SOP 
+6 
+Signed Disciplinary Policy 
+7 
+Signed Grievance Policy 
+8 
+Signed Job Evaluation Policy 1 
+9 
+Signed Risk management Policy 
+10 
+Signed IT Governance Policy 
+11 
+Signed Fraud and Corruption policy 
+12 
+Signed Child Protection policy 
+13 
+Signed Employment Equity policy 
+14 
+Signed Remuneration policy 
+15 
+Signed PMDS Policy 
+Copyright © 2025 Sci-Bono Online Learning
+•	About WordPress
+•	Sci-Bono Online Learning
+•	Live
+•	Customize
+•	2323 updates available
+•	00 Comments in moderation
+•	New
+•	Edit Page
+•	Edit with Elementor
+•	WPForms
+•	Purge SG Cache
+•	
+•	Howdy, tshingombe
+•	
+ Search
+Skip to content 
+•	Home
+•	About
+•	All Courses
+•	Contact
+•	My Account
+Learn from Industry Experts
+Sci-Bono is an accredited learning institution aimed at bringing life to the world of STREAM. SIgn-up now and be apart of a global movement. 
+View All Courses 
+Actionable Training 
+All courses are uniquely designed to educate students and prepare them for the corporate world. 
+Industry Exams 
+Our exams are industry standard and benchmarked to both national and international frameworks 
+Premium Material 
+Our learning material comprises of videos, presentations and workbooks 
+Our Most Popular Courses
+Enroll now and explore a world of excellence. Our platform is versitile and allows you to have the best learning experience.
+Enrolled 
+ECD
+
+Enrolled 
+Cyber Security
+
+Enrolled 
+Electrical
+
+Enrolled 
+Introduction to K53
+
+Enrolled 
+AI Fluency
+
+Be in Demand with Our Professional Training
+We are proud to announce that our platform hosts the best instructors in Africa
+Prof. Mfanelo Pat Ntsobi — Founder & CEO. 
+Build Relevant Skills 
+Our content is rich in value and highly rocommended by scholars worldwide.
+Get The Right Path From The Best Learning Platform 
+Learn From The Professionals 
+Industry Partners
+ 
+
+
+
+
+What Our Students Have to Say
+I have recently completed the inhouse policies course and have found great value in it. I now have a better understanding of my environment.
+
+Mark Mthombeni
+From Johannesburg, RSA
+The great thing about these courses is that they are all accredited. This makes it worth your while. Certificates are issued as soon as one completes their course.
+
+Zasha Swan
+From Australia 
+I'm inspired to be learning from a platform that is aimed at changeing the lives of people around the globe. I have just completed my Cisco Cybersecurity Course.
+
+Frank Jones
+From Japan
+The intergrations are seamless. The learning platform has includes videos presentations and other learning material as well as unique guidance from instructors.
+
+Lester Constance
+From London, UK
+Copyright © 2025 Sci-Bono Online Learning
+•	About WordPress
+•	Sci-Bono Online Learning
+•	Live
+•	Customize
+•	2323 updates available
+•	00 Comments in moderation
+•	New
+•	Edit Quiz
+•	WPForms
+•	Purge SG Cache
+•	
+•	Howdy, tshingombe
+•	
+ Search
+Skip to content 
+•	Home
+•	About
+•	All Courses
+•	Contact
+•	My Account
+L1: Introduciton to AI Quiz
+By ashleyanthonyadams@gmail.com / February 6, 2025 
+Results
+3 of 11 Questions answered correctly
+Your time: 00:00:39 
+You have reached 3 of 11 point(s), (27.27%) 
+•	
+1.	In what year did the progress of AI that can create Microsoft Copilot technology occur?
+o	 1900s 
+o	 2000s 
+o	 2021 
+o	 1950 
+Incorrect 
+2.	Which statement is correct regarding Artificial Intelligence?
+o	 AI cannot provide the latest updates on local weather and news in an area. 
+o	 AI cannot perform tasks such as pattern recognition, problem-solving or decision-making. 
+o	 AI does not learn from past data and mistakes to make predictions of future behaviour that are increasingly accurate. 
+o	 AI does not have consciousness, emotions, or the ability to understand context in the same way as humans. 
+Incorrect 
+3.	What enables AI to recognise patterns, make predictions, and learn from past experiences?
+o	 Data 
+o	 Numbers 
+o	 Text 
+o	 Emotion 
+Correct 
+4.	Machine learning can be used for several purposes, including….
+o	 improving products and services, and blocking new hidden insights 
+o	 training AI models and making predaictions 
+o	 preventing inaccurate data predictions and improving products and services 
+o	 training and adapting AI models 
+Incorrect 
+5.	What is one of the benefits of understanding target user?
+o	 User can customise the service according to the company's preferences. 
+o	 Meeting the company's needs quickly. 
+o	 Improving the user satisfaction. 
+o	 Curating the user experience. 
+Incorrect 
+6.	From the following statements, which one is correct regarding Machine Learning?
+o	 Machine Learning is an essential system that is always used and forms the basis in AI. 
+o	 Machine Learning is a standalone system that can learn and make decisions without training data/pre-processing. 
+o	 Complex Machine Learning models can work without supervision and guidance from humans. 
+o	 Machine Learning is a process where machines learn from data and improve their performance over time. 
+Incorrect 
+7.	The type of Machine Learning that performs automatic trial and error decision-making to maximise the performance of its algorithm is…
+o	 Reinforcement Learning 
+o	 Supervised Learning 
+o	 Unsupervised Learning 
+o	 Deep Learning 
+Correct 
+8.	How does the volume of data a computer has affect the performance of AI?
+o	 The less data there is, the more accurate AI predictions will be. 
+o	 The less data there is, the more accurate AI predictions will be. 
+o	 The more data there is, the better AI performance. 
+o	 Data volume has no effect on AI performance. 
+Incorrect 
+9.	What is the process of computer analysis in processing and understanding human language through text called?
+o	 Speech Recognition 
+o	 Image Analysis 
+o	 Sentiment Analysis 
+o	 Text Analysis 
+Incorrect 
+10.	What is the algorithm that can classify every incoming email as spam or not?
+o	 Classification Algorithm 
+o	 Regulation Algorithm 
+o	 Clustering Algorithms 
+o	 Optimisation Algorithms 
+Correct 
+11.	An example of implementing the Internet of Things (IoT) in the household is?
+o	 Indoor lights that can be turned on and off with a light switch 
+o	 Using a self-driving car 
+o	 Use CCTV cameras that have a large memory 
+o	 Utilisation of sensors on the fridge to monitor the contents of the cupboard 
+Incorrect 
+Copyright © 2025 Sci-Bono Online Learning
+Lesson Topics 
+•	AI History 
+•	What is Artificial Intelligence 
+•	Knowledge vs Intelligence 
+•	Data Everywhere 
+•	Finding Patterns in Data 
+•	Machine Learning 
+•	Types of Machine Learning 
+•	Deep Learning 
+•	Natural Language Processing (NLP) 
+•	AI Algorithms 
+•	AI in Action 
+QuizzesStatus
+1
+L1: Introduciton to AI Quiz 
+AI Fluency
+Course Status: In Progress 
+
+You are enrolled in this course
+Course Description
+The AI Affluency Course is designed to demystify artificial intelligence for learners at all levels, providing a comprehensive understanding of AI technologies, ethics, and applications. 
+It aims to equip participants with the knowledge and skills to implement AI solutions in various sectors, promoting innovation and strategic thinking in business and beyond.
+Key concepts covered include:
+•	A Brief History of AI
+•	What is Artificial Intelligence?
+•	Machine Learning
+•	Types of Machine Learning
+•	Natural Language Processing (NLP)
+•	AI Algorithms
+•	AI in Action
+Unlock the potential of artificial intelligence with our AI Affluency Course, designed for both beginners eager to delve into AI and professionals looking to sharpen their edge in this transformative field. This comprehensive course covers:
+Course Content 
+Expand All | Collapse All 
+Lessons Status 
+1 
+Lesson 1 – Introduction to AI 
+2 
+Lesson 2 – Generative AI 
+3 
+Lesson 3 – Search Engines 
+4 
+Lesson 4 – Using AI Responsibly 
+5 
+Lesson 5 – Microsoft Copilot 
+6 
+Lesson 6 – Impact of AI 
+Profile 
+
+Edit profile 
+Name: tshingombe tshitadi
+Username: tshingombe
+Email: tshingombefiston@gmail.com
+Earned Course Points: 14
+Registered Courses Status Certificate 
+AI Fluency
+AI Fluency
+- 
+Introduction to K53
+Introduction to K53
+- 
+Electrical
+Electrical
+- 
+Cyber Security
+Cyber Security
+- 
+ECD
+ECD
+- 
+Our Most Popular Courses 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Referred  :journey  career center library day  
+Rwiten job readness job    career review book guideline text book  ,  company catalogue 
+Experience,base frame theory practical on ...Competition science career engineering.rwiten job scie Bono and department education . institution
+
+
+	
+	
+	
+ 
+
+5.1.backgroung .
+Experimental..national science career discovery research competition skill career mentor libraries.. education science career sciebono 
+Base framework: selection question skill talen rwiten cvs job skill ...
+5.2.analyse submission : selected phase preliminary ,phase final ..
+-5.2.1. phase preliminary career selected competition presentation topic project meeting requirements and no meeting requirements.selected quotation form ,selected rwiten on library,workshop and lab workplace  report annual statement meeting and not meeting oversee..
+Phase - selected question and answer of guideline career orientation question recruitment years ..outcome of subject 
+-5. 2.2.subject criteria on framework qualification institution and college on national exam matric exam outcome learner career , selected career on test assessment..
+-5. 2.3.selected question criteria on university equivalent award assessment explanation  ucpd and institution criteria post graduate and undergraduate graduate development research papper and explanation letter..
+Criteria career outcome on national trade application on subject offered.natiinal and ncv combination,n 1to n6,nn diploma certificate award ,, regulation and irregularities. And ncv nsc vocational career meeting ,,level career sector seta merseta teta sasseta hasta engineering science , electrical mechanical building civis chemical physic mathematics career exhibition ,,selected career on job 
+Outcome trade teaching trade electrician  mechanical .. engineering and power station championan ,generation champions, transmission energy championan,expos science  on job company meeting.application 
+
+-5.2.4 selected explanation science engineering ....
+-
+
+
+	
+	
+ 
+
+- 5.3.1Requisition for procurement: 
+Selected phase.
+Requisition: number: .................
+- date received.......
+-Department : education, career center ,ICT.  
+- project code : 
+-estimation cost : R 385.000per day .
+- budget funding source :
+- approximately available.
+Hr award bid 
+Resource humain :
+Resource material :
+. description or service |unit|approx|aptot
+- 
+-
+-
+-
+-
+5.4.purpose : submission requested ,inventory discovery 
+Competition championan award selected internal external assessment outcome course on topic science engineering in.
+Career mentor skill rwiten cvs job readiness assessment on career selected hr  management portfolio...
+5.5. Project / programme background : department education career career librari management provision of compety .. maintaining quality of education science career discovery presentation valuable..
+5.6. Analysis and main consideration ..
+
+Financial implications : 
+Item  submission assessment|Quantity|
+- skill 
+.- proposal 
+The chief executive ..
+Recommend not 
+
+
+5.7.Competence assessment 
+Information management system 
+Recruitment 
+Base college and training academy university 
+
+- financial 
+Need submission:
+Fee . estimate 
+-Advanced procurement| hourly | hours | total 
+_- system requirements 
+
+- product presentation 
+- requirements analysis system design workshop.
+- requirements analyse document 
+- system administrator 
+- configure email 
+- assist 
+- create projects 
+- agent setup 
+- configure 
+General ledger .
+- account entry inventory.
+Default order approval 
+- advanced project 
+- customer report building forms 
+Test round 1
+- issue resolve 
+- test round 
+- training round .
+- install advanced 
+Project management 
+- business proposal 
+- data migration 
+Operation 
+- travel time 
+Insurance 
+
+
+*5.7.Quotation form : number/ company 
+- Full name : ----
+- postal address:
+- physical address :
+Company cc reg number :
+- I'd number if sole :
+- tax reference number:
+Vat registration number .:
+Main contact :
+Cellphone number 
+- fax number :
+-email address
+- instruction:
+* Offer :
+Assessment, assignment question phase selector portfolio is book submission 
+-categorie
+Per learner self discovery,peer discover , group discovery, ownership award awareness school, irregularities completed 
+
+Item  description | Quantity| total ..
+- transcript record library dissertation ,130pg| R 130
+- projection mentor libraries learner cvs 
+- planing  case book ,
+- news papers building sheer frame PC 
+- workshop study arch file 
+- award career submission for ..
+* Delivery transport 
+- award saqa degree
+Record certificate book 
+
+Vat ...
+Checklist subt..
+Company , tshingombe and sub contractor.  st peace college and career company saqa , schedule Eaton ,city power eskom , Microsoft,google ,nogada ccma labour ,scie Bono training libraries 
+- campagny 
+Fax  number email address. / Yes / not
+- physical address postal address 
+- tel number contact number 
+- cell 
+- file for. Completed 
+- certificate of uncoureg ciproc
+- valid sars tax 
+Valid bee 
+- is copy 
+- certificate 
+Fulname , tshingombe fiston tshitadu ..
+2019 
+
+____""""""____
+
+Invitation bid
+Scie Bono news letter cyntht moholo ..
+- incitat scue boni centre 2019/20 virtual agm 
+- board chairp ,Mr abbey witbooi ,28th October 2029 ,,key not Mr panysza Ms gauteng.. department education..
+5.8.
+________subject in the national curriculum statement grade ...
+Learn field | elective subject | selected 7, or subject 
+
+- compulsory subject:
+Human social studies 
+Business commerce management studies
+Services 
+- manufacture engineering design technology : 
+9.asset acknowledge form 
+I  full name .../ Surname 
+Hereby accept the following:......
+- here ..
+- .....make model 
+Serial number of the asset .
+- barcode : 
+- condition :
+- sign:
+- it user name 
+______
+Judgement arbitration career labour career subject competition: 
+
+10.Client intake info - walk in center : 
+Name of facilitate: .....consultation date
+- client name surname .... consultant date.
+- client name surname:
+Name of institution school :
+- client contact cell
+- field study : 
+- age :  gender :  ..race ..
+Reason visiting career center please tic the option 
+
+Competition championant 
+Visiting career 
+- subject career choice info guidance 
+- studies skills
+- time management skills 
+- job search skills cv writing  interview 
+- work readiness and employee enhanced 
+- self directed career  career directed career mentor 
+- learner ship employee training info .
+- tertiary studies info bursary application .
+- career info resource .
+- facilitator notes was client issue 
+- was client refered to author service ..
+Referral was internal case ..
+- mediation hand ..
+- how can we improvement...
+_______________
+- workplace readiness : module career 
+Workshop programming development training design 
+
+Development 
+- use of worh 
+
+Question program notes
+Topic career planing workshop overview 
+Question/ answer 
+- wath is career development planning:
+Target audience ,out school workshop outcome steo career value skill 
+Workshop duration : 
+Dhet process framework..
+- steo life aware interest knowledge skill 
+
+
+- discovery your self 
+- exploring your option 
+- making informed career choice take ction .
+- 
+
+
+Activity 1 self assessment skill inventory ,assess marks give 
+Functional transferability 
+People object date deal
+
+Activity 2 self assessment interested inventory :
+Statement ,selection 
+Like 
+Interpretation code
+_______________________
+
+_analyse submission:learner proposal 
+Question learning 
+Library outcome ..
+- project skill engineering and master skill facilitator tshingombe : 
+- scope career center studies library company ,course process.
+6.2.purpose career learner studies .
+6.3 requirement career campagny school tools assessment visited 
+6.4. Operation work system ..lms
+- submission web site ,career data right,
+Item book order career lms portfolio exam papers cvs ,2000pg , Scotland 400pg ,,
+5. Lab career work shop ...
+
+_________________________
+-project : workbook of compilation of formal assessment career project exhibition 
+- question project of low rules :
+Purpose explanation career center expo science journey of self discovery ...
+- section a,b,c,d design worh  research education Audi visual cvs
+2- referral library case book photocopy discovery career inventory job .
+Hr framework close ..
+Tools assessment libraries 
+Entry criteria task ,test booking 
+Is booking | topic | cost | topics project
+________
+Question / https .www
+Topics discovery investor science technical technology engineering sub topics 
+Scie Bono expire science .learn learn ..
+Topics assessment summary pentent inventory claim relate low manufacture process 
+- book invention research papers price..eureka..
+_______
+Question form Microsoft 
+Topics discovery inventory career technical .
+Lesson plan discovery 
+-----
+Magazine
+
+Question learners reading news papers study workshop use computer write xv self career submission..
+Prudence auch
+Award teach library ruling diploma ,outcome judgement attorney v, dissertation 
+Competitor 
+Question : 
+Forward:
+- execution summary teacher career ..
+- the school system 
+- the framework for evaluation and assessment 
+- system evajustyuh 
+Overview prospectus assignment school 
+- reducing cost delivery course ,
+Achievement engagement and success
+- selecting the right technology technical support 
+- open source teaching education technology 
+-: technology cloud base and education technology 
+..
+
+> 
+	\
+	
+	
+ 
+ 
+
+-question  how to build your self a bright technical future..
+Explanation . Consider a technical career let get down how do I play for a his..
+-science centre programme.. week 
+-annual report..
+- intro overview:core business,non core  business , financial 
+: executive summary,science  careers centre,learner career centre , teacher training development,ICT training,support the , organisation, corporation gov,board procurement commite, general inffinforma, independent audit , learning industrial initial 
+________&&&&
+- expo 
+Inventory library expo magazine 
+- career mentoring coach..
+Career learner expo science 
+Escom ..
+Learner name : tshingombe.
+School name 
+Regional : gauteng 
+Project title : the impletation circulum knowledge policy engineering planing product improvement contractuaj agreement with register trainer and consultant engineering electrical and computer science engineering v..
+Question : abstract.
+- purpose : ask factor job outcome transition phase learner phase exhibition phase teach ..
+- method : material and equipment : special guideline assessment formative assessment.
+
+Course< reference readiness job
+ bibliography.magazine nrf nsf ..
+- result nano technology and mining wath is nanotechnology ,what are danger of mining how nanotechnology make energy where ...
+- lesson :
+
+- conclusion : engineering it discovery computer development support to existing prospective club creative participate in 4 ir provide design career job ..
+- research plan template for :
+1. Scientific investigation project experiment 
+2 computer science experiments 
+3. Social science project : .
+Mathematics..
+- scientific experiment..
+- topics : provisional implemented framework policy college school engineering curriculum assessment police education technology teach electrical subject government municipal team training working graduate engineering time frames ..st peace college..
+1.inteoduction.
+Literature review 
+- benefits 
+- problem statement ..
+- research 1 question 
+- hypothesis 
+Method material 
+Ethics safety 
+Reference ..
+Teacher mentor comment suggestions ..
+
+____________________________________
+Library career center magazine textbook 
+Report/ open lab  lab magazine 
+
+Discovery education science competition 
+
+Quotation bid 
+Review literally 
+Textbook 
+
+- text 
+Ordered book | topic
+
+Question technical document information research ...
+Order book review overview 
+Rwiten job ...cook book course module scie 
+
+> 
+	
+	
+	
+ 
+ 
+
+Sub contractor library scie Bono science and st peace college library workshop assessment topics dhet dbe..tvet underpin assessment topics combination learning 
+
+Public library open bare
+- shopping mall library
+- cybernetic telemarketing shopping
+Checkers cna etc  
+- university library biliotech twt ,wti ,
+Dhet ..saqa ..
+- security safety,ccma labour court arch file...report head argument skill, sasseta  seta ,,lms development 
+- career  library job on line ..Eaton , scheinerde,google, Microsoft,expert assessment tech document skill ..city power eskom online ...sars ,sarb on line career dtic dst nrf ,,saps met 
+Epm ...published
+University Atlantic international..
+- technical engineering.isot Kinshasa, unikin,inpp, biliotech on line .. career 
+	
+	
+ 
+
+-resource documentation career guideline..
+
+7.10. question/ answers:  review 
+Mining qualification authority mining and minerals sector: 
+- vision , mission, valuable, continue leaener
+- overview :mqa learning career sector:
+- role is department of mineral resources : mendatator dmr ..
+-
+Summi: scares ...
+Useful for: subject future career , school leavers decided career , skill advisor 
+_ wath is the purpose of mqa : staruoe term act 29 registration seta ..mining ,skill act no..
+- core function mqa ..
+- about the mining sector : sector,mining .
+- why choose a career mining sector 
+How to make career , employee sector ..
+- wath are critical cross ..
+- problem identification and evaluation b.
+- problem identification.mathematics numeracy ,,
+- interpersonal, conflict team working..
+* 10.2 planning in a career in mining minerals sector ..
+
+- scares skills : 
+- occupation  categories.works opportunity mining ,manger professional ,technicia trades workers , machinery operators drivers , elementary workers laboures ..
+* 7.10.understanding qualification in the mining ,,
+- nqf : national framework .
+- ofo : organizing for occupational..
+* Learnerning programmer : 
+Workplace experience programmer :
+What is is workplace experience :
+- what is expected of a learner.
+- what is expected of an employer 
+- identify the company.
+*7. 10.3 internership programmes:
+- what an internership program 
+- what is expected of an intern
+- wath is expected employee 
+* Learner ship : 
+- what is learner program .
+What is expected employer
+- learner sh agreement..
+*Skill program.
+- how to access the mining skill 
+- adult education training foundation 
+..10.4..artisan career options in the and minerals sector.
+- artisans :
+- overview of artisans .
+- why choose the artisan career options.
+- list trade qualification artisans 
+- package ..
+- professional career ,, engineering 
+- learning paths and career paths : 
+* Financing your studies: 
+What is bursary, 
+- company grants ,mandatory grants ,
+* Sector mining learn ,coak base,gold, platinum,diamant,cement ,lime aggregate, jewellery manufacture, extraction petroleum and gases,service incident, vanadium..
+- hard fill occupational | ofo | reason challenge.
+- mining .. geographic 
+- mine planner
+- mining engineering 
+- rock engineering 
+- surveyor 
+- rigger
+- diesel 
+Boilermakers,,
+Geography location ,lack of planning sector 
+___
+Occupational categories: 
+Nqf | occupational catego| ladder
+8.10 to 1| category 1 and 2 : production manager,mining engineering technology 
+- category technician and trades ..mining technician..
+- category 7 machine operator drives : drillers miner..
+- category 8 elementary workers and laboures : mining ..
+- mainstream career ..
+Position | position requirements|| time frames|||| mentoring 
+
+_senior foreman | grade 12 coak ,head superintendent 
+- foreman | 
+- senior operation controller .
+- operation ..
+
+9.7-2 mainstream career operator to foreman..
+- plant production manager ... engineering / 
+9.7-4 career master technician plant _____
+_____
+Answer entry exhibition outcome academic program 
+Program experimental work in order completed employee..
+- to complete structure portfolio evidence meet requirements practice training.. university student..
+-answer learner project insurance b university cost ..
+- intern ..
+- type learning, mineral process, base metal,sand ,rock engineering understanding, hygiene, operation preparation cutting polish braking ..
+Granted abet
+____
+Career | qualification| scope duty
+Plant operator| trade test |
+Engineering| n diploma..
+__________________&&&&__
+\
+> 
+	
+	
+	
+
+
+10.Question answer..
+Reference: science innovation dst ,nrf saasta,ndp 
+-self help guide to my future career in science engineering technology.
+
+- career name :.......
+- what will do in this career .
+- what tools or equipment will I use
+- work environment.
+- work environment 
+- work outdoor, work indoor,work an official 
+- work a laboratory , work in a classroom,
+- work in consulting room
+-what are the personality requirements.
+- wath subject need to take ..
+Who are possible employee for this career
+- name career that or similar to this career ..
+
+- level of study:
+
+- nqf 4 matric  yes ,college or university yes college diploma nqf5 or 1st years nqf 5 ,,diploma ,2 years nqf6,my academic national tvet college  ,how long study ,,you have done little bit if theoretically studies after tvet but mainly practical studies work , professional engineering technician..
+-degre 3 years nqf 7  , bachelor n diploma  have completed time undergraduate or national diploma  , professional engineering technology or science..
+Nqf 8 honor degre b engineering 4 years full time received professional qualification, professional engineering natural science..
+Nqf9 master degree  you studies 6 years have master , professional engineering natural 
+- nqf pdh 10  doctoral degree ,8 years full time research lecture and academy work , professional engineering 
+
+- professional design ,ecsa ,saxnaso ..hp sa,,..
+- finance future
+
+
+
+
+
+- 
+Self assessment questions who I m ..
+- design mechanotechnic equipment.
+-using geometry to design product 
+- using science to develop new product 
+- managing construction project 
+Total score 3 point..
+_____
+One of my best subject at school is physical science 
+- studying chemistry 
+- conducting experience lab 
+- solving complex mathematics problem 
+- researching scientific problem..
+___study the and atmosphere 
+- studying earth from rains and from floods to fossil 
+- studying other planets 
+- collect rock water to conduct experimental 
+Doing geometry..
+_____
+-solving problem with he help of computer 
+- writing computer program 
+- design and installing computer equipment 
+- research the latest computer technology 
+- using mathematics models to design computer...
+------
+Studying human anatomy.
+- doing biology 
+- studying chemistry part degre 
+- treatment people or animal with are risc
+___ studies chemical interaction that occure with a living cell .
+- studying animal behaviour.
+- studying organisms and microorganisms 
+- doing environment science projects at school 
+- studying the process of how an organism forms ..
+
+______________.
+- record results 
+- field | 
+- engineering science.
+- physic chemical science 
+- earth science 
+- computer science 
+- medical science 
+- life science 
+Social science..
+_________
+Reference biliotech 
+
+* Science base based career ..
+National science and technology forum
+Technology engineering...
+- 4 ir related career field .
+- engineering career field
+- medical field
+- mathematics career 
+- career field requirements creative 
+
+	
+	
+10.1 
+
+Reference: nanotechnology public engineering / science technology department science and technology 
+Republic of south Africa..
+- NRF  national research foundation,sassra .
+
+Question/answer .
+Nanotechnology and water ...
+
+- nanotechnology and water .
+- wath isnano technology.
+- how small objective in nanotechnology 
+- where does our water come from 
+- how can nanotechnology make water safe to drink.
+Activity 
+* Nanotechnology and medicine:
+- what is nanotechnology.
+- how does our blood move in our body 
+- what is cancer .
+-how can nanotechnology help to figth cancer .
+-* nanotechnology and energy :
+- wath is nanotechnology .
+- what does  our energy.from .
+- how can nanotechnology help to build better solar panel..
+* Nanotechnology and mining:
+
+- what is nanotechnology.
+- what mining is done in rsa .
+- what are the dangers of mining .
+- how is nanotechnology being used to make mining safer ..
+- activity, activity,..
+- activity 
+Answer nano technology is small things ..mean :size nanometer ,10000000000.,1 billion,10 MN .1 micrometer ..
+Lesson activity:
+-
+Write daily activity need water..
+- parts examination: ..
+
+Lesson battery 
+Electrical resistance , component 
+System 
+- written an investigation question.:
+-;write a hyt for your investigation.
+- procedure for the investigation: 
+Make hypothesis...step  idea .. connected equipment.
+- analysis your data ,brightness
+Conclusion 
+____________________________
+Nanotechnology in electronics..
+- what is electronics industrial: 
+Conductor copper ,modern integrate circuit b , silicone semiconductor,modern television, microprocessor,price.
+- nano electrical : current and future application.
+Origine  computer semi conduct indt.
+- molt electronics.
+- organictligy emitting diode oleds ..touch screens ..
+- improving batteries ..
+- risks and safety issues..
+- key issues to consider.
+- future risk assessment in industrial electronic.  
+
+
+________
+Nanotechnology .in agriculture and food industrial..
+Nanotechnology.
+- application in agriculture: 
+Na agrochemicals.compagny, fugacity plant 
+- nano based sensor and precision in farm .carbon detective nanotube ,
+- nano biotechnology.risk
+- animal feed and animals production..
+- agriculture.
+- safety of nanotechnology .
+______&&
+Innovation in nanotechnology is helping to address south Africa health challenge..
+- diagnostics .
+- biomediy imagine ..
+- therapeutics ,target delivery system 
+- slow release drug therapy.
+- phothermal and hypothermak destruction of cancer..
+________________
+- nnanotech in industry.
+- nanotechnology: l
+- a role for industry: for the costs ignoring nanotechnology 
+- collaborating and industrial innovation . research laboratory..
+- benefits :
+Health safety ..
+Nano facilitate..
+Centre resolution..
+Material semi conduct..
+- characteristics coated particle fuel high temperature reactor...
+-_____________
+- nanotechnology in textiles .
+What is nanot.
+- wath the natural of the textiles industrial,clothuv textiles marketing ..
+_ how ,  national research foundation national facilitate .
+The application of nano material and  nono  textiles industrial fabric strong ..
+- nanofibre 
+
+- nano material to keep clothes cleaners while you wearing them ..
+- nano particle with antibacterial properties,,
+Nano - Ag, particle titanium dioxide tiO2,, zinc oxide..
+- ultraviolet light protection: DNA ,zno oxyde zinc ,, 
+Water repellents clothes ..
+
+- antistatic fabric  crackers .
+- safety wear , palladium ,pd catalytic substance..
+- making colorft fabry from all angles 
+
+> 
+	
+	
+	
+ 
+
+-12. engineering research b,examine problem product solution to problem,exam problem  use natural resources harness force natural use / provide material use machinery equipment optimise information maintain infrastructure organize
+___________&&
+- the allied health professionals council south Africa..
+- the ahcsa mandated term ..
+-; accountability minister health . advice matter Allier professional..
+-;the council mission statement : regulation ,giver activity, legislation,trading base ,maitah. Realistic goal ..
+- Ahpcsa.
+- composition of council: 16 member ..
+- professional boards : Ahpcsa ..
+- council structural: professional board : chine medical , chiropractor,osteopay,homeopathy,naturopathy phytherapy, therapeutics, aromatherapy.messagev
+__________
+
+Review merseta 
+- contents : 
+- seta news , talking notes,
+- view from the top .
+- succes stories : 
+First lady automotive machinist .
+- highly skill man building .
+- feature : workshop artisans ..
+Turning .
+- industrial news :
+Manufacture product registration ....
+
+Teach project energy conservation,
+____
+Question/ answer 
+- about merseta 
+- determine your level on national framework qualification.
+- which vocational occupational or professional are possible.
+- skills program.
+- registration of a skill programme by a training provide 
+- recognition 
+- the difference learner ship skill .
+- tvet ..
+* Subject manufacture and engineering sector ..
+- level 10| framework nqf
+- doctoral degre professional 
+- master degree professional 
+- bachelor honorable 
+- bachelor degree advance diploma 
+- diploma advanced certificate/ occupational level 6 
+- high certificate.
+Nation 
+- intermediate certificate grade 11
+- elementary certificate grade 10 - general certificate grade 9 
+- skill program part qualification.
+- purpose,,: 
+- skill; program company training.
+Learner: description,: learning process theoretically knowledge 
+- condition 
+- process: learn existing employee new determine qualification 
+- training remuneration: employee workplace registration.
+- assessor register company opportunity.
+- a learner is selected through the company ..
+- learning agreement is signed employee tripartite.
+- learning process discuss..
+
+- learner bot completed b
+- learn register b
+-| description| the apprenticeship system well technical including theoretically component trade achievement artisan status.
+-; condition| auto | metal | motor 
+Trade test experience.. diagram illustrates b: quality assurance assessment trade test , subject relationship schedule b..
+- program | nated subject n course | ncv | nqf 
+Minimum requirements|
+- duration to test trade test : n1,years work place learning ,ncv 
+
+- advantage and disvantage: upon completion institution approved practice workplace component national trade test must successful completed an artisan ,after completed n2 learner find with employee a trade qualification ,work praticaj learn program theory ..
+
+	
+	
+	
+ 
+
+--? 13.resource: chieta : chemical industrial education v. .
+Chemical industrial training authority.
+- wath are acarce skill: 
+Engineering chemical engineering, mechanical engineering, petroleum engineering, pharmaceutical Marin engineering sector special occupational tinters flavourist architecture glass special and glaziers and chemical ..
+- learner ship..
+- apprenticeship: professional do if glass and glazing material , cutting and riming security ,
+- ammunition fitter : explode explosion remonve shift earth rock other ..
+- qualification ammunition fitter : 
+National certificate : ammunition fitting .
+- national operation mobile explosive manufacture 
+- learner ship,,
+- instrument mechanician ..
+- bachelor of pharmacy science.
+- process engineering ...
+- what qualification do I need ..
+- agronomist: 
+- chemical production machine operator : manufacture blending , mixing,refining ,priming , granulated,gazing, recrystallization, crimping,packing ,load and transport of chemical explosive .
+
+_______________
+12.1Reference:career isett seta career opportunities guide 2011 learners and leavers , university of technology leavers university leavers
+- school : school leavers matric education entrance .
+- school matric ,bursarry , work environment course 
+- training institute b,ICT occupational 
+Occupational:nqf level 11 to 8 
+-computer network and system engineering 
+- development program 
+- ICT business analyst
+-ict customer support officer
+- software engineering 
+- electronics engineering 
+-computer system technician 
+- ICT support engineering 
+- ICT system test engineering 
+ICT security specialist 
+ICT project manager 
+ICT sale represent
+- system analysis 
+Databae admnis 
+- telecommunications 
+ICT quality assurance ..
+____
+Occupational | recommend it skill|| recommend it skill 
+ICT project manager | language cc java web development skill ado net .asp net window,mobik apply database || leader development project 
+- ICT sales representative || business | sales skill product knowledge product.
+ICT business analyst || business analyst it diploma || business analyst 
+- system analysis | system analysis..
+- development ,sao telephone ..
+
+Task skukk ,design development ,analyse , development internet site mixture creative soft programming, script language design digital animation graphics communication with network , regarding web issues security site control ..
+- analysis programer need production requirements document ,system plan ,encode ,test debugs , document application.
+Research consultant evaluation program identify technology limitations deficiency correct verrir testing , debugging ,,
+- software design modified document installation ...
+- database administrator : plan , develop , configure , maintaining support database management system ensure data integral security backup ..
+ICT security : established management administrator ICT security policy procedure  recover ..
+- computer networking system engineering ,plan  develop deplo test optisn ,state configure networking system operating systsb ...
+ICT quality engineering : plan ninf design. Configure , commissioning telecommunications device networking, system audio radio 2eays micro data satelit digital data  manufacture evaluation compliance drawing approval determine hardware software,prepare interpersonal transformers , circuit breakers transmission line equipment identify analyse problem clarity ,up date ,up graduate new system,.- ICT customer support office , education guideline depot maintenance computer infrastructure resolution of technical problem issues determine bhatd requirements respond installation download b,,
+- ICT  support engineer: development support creat procedure instructions manual,in support process diagnostics..
+System test engineering , write test plan test script test case regression testing uses automated test software application test functional integrate system document results of test 
+
+> 
+	
+	
+	
+ 
+
+-13.1 inseta career guide :
+Resource hed in the right direction.
+- introduction: ever considered career in the .
+- what jobs are available in the insurance: 
+- short term insurance.
+- life insurance.
+- pension funding.
+- risk management.
+- health care .
+-* learner ship and internship offer ..
+- inseta  work offers a combination of theoretically and practical experience that nqf register qualification it for scht leavers matric spend time learning and working in insurance environment guideline mentoring, qualification are national registered and address specific need in  employment workplace all theory in classroom and tuition cost are covert received monthly ..
+- learner ship are generally..
+
+- although there  level 4 long term insurance level 5,6:wealth management nqf level 4,5 .
+- bursaries and work experience programmes offered ..
+- inseta are granted in accordance. Need critical and scarece campagnir pay levies annually can for selected ..
+- work based experience programmes :
+Some qualification mainly tvet college have practical workplace experience before qualification are met  , work base experience ,WBE ideak for you  get all necessary exposure and exposure of the workplace to satisfy those certificate requirements ,this work programme ,include visited to company ,job shadowing various other activities to booster exposure 
+* - insurance broker 
+* Financial investment advisor 
+* Insurance agent : underwriter 
+* Actuary .
+* Loss adjustor
+* - high school subject : 
+Financial services : financial advisor and intermediary service act ,37 of 2002 fais act , requirements person that financial obtain license through fsb financial board license process part their learner ship and internship program 
+- insurance broker: 
+- requirements at institution : 
+- successful completed the level 1 regulatory examination re financial fsb relevant module level 3 ,passing exam proper compliance financial  entry career degree possible learner ship that result various nqf level 4 and 5 qualification employee 
+Career tvet private learning institute.
+- entry must meet , category E,stage covers training, duration 
+- all workers outstanding can enter : employee insurance sector meet course minimum entry , category , criteria to allowance student path | 3-6 month , employee no stipens all age 
+- all workers with outstanding qualification can employer , employee in the insurance sector and meet course minimum entry , category c , criteria to allowance ,12 month employee no stipens bursaries for all age
+- all graduate can enter ,nsc,nc matric plus 3 years diploma degree category criteria ,6-12 month unemployment inseta stipend 
+- all learners nsc/ nc matric English second category A ,criteria entrance , employee v..
+___________&___
+Career guide research 
+- job overview:
+What work will you do : an electrician work in commercial industrial install repair and maintaining electrical system heat light power control signal or fira alarm type building structural b mechanical and architecture and electrical code specifically to determine wiring layout.
+
+- cutting threading , bending, assembling and installing conduits and other types of electrical conductor enclosure and in walls and floor .
+- position maintaining and installing distribution and control equipment such switch relay circuit circuit breakers panel and fuse enclosure.
+- installing data cabling or fibre optic and system and 
+- testing circuit to ensure to integrity and safety..
+- recommend: must least 16 years ,good communication read skills , mechanical ability strength and Manuel dexterity.
+-;the ability to worh at height s.
+- the ability to lift between 11 and 25 kilograms.
+- the ability get  longer job .
+- ability to do very precise work expert and  ability work at a variety of excited task..
+-access or entry requirements.
+9 minimum grade .
+- subject.
+Compulsory subject ..
+- training routes : routes towards being qualified artisan apprenticeship program 2 ,4 years plus trade test ...
+-possible employee opportunity ; manufacture and engineering sector .
+- municipalities 
+- government de department 
+- energy supplier entities
+- industrial companies 
+_____________
+Career guide merseta .
+-what work will you do : a pipe fitter disambiguation repair maintaining fabricate essembles installs and quality assures pipes system in accord with design engineering codes and specifications taking into consideration health safety requirements.
+- a qualified learners will be .
+- maintain pipe system related components applying removal inspection installation technical in accordance with pre defined specific.
+- fabrication pipe system in accordance relevant specific .
+Participate in quality assurance and testing procedure of pipe system and related components in accordance .
+
+- recommended interest and skills attributes.
+/.must be least .
+Must be meticulous accurate must be practical,enjoy working with hands .
+- have mathematics aptitude be responsible and ,be able three dimensional.
+- compulsory b.
+Subject.
+- training .
+- avenues to be qualified artiu, apprenticeship..
+_____
+Construction industry ,large works ,mine,large plant and factories 
+_________
+
+Ref: nyda gov.za 
+
+Mentorship programm:
+
+- practical .
+Process established respective business the first phase of approximately six months facusr on development entrepreneurship skikk identify and evaluation a business opportunities business planning process as well a testing the viability of the business plan .the second phase assist metted with gathering resource to establish the business plan the second phase assist mentees with gathering resource to establish the business the process combine theory and practice to provide basic skills and enable mentees to apply that the learner from mentors respect.
+- the programme emphasis the each mentees play an active role in their development .nyda provide guide learner completed modules assignment..
+
+- who qualifies: to become a mentees .
+-rsa between 18 ,35 of age ,51% ownership in business.
+- must have start up existing business 
+- have micro or small entrepreneurship 
+- must be self motivation and prepared to lead their development process ....-
+- business least 3 years experience in relevance industrial.
+- must be experience manager and entrepreneurship.
+- retired professional.
+- be entrepreneurship development.
+- ________
+Cooperative: cooperative autonomous associate volunteer to achieve common economic social jointly ...
+- kinds of co - operative: housing  cooperative,workers co- operative, social co operative, agriculture co operative, financial  service .
+- consumers co operative 
+- marketing and supply co operative.
+- service co operative..
+* Co operative models:.
+- workers co- operative provides member with employee opportunity and income  member both workers and employee band should understand that..
+- user cooperative: are former entrepreneurship..
+- value co operative.self  and self reliance : members should always rely external help to get .
+- self responsible..members are responsible make their cooperative work.
+- social ..
+- equality : every member must haves and equal ..
+- characteristics of co operative: 
+Co operative are different from their entrepreneurship because.
+User benefited ,.
+User ownership
+Have duaj functional 
+- principle of colera..
+* Co operation registration requirements.
+In order .
+Requisition supporting documents..
+_____________
+* The gauteng youth commission in partneri with gauteng provincial.
+-;making gauteng ..
+-;youth policy advocacy...
+- decision making legislation 
+Through portfolio commi..
+- in youth development and economic opportunity .
+- on job creation  youth cooperative..
+- on education and skills training for youth :
+Education institution ,student learner ..
+- youth wellbeing : test program health
+- youth civic education and participations in democracy.
+- GYC step program electoral process voter registration .
+Life skikk : wide ranging education program .
+- on sports and recreation.
+Sport .
+- on reaching ..
+_____SEfsa training center based in metal industrial herland 
+
+
+	
+	
+	
+ 
+
+-14.WARSETA:
+Career guide:
+- planning your career :step planing career ask ,life orientation or vocational guideline counseling .
+..self assessment focus.
+- interested: path,value, personality, personality types need for retail career .
+- wholesa and retail career path identification  
+Rental ,planner ,buyer
+Order , cash officer clerk
+- credit ,visual merchandising 
+- sake account credit 
+- learner
+Wath  is a learner ship  learner ship struct work base learning program comprise  of 70% practical and 30 % theoretically trading  results national recognize qualification.againsv..
+- apprenticeship is technical system that practical and theoretically trading apprenticeship are different learner ship that job orientation and related to soeciutrade ,good marks selected ..
+An employer offering apprenticeship training training must work learner in designated trade term manpower act get n2 certificate relevant tvet college employment b pass trade..
+- level high education qualification subframe work and Qcto  qualification occupational qualification framework 
+-doctoral degree doctoral level 10
+-master degre master degree professional level 9
+- bachelor honourable postgraduate.level 8and occupational certificate.
+-bachelord  degree advanced 7 , occupational certificate 
+-;high certificate 6  occupational certificate.
+- high certificate 5 level , occupational 
+- general and further education training qualification subframe emalusie
+- national certificate 4./ Occupational certificate 
+- intermediate certificate 3,/occupational 
+-elementary cery2/ 
+- general certificate..
+Retail qualification in higher education..
+__'___________
+
+> 
+	M
+	
+	
+ 
+
+15.Reference: saice , 
+
+construction project management encompasses all branches of civil ..
+-Wath is civil engineering : civil engineering is professional engineering discipline that deal design.
+- who are civil engineering practiners :
+ Relative thinkers and problem.
+- interested in improving quality of life .
+What do civil engineering practiners do :
+Plan design and build infrastructure,examine environment ,carry necessarily ,communicate client supervise prepared plan execution the construction.monitor ...
+- which degree diplomat and what do I need .
+- grade 12 ,4years,post Grady's ,, technical pratique.
+Technical and technology..
+
+	
+	
+ 
+
+- 21. course name | course date | location| cpd accreditation number ||| course presenter |||| contact.
+- principle and practice of facilitate management for engineering.
+-legal liability mine health and safety act ,MHSA act 29 of 1996.
+-road to registration for candidate|
+- road to registration for mature candidate.
+- road registration for mentors supervisor and hr practitioners.
+- basic contract administrator quality control .
+- getting acquaintance with GCC..
+- getting acquaintance with geo synthesis road .
+- getting with sewer design .
+- getting acquaintance with water resources manager .
+- pressure pipeline and pump station design specifications and practice .
+- adjudication and arbitration how to deak with challenge to jurisdiction.
+- project  management of construction projects
+- structural steel design to sans 1016-1-2005
+- reinforces concret design to sans 10100 - 1-20000
+- practical geometric design.
+-leadership and management in engineering.
+- water low of south Africa 
+..- legal process dealing with construction dispute.
+- earthmoving equipment technology and magement for civil .
+- concret for contractor consultant.
+-durebility repairs of concrete..
+- legal liability occupational and  safety act ohsa.
+- construction regulation from legal perspective on.
+
+_________________________
+Evaluation 
+
+-- award categories: 
+Technical excellent category ( 19 projects)
+- community - based category 9 project 
+- international category 6 project 
+- institution awards division awards , individual awards ,and photo competition..
+- project adjudicators: team .
+Project submission for ajucator
+- technical excellent category: 
+- the project shows notable advancement in the application news existing method of design construction project .
+- the project portays the ar and science civil engineering.
+- the project is functionally efficiency 
+- the project was well managed and completed on time .
+- the project environment and community..
+* Summary:: design flats bulk  .m/ s cube project  piling tunelling 5 km route ..
+* Project desct: city town existing , completed ..
+* Route engineering and public liason..
+- barometric loop and vortex drop structural 
+- micro tunnelling 
+- in conclusion 
+
+* Pedestrian bridge : 
+Summary : cable highway ..
+- project ..
+Conct.
+*Construction reservoire water treatment works ..
+12 ml .munuct pumped..
+* Human settlement project ..power house
+* Community water supply project ,,1500 inhabitants ..
+* Upgrading of road ..
+- instruction:
+_______
+*From the president ..qua vadis civil engineer.
+- opinion.
+- railway and harbour engineering..
+- job creation and skills development .
+- collusion and corruption: 
+- fallacy ..
+- ecosystem recovery 
+* Railway infrastructure  academy 
+- module 1 feasibility and systematic design : 
+Session 1 feasibility and geometry design 
+Session 2 track design .
+Session 3 overhead electrification design .
+Session signal design .
+- module 1.
+- infrastructure maintenance management.
+- combination track and ohte session .
+Infra  maintenance  strategy and management.
+- risk management.
+* Track maintaining breakwat session .
+- session 3 track material and maintaining 
+- session track constellation and renewal ..
+- ohte 
+- substation maintaining 
+Static load test .
+- bluff reclamation.. drawing n1.
+- section of quay wall - 30 ft ..
+* Introduction : 
+
+* Marine loading arm versus : 
+. efficiency load loading arm ..
+Design life 
+Safety v.
+
+- pipeline arrangements.
+- installation .
+- flexible 
+- criteria for berth .
+- type and size load arm .
+- comparison of model results with measured data ..
+Modelled changed in bed level bid bay trend are indicai ......
+Movement horizons countourn .. function data 
+- correlation with forcing mechanisms: erosion accretion revealed  astronfj offshore .
+- conclusion v..
+Acknowledge ..
+- acknowledge 
+- points  .. distance.ht atk 
+- land surveyors ..
+- point | distance top | hr lat ..
+* Land surveyor ..
+Coastal engineering 4
+- civil engineering .
+Mechanical engineering 
+- coastal ..
+- results summary.
+Site | range | altitude lat | standay device
+..
+* Age distribution of all analysis responders.....
+
+
+Results of and observat: 0 to 15 years experience and closer to come  categories engineering practice , responsible technical . theoretically technology b..
+- gross annual salary R.R20000 00/ 12 month ..funct number of years experience 0-5,6-10,15
+
+..not regt , register a candiy, professional candidate..status . ..
+_____________&&&
+- news from the saice diversity and inclusive panel : tackle .
+- on the cover .
+- construction and project management:
+- in brief .
+Distribution board ...
+- non stop process
+* Construction stage 1,deck concret pour high road infrastructure.
+- project description: 
+- a grade separed interchange . elimination .in order ..
+- bridge ..
+Walks 
+- piling ..
+Pile caor 
+- temporarily deviation.
+Change order process..
+Contract name :
+- client 
+- consultant 
+- contractor 
+- special subcontracy..
+24.Overview 
+_________
+* Background : 
+- client requirements 
+Pavement 
+50 mm ac surfacing.
+200 mm G1 base
+409 mm C3 subase
+150 mm G7 selected subgrade ....
+- historical review : reinforcement of road studies  ,cost , quantity , transport ....
+- layout of trial section:
+1.lateral restraint
+2 increased bearing capacity due to creasing length shear surface.
+3 tensioned membrane effect
+- verify the effective of geogrid a field test is still regarding essential historical blood testing falling weight deflectinetry .
+- fwd we used verify ..
+- present research : geo synthesis where used weak ..
+- project description : date ..size 20 m section construction m .m control section..
+- results from dco test: modules..
+X8,y5  secan moduli stages ..
+Moduluis mpa .0 to 80 .. pressure kpa  25 to 525 ..no geogrid stage @ ,no geogrid stage 2..
+- depth .mm BGL ..DCP testing   
+- the pLT test plate in relation layer ,kn/ m exerted 450 mm diameter steel plate ,29 stage ..
+- displacement mm to applied pressure kpa .x2,Y5 ....
+- drone usage construction ..
+Introduction predetermined operation remote advance ..
+- drones : gors control ..
+- aerial photography .
+- inspection: building conductive.
+- surveying: survey data gors .
+-* safety on site : officer to communicate emplt.
+- security monitors: security construction .
+- project progress report .
+- advantages of drones in construction.
+- refidity missing component in base plate design : 
+- base plate design procedure : 
+- fastener design regulation:
+- duration of case  project in day :
+- original estimate duration 
+Actually duration 
+- simulated results 
+Minimum duration 
+- mean duration 
+- stabdar .
+- coefft of deviation 
+- finaj duration restjt 
+Simulator results 
+* Proposed construction program..
+_____
+* Parametric optimisation of railway track structure:
+- background: rail track been cost effective environment means .
+- objective: one find ways maintaining acceptable .methode caliber modejb
+- couple type locomotive conf..
+- planes of symmetry plane ..
+Indicating planes of symmetry..
+- project desct: the test capture data defllectimeter..formation
+- maintenance phylt and process :
+Step preventive maintenance, maintenance strategy,predictive , condition monitors 
+Structural condt,mainline turnouts annual,years ,, geometry measure , ultrasonic, inspection safety ,foot patroking ,trolley inspection ,fooplate,maintelune ,,
+- condition assessment inspection process
+- primary intentions: structural assessment, geometry measure,safety inspection,foot patrolling,trolley inspection,footplate..
+- primary intentions: obtain comprehensive set determi , obtain geometry,determine whether set is safe,record and report defect and fix minor,assess ridgin quality over set and record defect ,assess riding quality over set and record visibility defect.
+- methode measure record  parametric and visit assessment, geometry measure machine , visual Data measure and conditions rating ,turnout track quality,whether in safe , condition,of certain component, visibility defect 
+- frequencies , annual for mainline set two yearly ,six ,
+- evaluation criteria : very poor , poor but acceptable,good,very good ..
+Extract from model calculation the condition:
+- set number | odti
+- location section| 
+- inspector date 
+- set type | turnout left hand | 1:12|| reference clause tm 2099|| standard v|• stand ||| max / min ||| field measure condition 
+* Ballast | ballast depth blade area ||mm
+* Sleepers ||sleep blade area
+* Fasterbing 
+* Formation 
+* Clearance
+* Component 
+* Gauge..
+- condition index determination: 
+General condition:
+C1=Wc(C*/(1+fg)+0,6R)
+Wc= criticality weighting 
+C= %of component with 0 rating
+R=%of component with 1 rating
+F= factor for % with 1 rating..
+______
+Ballast = 5Wc
+Sleepers=15
+Fastening= 10
+Formation=60
+Gauteng 5=
+* Element 
+Multiplier factor % repair 
+% 1
+Safety condition : deraillemrnt investigation conductive region ,excessive side crow wear on stick rail , excessive stock guard gao research from other parts also major contributor .. safety condition..
+Cis(S)=C induce 1,expos 1,15+0,1C1S.
+Where 
+C1= condition index ..
+S= Ds+Dg+dg
+Ds = number deflect on switch ,DC number defect for deflective gauge
+Dg = number of defective 
+
+
+- 
+
+> 
+	
+	
+	
+B 
+ 
+
+
+
+> 
+	
+	
+	
+ 
+
+- what is ambient ,air : portion of atmosphere outdoor,air nitrogen 78%<, oxygen 21%<carbon dioxide 0,03% ..
+- why do have to monitor ambient air : legal requirements term magement act 39 of 2004 ...AQM ..
+- how does air population affect : industrial mining v.
+- how do we monitors air pollution. Communication...-
+- measure station measure instru ..
+- what is measured : 03 ozone PM10 particular matter ,than 10 micro ,S0 2 , sulfur dioxide..
+-
+- other pollutants of concern that are measure,,
+- wath are ambient air quality ; wath does. ..
+- what value does the data possess :
+The monitor data monthly quarter annual report..SAAQIS....
+Biodiversity conservative environment 
+_____&__
+- deployment of drought tolerance and insect protected maize to smallhold farmers ..
+- introduction : make farming risk  crop production maize food ...impact negative animal.. season summer ..
+* Aim objective : project private..
+* Methodology: site region hybride mise planted ..good plot analysis gri
+
+* Results: 
+Maize variety was best performance ..
+* Conclusion and extension implications.
+Gain quality good farmers picked gain knowledge on good agriculture ....
+______
+Farmers register campaign : collected coca census of commercial agriculture.daff ..
+- what is the producer farmer register campaign fpfr : is statistics..
+- key appointme council gauteng economic development agriculture rurak development ..
+- key responsible :
+-- rurak chef cooking skill ..catering business fod.
+* 
+
+	
+	
+	
+ 
+
+-23.reference research resource bibliotech ..
+Public open bar ,and shopping. Center magazine research.. reward award comment club .
+* Submission education casebook,case file ,file magazine file chain supply close requirements 
+* Issue title isbn authority text book learning judgement learning attorney bargaining.
+* Reading access memory judge ,only processor record transcript land claim development review court book appeal correct overview small clam master high court clearance sars business close submitted report psira sasseta ..
+
+
+|25.1
+__| Issue title ||| topical resource counter ||| prices ||| order project case ....
+Trade test .. bulletin trade magazine collection 
+
+
+Question/ answering explanation 
+- south Africa number 1 learnerning cover the test officit test sylt k53 || PG 6 license test quality PG 7 ,PG 41regulator ||| R59.00|||| 59.00
+- driver made easy for figth monitor |• ph 33 road test stopping parking inspection examination drawing test cover point check PG 112 ,  order R65.00
+- learner and driver license test k 53 for car bike truck : pgg 33 control of round test stopping ,order R340..
+- Honda civic no 110pg hayen service and repaired include round side made round side and test checkers : weekly check PG road sir maintaining process convers : order 340.
+-knowledge master how thing working ,,vet 14.15 vehicle safety and security pedal PG 22 iron and PG ,18 road ,R 49,95 
+- smart kids science : PG 22 iron PG 18 ,R 149..
+- process instrument technology : PG plastic | R 252,R 149
+-chemistry Cambridge PG 204 ,PG steel work ,1198 examination R 242
+- chemie PG 2g 204 ,,PG 188 chimie gaz ,R 137,5 
+- Cambridge master skill of 2pg 19 ,, PG electronic PG 100 diesel ,R 137,5 
+- invention over time inside ,PG 42 ,,R 92,
+- car road test 2011apriln drawing structural ,R 27,9
+Car ,2011to 2012 ...: science motoring. Mechanical , road test specifications,PG 188 electron tech document, technical stops ,stop star alternator batteries,,driving impression fast fact ..case book drawing Armstrong 
+Layout engineering 
+PG flying ,, PG 180 tech ,,PG dive inject 
+- July 4×4 advent  document 
+March t December PG  document society ,steo manufacture,drawing power fuel technical specifications ,pump turbine brochure civil circuit ..
+- body shaft drawing  development ..
+Max my tube ,
+Car in action ,armed assault methyle  document ..
+- December 2919 magnum  remaneb game fire cleav,knife testing fire results, fire control artiste  order. R 31 , manufacture technologies machine,
+Autumn 2011 ,,
+- engine engine PG document given document ,R30.
+- august : document wallets 
+Flyer ..
+- top car : option test suggestions examination R28,85 
+- case book document 
+- April R28..
+- x kit the definitely preparation grade  11 , PG 146 trade R 189,00>
+X kit grade 12 definition preparation ,PG 236 extrusion ,R 88
+- x kit grade chemistry PG bolter ,order R 201,,.
+- mechanical popular ,PG sky limite ,R29,95 drawing engineering internal combustion refin design ,still building wallet case book 
+- green 2011 . monitors road safer 
+- 2012 trade commercial auto R 25.00
+Certification  other  June page machining PG 336,  
+December , popular balance ..,R18
+-;computing electronic document R 14 ..
+- connection incredible : up grade PG grade PC introduction technology information business communication PG ,R 1000
+- PC format , internet  document architecture ,R 36,00
+- prospectus : information communication programmed high techno information language,PC R 100×4 ,,R 100×400
+- electron : document technology ..
+Epe every day avril 20, document ,R105×9= R3667,409
+- book Epping admn accreditation , PG act regulator ,R100
+- 2010 security book ,nogada psira sasseta learning ,ob pocket instruction ,act explain become security provide ,office patrol access ,reaction supervisor, management ,duty  order R100,
+- security training book education , company guard contract 
+- security book employee car guard 
+- security book customer trolley ,, book report induvuypsira , security training car guard.
+
+- industrial.
+Security training car guard industrial , certificate order 100.rand 
+- security fire arm pain bakk ,note syllabus .
+- security partnership card guard . security book correction, psira register ..
+- trade test n1,n2n6 ..
+Power machine ,
+- hydraulic , diesel thermodynamics ,book test license ,business 
+Fluids mechanical engineering ,motor diesel ,
+- power machine ..
+* Submission appeal close guard motor : 
+Assignment motor guard | subject division engineering technical technology 
+
+- cover provide by police ..
+Issue month | power factor | found formulat | methode 
+- gear box Manuel automatic internal component internal include torque convert gears shaft bearing synchrt valve , service ,body nanuej clutch ..
+- differential all internal component crown wheel pinion  career bearing planeu gears exc side shaft wheel bearing s
+- 4×4 front differential unite gube 
+- turbo blower motor  
+Compressor supercharge only fitted as manufacture .
+- breaju system master cylinder wheel clipper abs .
+- sues service inte euber ..
+- steering power steering all internal part steering box back dusj cover .
+- fuej system fuek pump air flow meter fuek accumulator fuek accumulator fuek distribution warm up regulation excluding fuek injection clown plug trimp bodies carburator assembly and failure attributes total to fuej .
+- cooking system radiator water pump thermo switch 
+- case book 
+- warrenty solution 
+- guard vehicle 
+- cause liability 
+- amount 
+- electrical component starter motor windsct seat motor electrical conversation.
+- electronics ignot all solide. Controller trigger unite .lead soarks
+,plug. 
+- managit unit engineering gears box manat gear box unit engine central unified 
+- camshuft sensor lambda sensor excluded v purchase 
+- driver shaft all component cv joint  excluding rubber dust cover
+- suspension wish vone aligt direction.
+& Cambelt and duller bearing break soring teeh exckt replacement I. number amendment, schedule maintaining..
+- clutch release bearit master cylinder and solve cylinder friction surface clutch  plate and pressure exhausted cataclysmic convert 
+& Casing engineering block gears casing different housing 
+- telephone system telecon. Phone speaker microphone charge and gradient recover power convector ttabsdt.
+- internet access system safe unlir dusting wireless receiver satellite recover power transducer guard 
+- limits of liability converted company motor  guard master classic silver gold titanium iron , plastering thermostat years guard towing car hire nots accomodations parking attendant car cover 
+- medical assistant incident,
+- the insurance cover provided,cover by this policing armed ,,
+- vehicle eligible 
+-setllement 
+
+
+	
+	
+	
+ 
+
+- teat average 
+Assessment sasseta.
+accreditation 
+Credit:
+-fisrt name :
+- last name I'd
+Full security level 
+Explain ,
+Scope 
+purpose 
+
+
+
+- specialist security practices explain the requirements for becoming a security services 
+
+
+- in a security environment..
+- use security equipment.
+- responsible .
+- given evidence to court ..
+-Use security equipment .
+- skill programm 2 : sasseta access control officer :.
+Evacuation and emergency drills .
+- apply basic business ethics in work contech .
+- operate a computer workstation in business environment.
+- officer psira grade c ..
+-Coach a team member in order  self and team in order to develop a plan to enhance team member in order apply ---_occupational health vsafety  environment principal audience 
+- and in defined operation area 
+- performance one instruction...-
+- *security first line supervisor psira grade B :.* 
+- supervisor assessment in a definite operation area .
+- demonstrate basic .
+- interpretation and use information from text .
+- performance one instruction.
+- skill program ..
+- sasseta security prevention description the relationship of a junior management discipline action ,interpret and management conflict with producti0n ..
+- other units standards on offer ..
+- apply demonstrate and understanding of the use of different member base and ne ..
+- describe apply analysis and calculate shape language and investigation monitor the financial aspect of personal business .and ecological right in the field of crime and victimization ..
+- use language and 
+- statistics and probability to critical interrogation and effective
+ -communication and evaluate spone..readiness sign text ..
+- write present sign for wide range if cintesc .
+- meeting ..
+- write ..- describe and apply the manager function of an management function..
+- description and apply the management function of a management function .
+- formulate and implemented an action strategic to deal with risk behavior to promote psychological health build a team ..
+- move tactically on foot in team .
+- conductive and organisational ethic at..
+- attend to and management a collision  management .
+- attend to manager a collise .
+- nanage risk in business .
+- transport a prisoner.
+
+> 
+	
+	
+	
+ 
+
+-25.1 reference: pleading index ..
+- retriview file appeal records file move achievement.
+- power attorney appointment petitioner notice motion judge president honourable submission analyze case  login file refund amount order no debater creditor .
+
+Explanation experience court labour 
+Doj ,ccma high court , security private sector policy private .,low relate test award ruling 
+
+- number | description document|| PG 
+- development sector bargaining council procurement  skill pg1-150
+- notice of motion petition petition affidavit|| PG 1-150pg
+- bid close argument record retriview file supply head argument.
+- notice of motion bid || 1-25pg
+- apply for leave to appeal ruling regulation head argument|| 1-15 PG 
+- judgement leave to appeal||1-24pg
+- transcriber leave to appeal be for the honourable madam justice secretary ||1-7pg ..
+- set down.  || PG 
+- rescission ruling. || PG 1-3,,1-2pg
+-list  other employees || 1-2 .
+- enforcement record || PG 1-2
+- order checklist  || PG 1-2
+- affidavit in support services by registration||
+- affidavit in support services by register ..
+- index of leading||1-4 PG 
+- notice of motion proof of service | 1-10pg
+- application certificate case book || 1-10pg 
+- application conduct cancellation | 1-13 PG 
+- form submission analyze | 1-14 PG 
+- application conduct form employee||1-14
+- application social development |•1-14
+- application competence coid uif | PG 1-9
+- casebook learner work book section case book learning..
+- casebook work labour head submission file record .| 1-19 PG 
+- ID diplomat attestation life birthday certificate translation copy Dr congo ..
+- bookepin email..
+- discount valuable 
+. estimate cost proju record 
+- order book .
+- order desct title isbn authority file .
+Order review 19 rand land notice motion no order copy month summary banking ..
+- bid submission 
+
+> 
+	
+	
+	
+ 
+
+- agreement judgement leave to appeal order petition reason bid submission memorandum skill .
+-data of first issues: 
+- document type : learning programme agreement 
+- revised b
+- document number ,ETQA ..
+- settlement agreement and draft order 
+- motion proceedings excluding urgent matters .
+- case management.
+- application to review awards and rulings.
+- application to review award and rulings.
+- application for winding up trade union or employer organisation.
+- index pagination binding and general preparation.
+- heads of argument 
+- postponement 
+- practice note in motion proceedings 
+- urgent matter
+..
+- genet provision 
+* Statement of case ..
+* Description ..
+* Admnis ..
+Acceptance of Questions..
+*-______________________
+- submission.
+
+Fp m seta ..fibre process manufat sector education and training authority..
+- learning programme agreement 
+Learner details 
+- name :
+- surname:
+-ID number 
+- Learning program title
+- learning program I'd number 
+- learner status , employee 
+Fund by seta 
+* Employee details.
+- registered name of employment:
+- contact person 
+Telephone 
+- emat
+* Training provide details.
+- registered name of provide 
+
+* Learner programm ..
+Name of learner programm :
+
+- department of labour registration number of learning program 
+- commencement date of learning program agreement 
+- termination date of learning program 
+- occupational that this learning program is relate , organization framework occupational ofo 
+- name of qualification .
+- saqa qualification I'd .
+* Submission criteria 
+Certify copy of learu I'd docuy attached|yes||
+- copie of three original appreciate agreement for apprenticeship frome the application 
+- copy medii certificate apprenticeship agreement .
+- agreement signed all parie 
+- employee correct ,address ..
+
+*Term and conditions of agreement:.
+- legal .
+- right of the learner : 
+- receive induction the learner programm.
+- access to requirements resot achievement of the specified outcome structural learn as well practical experience activity of orohi.
+- received a written statement results 21datd  final assessment 45 working days learning final assessment.
+- in the case learner .receiver learning program allowance ..
+- seta ETQA ..
+* Duties of the learner...
+- carry out all occupational related work related work employee requirements practical experience activity specific in the learning.. available .. practical workplace ext activity learning program.
+- attended all theoretical learning session and practical learning activities with the training provider
+- completed time sheet and project and participated in any assessment activity that are required for the final assessment at end of learning .
+- undertaker all learning relating to learning .
+* Right the employee : requirements the learner to :
+- performance duties in term of this agreement 
+- comply with and regular concerned workplace police ..
+* Duties of employment : 
+Comply with all duties in terms of the sill development act and applicable legislation including .
+- basic condition of employment act 75 of 1997.
+Labour relation act 66 of 1995, employee equity act 55 of 1998 
+Osha act 85 mine and safety ,
+- compensation occupational injury and
+Unemployment  insurance act ..
+* Provide facilitate and resource for specified practical experience experience activity of the learning program.
+- provide the learner with appropriate education and training to competently performance .
+- conduct in job assessment b for specified workplace experience activity cause to be conduct 
+- pay the learner the agree learner allowance for the duration ..
+- apply the same discipline grievance and dispute resolution process to employee 
+- submission record as requirements by ETQA body .
+* Duties of the training provider : 
+- right of training provider: 
+The right access the learner portfolio of evidence and workplace learning related assessment.
+- duties of training provider: 
+- provide the structural learning specified in the learning program 
+- provide the learner support requirements.
+- record monitor and retain details if the education training provider ..
+- ensure off the job assessment for structural learning component specific in the learning program or cause in to be conducted
+- ensure that assessment again the outcome of the qualification associate with learner program is conducteyat end the program.
+- issue written statement of results in respect learners final assessment for qualification associate with learner programm whirin 21 works days of assessment to the learner seta and eqta accreditation ...
+- suspension of this agreement : the employee and learner have agreed in writing to suspend the agreement ,learner has requested on good to suspend the agreement and the other parties to the learu programme agreement have had opportunity to make presenting.
+- learner employee setting reason  
+* Termination of this agreement : termination date stipulated in part B this agreement.
+
+Learner has successfully comply the final assessment and fulfilled all requirements workplace experience of learning program .
+- learner is fairly dismissed by the employee for reason related conduct or capacity as emplt .
+- seta approves  the termination of the agreement in term  program regulation ..
+* Dispute : ccma .
+- the interpretation or application of any provision of this agreement the learners contract of employment or sectoral determination made term 18 (3) the act ..
+- termination of this agreement in case .
+
+____
+Database of fo m seta learnerships
+Current ETQA | learnerships I'd || credit || nqf |||| linked qualification ||| linked to ..
+.
+
+______''_&&&
+* Merseta granted c ma strategic goal s 
+Monitoring and evaluation: 
+Ccma has established a system that it monitor impact it's offers  goak fairs democracy 
+- strategic objective || sub objective score 
+- entrench the role of the ccma in the labour market |. |. 
+- building skill to achieve professional 
+- delivery excellent service rooted in social  justice enst balance  quality 
+- enhanced and entrench internal process and system for optimal deployment of resource .
+- enhanced the structural that will enat optimt imply of strai .
+- entrench organt supply .
+-grand total ..
+.__________&
+- operational focus || target / objective |
+- pre councillition heard | hear 10% more jurist refered .
+- pre councillition | settle %  more jurisdiction 
+- con / arbs heard / jurisdiction referral process
+- councillition heard ,close more all conciliation including 
+- settlement rate | settle more arbitration 
+- late award | statutory requirements to issue award 14 
+- postonent adjournment : all process
+- average turn : concillt place 
+- average turn around arbitration | 
+______
+Job savit .
+Mediation section outcome 
+Employee like affected | total retrench | force. Retrenchment | voluntt || job 
+- training lay scheme .
+Number job case exercise done seta training commenced not yet completed lay ..
+Number project  
+National skill fund process 
+- totaj application involved number company trade union work 
+- statement of financial position :
+Capital and resert 
+- non current list
+- current liabilities 
+- equity and liabt .
+Fixtuy equipment intagiby 
+- cash and cash equivalents 
+- current assess 
+* Public sector award ,award silver in category best reputat in legal sector .
+* Nomination as of the top tree organx legal sector years in citizev
+
+
+
+...
+
+[Message clipped]  View entire message
+
+
+	
+	
+ 
+
+-26.reference:
+- department labour.
+- purpose: of this form 20 requirements designated employee to  imply an employer equipment which plan achievement b.
+- the objective to be achieved for each years of the plan .
+- the affirmative action measure to implement as requirements 
+- under representative people design group identify analysis numericaj goals to achieve 
+- duration of the plan , longer 
+- procedure monitors and evaluation the impletation of planning 
+- internal in workplace , include senior , responsible for monii .
+- employee details trade name :
+Dti registration name :
+- paye sars 
+Ref
+- industrial sector : education training development 
+Produce 
+Postal address 
+Name surname .
+- barrier affirmative action measure : analysis was conduct in consulting 
+- top management,ee manager,all member 
+We feedback,and input during ee meeting forum 
+- policy recruiting procedure || procedure || practice || start date 
+- adversity position 
+- selected criteria
+- appointment 
+- job classification and grading|| staff placed in incorrect job levels ||| implemented policy and practice job  rectify job level 
+- remuneration and benefit|| no guideline on work of equal  value equal pay  and institution culture re discourage salaries counter policy community 
+- term condition 
+
+* E aE awareness : present employment equity training awareness session to 1000 employee requirements of 7,2 of code good practice prepare plan ensure meanifug consultant ,anti discrimination awareness .
+- recruiting and appointment : under represent designated group  goal target.
+-: evaluation : forum meeting minute attendance registration .
+- review composition .
+- affirmative action measure : implemented if affirmativ identification audit process.
+- record keeping : format keep system utilise retain prescribe document 5 years said will be reviewed updated quarter .
+- all employees will have access their completed 
+*Performance and evaluation ||,some employee di find help motivation applied review performance system 
+- succession experience planing |• deficient skill development new employee and deficient monitors to staff turb ,monitor and review staff
+- discipline measure : 
+snapshot of the current work force profile  disability .
+Make ,femsj foreign national total.
+- top management senior 
+Qualified expert.
+-management skill
+-work environment facility | discipline arbitration  students disabled facility people and access
+- training and development | lack of employment participate initiative diversity anti discrimination award a month all employees.
+- qualification workers 
+- junior management ,skikk ,semi skill discretion ,
+Unskikk and decision making 
+Temporarily employee 
+
+
+	
+	
+ 
+
+-27. reference:
+Unity work designation issue commissioning assessment supply judgement training skill development.
+- Event title : course protection of personal information act .
+- full description : the protection personal act n4 of 2013 popi will directly affected your business although the act not yet in operation the legislation has hinted act will full swing in the near popu in self is very technical and comprise chapter ..
+- module introduction inspector.
+- need data protection law in south Africa prevailing international .
+- general condition: general condition for lawful processing of personal information .
+- specific condition .
+- specific human resources condition for low processing of information.
+
+- practice training.
+Practice 
+Solving scenario .
+- Question and answer session.
+Full description : disciplinary hearing are common occurrence the the workplace and part parcek of the manager and shop daily employee fair practice registration .
+- role of your disciplinary code procedure.
+- code conduct .
+
+- Reporting misconduct.
+-collecting evidence source of evidence 
+- consulting witness and intimidating witness .
+- unwilling hosting .
+Different types evidence how affidavit documentary evidence .
+-:
+Event title : workplace disciple ..
+- counseling of employees 
+- incapacity poor performance.
+- grievances and grievance procedure.
+
+*Title| description || type. ||| Action
+Anti corruption fraude policy : a policy assisting and employee to deal with prevent corruption fraude in the workplace.
+- code of ethics business conduct : a code of conduct regulating ethics and good business conduct and standards requirements of employment when conduct ..
+- discipline : 
+- code procedure with appeal process : procedure setting out the principal discipline  setting
+- discipline code procedure : procedure for employees information 
+- discipline code with  disciplinary procedure for employees 
+- discipline and procedure .purpose this policy company the employee 
+- incapacity due to ill health injury policy : to ensure that employee medical performance.aim ..
+Purpose of this policy to create company and employee to ensure fair and equitable treatment of the employee 
+- incapacity health 
+- master document ,a ..
+Manager : management of files .
+- police master document management : template for human resources involved document an information sheet .
+- policy religious holiday activity b..
+Policy the managing of poor performance .the main of policy is assist human resources employee prevent of and the effective management ensure poot not deak with misconduct but incapacity  management insure them .main this ..
+
+- recruitment policy  . purpose provide fair guideline implemented sheet best recruitment practical in a compi ,give guideline pratique compagne b
+- standards conduct..
+...
+
+
+
+	
+	
+B 
+ 
+
+- 27.reference ..
+Nsf 
+- summary of program requirements:
+- introduction:
+- programm description: 
+- award information :
+-eligilibilty information.:
+* Proposal preparation and submission instructions .:
+- proposal preparation instructor:
+- dues dates
+* NFS proposal processing and review procedures :
+- merit review principle and criteria 
+- review selection and process
+- award administration information 
+-* notification of award 
+* Award condition 
+* Reporting requirements.
+* Agency contact .
+____________
+Answer'
+..
+Innovation technology engineering mathematics education , economic ecosystem career k12 entrepreneurship.first class ,,ICT workforce..
+- initial h1b visa progu research development..
+- designing innovation that meet test program goak .formal informal ..
+- in ovativd use to 
+- use engineering technology use meaningful learning ..
+-innovative learning experience: interested career science education engineering technology ICT career innovation v.key features scholarship b..workline ..
+Pre k-12 grade range teachers ,instructor , mentor coaches administrator...
+* Work force devt job future , ICT workforce the future .ICT topics ..
+* Description how innovation advanced knowledge ..
+* Strategic for broadening ..
+
+- Measuring outcome through high quality research : research component that measure outcome innovation relative increase .. engineering science and ICT
+* High - quality reset design: to achieve term long proposal ..
+Advanced school literature ..
+* Project evaluation : 
+Proposal are expected to describe the mechanism will successful project development knowledge...steps that aspect ..
+- formative evaluation activities are designed to document the carrier .
+- essential clear description requirements component: 
+- articulation of evaluation question .
+Relevant to the project scope of work : 
+Wath does the project need to learning.
+- delineation stipulation .
+Project propose address  overstu.
+- description of how the project plan use evidence feedbsc.
+- dissemination of finding : creative community baudiancd ..
+Chanek.
+- project types : compiling object ,sound literature question research design ,appropriate data collection evidence , education professional development association b grade appropriate ..rand d synthesis conference v..
+* Exploring theory and design principles.
+- project draw litert..
+- up to three years up to 4000000..research description early explanation..
+- development and testy innovayv
+- scaling expanding ,,.- conference project ,build capacity ,, 100000
+- conference proposal submission 
+- antici type of award : 
+Estimated number of award ..test 22 and 30 award level..
+- 6 to 8 award exploring theory and design innovation ,40000.
+8,to 10 
+ award ..
+- eligibility :
+Proposal preparation submission full 
+- additional solicitat review criteria ..track advanced studies v..
+International graduate , novej 
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 7, 2025, 7:23 PM
+
+	
+	
+ 
+
+Price
+...
+
+
+
+
+	
+	
+29.1 
+
+- techi support : resource center is expected provide technical.support to facilitate projects success in devet and articulating innovation that strength knowledge of interest ..all stages of project life soan technical.limited ..for education facilitate emergency ..
+- disseminate : resource center is expected to synthesis and disseminate  of stakeholders work includes  portfolio internal ..
+- broadening oartication in the  pi community broaden ..
+- relevant : expanding under presented ..
+* Project summary : over it statement.
+1: statement on intelligence merite of proposed ,
+- statement on the borders impactcontent emphasis design implemented evaluation participate grade level studen project ..
+- project description : section vfullt 
+- project over : rationej proposal must address potential impact . Pathways student career proposed innovation different student teacher v.
+- results :
+- expertise management. Successful..
+* Reference..
+* Biography sketch 
+- special : information sypplenter .permit data plav post doctors research mentoring ..
+-budgerary information :
+- other budgetary limitations.
+Major research equipment purchase are not supported limits purchase of equipment software probes specialized ..
+- full proposal deadline ..
+Aubmi ..
+- fast lane ...for proposals submitted via grants .gov ..
+- nsf proposal processi and review procedure :.
+- acknowledge for review science engineering or educator  office , review penalised ,,selected suggest name  invited selected officer discretion submission b
+
+- award administrator information : 
+Notification of the award : grant office agreement progt administering verbatim copie ,, award  condition notice ,grant condition
+- report requirements..
+: principal invest submission anuek report project 129 days , failure provide finaj project report outcome ,any pending proposal  identify examine forbst , electronics projecy
+...
+
+[Message clipped]  View entire message
+
+
+	
+
+	
+	
+ 
+
+30. reference 
+Security training or the outcome of training application official approved methods and procedures act an objective manner ..
+-;employ any practice actually knowledge insight the person undergoing the assessment or testing .
+- must take reason step to ensure security training b...
+- reason provide to person entitled in term of the act undergo ..
+- security services providers installing service or repairing security equipment or performance function monitors .
+Must  performance all his or her function in reasonable manner trustworthy and competent manner 
+- may not install service or repair any security equipment if the client possession or use thereof inquiries reasonable in the circumstances to verify the lawfulness of a client possession and use of security equipment as contemplated in paragraph ..
+- may not install service repair or modify any equipment if the or she would act unlawfully in doing SI ..
+Installation if has been acquired in a lawful..
+
+- reasonable know is faulty untrustworthy defective.
+- poses an unreasonable risk to legitimate interest of client ...the effective use of the security unless information in circumstances to eliminate or minimise any risk of harn to client results the service rendered .
+- what is purpose of the liquor act ..
+- purpose of the explosive act to consolidate the laws relating to the same importation  and the use of explosive.
+- dangerous weapon act dangerous weapon means othe fire arm ..
+- any person who is in possession of any object fire arm or replica of fir arm contravention of the provision of any notice issue be quilty of an offence and liable on conviction to the penalities ..
+- explan the requirements for carrying a firearm in a public place ..
+Section 84 of the fire arm control act 60/2000 ..
+- trespassing section 1(1) of trespass act 6 of 1959 provides that any person who without the permii .of the ..of any lan building part . own building that is no occur enter shall be offence ..or be upon such land .
+- list schedy 1 offences as mentioned in section 40, 42 of the criminal procedure..
+Concept of lethal force is dscrt in line with coming law principle.
+- the consi court judgement has clarify rsa law a personal carrying out an arrest may use force which necessary overcome resistance to the arrest or to prevent person concerned from fleeing ..
+- a person carrying out arrest may use force an they only shoot fire or similar weapon if the reason ground for believing that suspect posses immediately threat of seriously body harm to them ,or threat harm to member of public ,that the suspect had committed a crime involved the infliction of seiouse harm ..
+- the walterd judge impatient only the use of lethal force ..
+- where suspi criminal not inflicted or threabed seriously harm it is hustiable use lethal force. 
+- explain the legal requirements when using lethat I force private self defense.
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 9, 2025, 5:49 PM
+
+	
+	
+ 
+
+31.1.Reference: master court jurisdiction , indexing pleading ,in execution of sale property...
+Sector court order reason commissioning order record 
+- sector xviii : applicant head argument ,notice refund affidavit bid ,notice motion low term filled , submission power attorney ,rules logic ,
+- sector: Xiii-xv legislation commencement submission mission court .
+- skill development applicant bargaining council at attorney set down power attorney office head.
+- skill development applicant director council applicant commissioning award order direct  compliance notice.
+- skikk development response nogada contractor rulling .
+- skill, development respondent ccma labour rules regulation notice motion 
+
+- award certificate default enforcement.
+- skill development saqa library 
+Buyer order 
+_____________________________
+- public library workshop:
+* Function task inveudetail || execution operator inventory|||| checkers yes/no.
+--
+-labour relation a south Africa ,jr  rossiw ,isbn 094006579 order book preface  forward ..
+- explanation : 
+- introduction 
+- the development of relay labour in rsa 
+- the era of adverse ° herbaria .
+- the code termination laboures relationship in rsa chao source .
+Labour relai.
+- the common low and labour legislation for education 
+- the rules of natural justice .
+- the contract of employment the labour low labour relation education .
+- chao individual employment relation  introduction .
+- definition .
+- employment right of education right of or education 
+- duties of educators 
+________&
+32.Ref: user license , part director direct social work and , order R 200.
+- introduction.
+- social work an overview 
+- direct practice v
+-client culture society and social close special .
+- question assure factu
+- assessing interpersonal system .
+- envy system 
+- interaction personality biophysical functional physical health..-
+- asaesserung  use and abuse effect drug alchok and the fetus diagnostics.
+- using  interview skill to assess  possible alcoholism.
+- use of instrument and procedure assess alcohol .
+- conveying assessment drug.  Abuse .
+- conveying  assess find ti clinic 
+- psychiat cognitive perceptuat intellectual judgement .
+- intellectual judgt.
+- real  testing  .
+- flexible value. 
+- misconception:
+- self conception interaction between cognitive emotional control range emotional.
+- appropriatneaa of effect , decorations .major effect 
+- assessing  children and adobe behave functionning  motivation event involuntary ,culy factor , culture norm differential individual and patterned
+________
+*Industrial administration manageriah ,jbattin .
+Orefat for firtg acknowledge list .
+- general framework  ..
+Chapiter  complexity of management part one principle and general and growth of management through .
+- order 37786655 ,open 
+_____
+33.1Tpm 
+* Feature of tom structural for overall equipment effective and defect preventiin system the Toyota production and relationship between.
+- Terrotechnology and logistics maxit equipment effective equipment , equipment used half 
+- breakdown and minor stoppage 
+- acceleration determination the determination of equipment prevention 
+- maintaining breakdi five counter measure  for zero. Breakdown license operation of automated errors equipment investigation investigation development visita organization for implemented the twelve step development steo 1 announced decision  top many decisions ,step estably created step  basic. Formula implemented and stabilizer basic formula 
+-step  automanomouse  maintaining  maintaining programm.
+- step development program fully and are ton small group activities integral small integral .
+- evaluation the maturity of small group activities the truisb for application procedure proceductive 
+33,1reference 
+Safety road teaher
+Human dignity.
+- taking and responsible action .
+- identification of criteria
+- phylosophic if life 
+- incalxulationroad safety in various level of human existing .
+- coexisting human relations and safety the relt of understanding conclusion.
+- the relt .
+- the original of technology and it imolicat and education responsible.
+- seeof responsible an education.
+- the task of school.
+- the requirements of the schools 
+- road safer and indolent in accident.
+- accident accordance degree in rsa from 1977 .people 
+- people .conclt from statistics the cost of accidents cause .
+- poor training ,alcohol involved .
+- personality defect 
+- poor vision fatigue
+- possible solution to the problem quest list..
+* Traffic training in the second school ref to training .
+Introduction;
+- content:
+The traffic situation 
+- the involved
+- traffic training method 
+- certain method reqt with road safety method must comply
+- content method for training traffic youth level ,abuse among the young .legi enforcement 
+- element of natural .
+- traffic hours and denst trait method conversation planing:..
+________&&
+Duty 
+Driver you mark the right of ways but other edge.
+- compulst .
+- stop : you must stop if the director sob a traffic officer or sign road 
+- personnel form animal ..
+- general  duties of driver and passages .. travel backwards ..
+- leave a vehicle unattandes with setting to brake other mother prevent ,move off from a stationary position if it safe portion ,,
+________&
+Introduction programm study 
+Programm security b.
+- role I ject functional title work study duty ..
+
+Learning programm is part qualification is general .
+- purpose learning 
+
+
+
+...
+
+
+
+	
+
+	
+	
+ 
+
+- activity guidance English stand self 
+- knowledge synchrony decision 
+- choosing mariagf pation
+- intri bala. 
+- tertia education .
+- social conduction 
+- relation human 
+- the work 
+- corrected attit..
+______
+* 35.1Referral education the me venter 
+Referral education 
+- chao : one pedagogy on its part persoet history of education origine 
+Devet signify
+- .1 orientation introduction greeck idee
+- introduction 
+- the sophistic concept of man
+- introduction the sophistic concept of man
+- Socrates idee of knowledge 
+- Socratic idees of knowledge .
+- aristoletian idees in the infrastructure of education if stoics relief 
+- roman idees 
+- ecart Christianity august view of man' 
+- medic vok idea 
+- humanistic idea
+- pedagogy become scientific 
+- pioneer of pedagogy 
+- founder of pedagogy the history education v development 
+- intro.
+- emery on the further devt.
++ Methodology of the hist..
+- orientation 
+- aim natural reason problt .
+- general  minded future oriented .
+- factuality indivt..
+- aettu target .
+- methu u restaurant .
+- complexity present and future .norment..
+- professional competence personality enrichment.
+- comparability distinguish.
+Methode and approach.
+- basic. Scientific methode of investigation ..
+-provinciaj .
+- regulation pertaining to the control in regulation 
+____--
+- referral second David Eduard psychology 
+,- introduction of psychology.
+- psychology definition.
+- methodology of psychology test natotistic  observation testing the experimental I method the clinical methodology .
+- theory in psychology b function of theory 
+Hypothesis test verification modification 
+Explanation of behavior education 
+- explt patterns past 
+
+- phylosophic influence.
+-schools psychology present philosophy , motivation , working biology 
+Search visitor time attention analysis.
+- neurologist attet in habitant via negative vlisteb visual .
+
+____
+36. Referral: teaching the practice of nursing of a text in text nursing didactics time ,jellir, nursing 
+- univey of in conct .
+- content 
+- preface 
+- nursy education and the 
+- Philly of nursing educt 
+- the scope of pracy registered enrot
+
+
+
+
+________________
+37.1 referral:
+-award and decorations of security personnel .
+- basic diagnostics pre employment testament.
+- bomb threat response.
+- code of conduct,,code of ethics , 
+- phase construction floor of third floor .
+- declaration of policy 
+- duties and responsibilities 
+- first aid basic life.support training.
+
+-;lecture in gun safety.
+- management commitment commitment conduct and ethics.
+- program of works
+-proposal .
+- psis profile 
+- psis recruiting and recruiting hiring .- refresher  security drill
+- refresher security guard training program.
+- refresher security guard training , 
+- program instruction and proper handling of fire , troop information and education.
+
+- award and decorations secure ..
+
+* Division vof high level waste repository safety ,officer nuclear material safety and safety 
+Subject : information system security officer appointment letter program issy  duty ,operating  system and software ,mainu procedut include completed,,create seoat dutid review auditing ninise risk of elimination oppoy to conceal errors or irregularities and ensure that no one India control all phase of an activity or transat creating permission berries irregularities to go undetected ,, execution opert 
+________
+37.1Combat trinonome .
+- effective : material. Bousol
+- observation research on workplace activity of enemir of population information recruiting acquisition .
+* Composante of execution .
+- relerage of limite of sector surveyor possibility of visual zone .
+- identify of point of relerage .
+- cut of zone  fare and no fareway.
+- determine zone dangerous point clocking enemies .
+- ensuring permanent insert continue ,undercontrolev..
+* Patrol marching normal ,,running for dangerous space ,ramper for escape view cut ..
+Keep contact trinomd ..
+- mask emplacement vzone of fighting , keep tools in discretion ..
+Ensure .
+-covef  soeciy protection Vue aerinev effect ..
+* Combat of trinomd ,group order Chief command if chief if 300m ,609 m ,,natural armored  multi qualification ,,fatansun replacement of zone natural enemiev,, application of fire objective repere initiative end ,, FAMAS , fight small distance 200-300m ,face vehicle of combat infaterie ,,,,char angle of shoot , defensive adverse ,,
+
+
+- school of Infaterir ..
+-manuel of user section regiment 
+Planing diffusion..
+* Delegation military department of major state  infanteeies.
+* Arme blindee cavalerie 
+* Artillery 
+Genie ,train 
+Transmission 
+Commissioning of army if earth 
+- instruction center ..
+- training open..
+* Reserve library of army of earth total .
+* Summary ..
+* Partie 
+Preliminary .
+* Cader of employment activity guide..
+* e :750 km speed medium of  tactical fly 180km/h distance b frenchisable ..450 to 559 km 
+Weighting fly 3hours autonomous 13tone combat speed antiship 269km /h ..
+Armored ,mortrs fire arm gun antiship ,,effect munition 
+Motier if 81mm llr 45 kg 3 fardeayx ,tube plaque base unity fuse ..
+- porter : 5750 m charge ,fa fusee ,situation munition b,1 uf = obus piece180 ,1D1,489;grouot chaque consimanmation shoot neutralisation : 39;obus / 1h discovery v48 obus  personnel abrite effect , dusctruction , bo seeing ..
+-training : direction ,but input on line cuts observation , principle of series of 2 obus fm make ..
+- objecty series 50 m ..
+Centre A,left ,right code ,
+Dan's millimeter,left right ,far no far south north est oursr ,
+Shoot relerage ..
+In commander..
+* Missil antiship,anticharv,long distance ,short distance ,eryx
+*Composition : weight porter fly 
+Post of shoot ,4,7 kg 50!in 600km m on trepied ,foot ,
+- 4,3 kg 50 to 300 m on in head Mirabel  munition ,,
+Speed maximum of following objective cible : 100 milliemes distance arm of missil : 50 m angle of negative ,45° positive ,39°  speed to employment ,31° ,51° ,18 m second outcome tube ,,245 m / sec in end of fly Mirabel detection 2600 m ,1200 m identification b, autonomous ,600m autonomous v,2 a 5 heures piles dotation per group cie ,cuev= 24 vab ,12 
+Totaj : 27 missile Mila composit :300 to 1900 m post shoot kg ..
+- 50 m ..
+3120 m front of sky 209m ,d eclairement
+
+* Missil 21 kg  ..
+- diameter ,309 m,99 
+* Simulator ,RS ac ,siteryx : simulator infrasy of selector bpersonal training..
+62 computer instruction b,61 consol  monitor ,printer video ,, 
+
+* Equipment : trvm ,134 post amplifier of 100 w game freqt post earth , defense b message ..
+* Consignment ruling fixe level  cellular 
+Shoot no authorize ,,cover fire no opeb ,authousation installation friend attack ,,
+Tri ripost  ,,open fire on fly attack force or instant friend ..armed ..
+Gn29 nm..
+* Cooperation interarmes ..
+* Arme blindee cavalerie artilli genie ,akat topogry point particuy series ..
+* No revenue posiy transport protect , collection .. measure bfilter ..
+* Detection alertev,reacted ,
+- orange ,blue ,neurotixique,
+- agent chemical type delat symptoms neurse phisgen ,sufficant toux coffing inflammation noose and difficulty respiratory stress tahite ,,eyes go out of zone of fighting n,difficulty heating ,, decontamination protect ..
+- acide cyanhydrique ..
+* Light ..
+Projector : 400/800 ,,,400/1200 m
+* Observation nigty .
+
+* Distance practical of shoot arm ..munition 
+Employee RC x39 ,ofk ,ac hl 200 , iec ,ac - avh 1500, l
+Aveuglelment 
+
+* Renseignement,, information bnumericah .
+Neutrallisat destructy eclairement aveuglelment.
+Materiej .mass 36 t ,55 .
+- armement ,c20 ,c crazy ,tourej ,7,62.
+* Carburator 892 l , transmission, performance max 65 km / h ,71km / 85 km/90h..
+___&&
+Fly ,elicipteor..
+* Les stac system of telephone automated campaign multiplexer networking nspeed 39 customer , simulated ,19 customer blind line 2wire ,2,4 km and radio zone atac ,, prepresenth ,, battery reception antena volume interface .porsoire pedal blocage  box ...
+* Tableat band frequence mode of pas poid porte pikes 428 ,459mhz ,19w ,khz ,vhf , 
+* ORGANISATION transfer , evacuation center ,register nMd ..
+Search file evacuation ..zone ...
+-model dudcht : .
+Material major ..
+...
+
+
+
+
+	
+
+	
+	
+ 
+
+- composante role of chief  executive position patrol direction 
+-help memory chief section of infaterie.wirk document approval.
+- summary :
+- tactical 
+- cooperation interarmes .
+- armement .
+- optronics 
+- transmission : vi NBC .
+- information, renseignement 
+- logistic
+- health .
+- comportment and administrator langut .
+- tactical mission .
+- symbolic and represent 
+- control of  public 
+- evacuation of population consign 
+- collection .
+- the mission of safety of mission offensive .
+: light visibility ecklaur
+Harcej knowledge clocking peak point cover flanc guard fixe reduction destruction antiship attack 
+Under control objective 
+: mission defensive of mission commune ,control zone no allow defense close escorte survey way .
+* The process of combat office Cader employment of ..
+ break 
+, embuscade break hacej handling help ..
+* Missil particular mission guidance , execution operator zone contact move infiltration colone guidance itinerary non fleche jakonage pilotage if vehicle isole of point passages .
+* Mission of escorte , escort if authority,escorte material logistics no tasking of knowledge...
+" .. definition of different rebric ... message ,reel = suppose obs = suppose precision  aerien surface medium means ,can ,sub mission ,mortue ,bombd generator high 
+Defense accessories herisson ,4099 m 
+Cavalier ligature baruemer cheval piquet corner if tube ,1.60m barrier triple .
+- obstacle .: generality , obstruction a, road bridge  tunen pylones neutralisation ... possible of combat combination type of obstacle , fire value  ,.
+Mine explosive .
+,pente , neurotixique inconue ,cellulose 
+* Neurotoxicology .
+..
+Mine antiship sntichst  horizontal marking ,ideny ,mass of explosive ,6,5 ac ah 
+- mase total of 13kg ,
+- performance : 70 mm
+Of blindage ,diameter ,19 cm ,a 80 m 
+- mia. 2 hommes ,19 MN 
+Localisation ,pick  visible order .mise en place tress of security fixe balissafe ,2 metre if sole but  discrimination ,survey miach , armement of grade axe survey repli , national authority attack ,z ..foxt place estimate : ...*
+* Detect chemical level of , accountability b national origine number incidence ,alpha fr , ,,
+Knowledge sector .
+Observation position .march emplace font and back food ,post fn 
+* Defense material accessories : time 100 of networking ,10 element ,39 pick of 1,59 70 cavalier ,129 m of rice ,1kg of wire ion  ligature ,1 group of 2 hoi ,39 element piquet ,1,59 m ,149 cavalier ,249 m of rinces 5 kg fil , contrin ,,
+* Decontamination immediately personal toxicafiin liquide visage utiliuv..
+- fumigend ,obus rideaux 1599 counter  ,no traumatism stress  fatansun , movement ,
+- transmission .
+* Armement vetement personality : ,
+: author prlton lighting and invest ,7,63 mm mikd. ...* 
+* Artillery structural system type characteristics missil ,zone defense ,I observation ,means ,porte 18000m porte 49km , ,sayer 100km . ,1000km, .
+* Artillery acquisition : regiment ra drones aerien  army air satellite ,
+- drone characteristics summi observation : speed 750kn/h ,rayon action 209kn autonomous  fly altitude capacity ,sdtu tactt interesting ,speed 2h  action real time tv image infrared ,
+- geography , 
+Metrology 
+- geography; mission realisat help thematiy card topographic.artery autonomous and ,39 ,49 t canon tracts , equipment 4humain ,42 shoot bullettrm 10999 peleton of piece tractor 4×4 ctrack ..
+* Stability of air t°  hygrometer instable ,19° legers me ,cover sky , stability morning ,after noo. ,nigh shoot , telemetry vehicle observation material specific 
+...condii meteo
+- uniform : 1:,papers sector back of combat ,survey ,shois ,1 dise of ,food , plastic ,2 liter decontamination hygiene water lunch box ...recharge gaz radianetre dur ,car antibalistic ..
+- dosimetr electronics contrin ..
+- measure hygiene practice conserve,body ,toilet aooer ,hand after toilett hand food nursing ..degree magnetic ..celcuis , station earea , ,1 persone ..
+- conduct ..
+Code conduct  vehicle  time operation chief oassay keep function transport discipline 
+
+
+
+...
+
+
+
+
+	
+	
+ 
+
+- 38.reference :
+ cabine making for chatil by ward attack home craftsman.
+- the kit took
+-cabinet constructor part 1
+- construct part 2
+- entering inalaying ..
+- drawing cutting list mark our timber cabinet  work .
+- glue fitting etc
+,- typical cabinet design handing planing ..
+------;-;
+* 39.1Referral:
+ building pricing  guidence the construction industries .
+
+_______
+Feral / rock gem polishing Fletcher a completed guide to amateur lapidary order R2-899/
+- introduction :
+- I cutting a pebble in half .
+- diamante blade know scale pulley motor and  drivers bels ,tank and coal cutting table and 
+- last mine check cutting your first pebble sharpening the table .
+- the slab saw cutting your first slab blade  sharpening and sleid cleaning .
+- grinding wheels  grinding your performance using performance in jewel parking .
+- how to Cabo cho.
+- the stones sharping the done cabochon form .
+-the stones sharping the done cabochon  . with v.
+-  drilling a hole in store .
+- equipment drilling the hole .
+- 7 . simple vfaceting .
+- performance the stone faceting or forming the stone 8 gem collecting the rules success igneous rock summary of rock for summary of likely .
+- gemstone hunts in igne ge..
+_____
+
+
+
+______
+The n construction cost development professional v..
+| Grade || wage ||| wage|||salary 
+- grade 2
+- skill work
+
+- semie skill work
+- general work .
+_________&&&&
+* Eny propriettie of bbok and solide  sorrion of rock strength of rocks.geology papper national technical 
+- rock weather sol forma to ion day metallic soil type in .
+* 19 ground water as matters bears matter  management coak  in rocks as water and bimetallic ground in Africa puping test dragging .
+* Sitting of works building found .
+- found dams cutting minel embarkment subsidence .
+*Rock in construction use rock disable.
+- characteristics sans , concrete agregats two days ways agree of  source of stone..
+- geological maps .
+- sedes profile drawing convention mao symbol .
+- structural diil the form out diverse.
+- the solution of structural problem.
+- problem of strike competing outcome fault.stratgraphic ,truck  borttod , problem conformittes and accurate section isopac .maps ,
+- fault section and projection .
+-interrescting plane introdt to the fault development section parallel fault verification locating displi .
+- block pay shoot.
+- section 2 mineral identification.
+- crystallography.
+- the internal structure of crystal symetrie
+- notariion ,
+____________
+*40.1 Reference: chemical engineering : coul university 
+- fundamental of energy balance.
+- introduction .
+- conservative .
+- potentionel energy ,work nomenclature energy calculation of specifici mean heat the effect of pressure on heat enthalpy of reaction effect of pressure health formation comprest and extension recovery heat exchanger heath excht network , temperature reaction low pressure ..
+* Flow sheet .
+- introduction flow slee presenting 
+Pictogram present block diat present of stream flow rate information to be layout precious of data basic of calcui process service util , equipment identification Manuel low sheet calculation basic sheet calculation  flow sheet simple  computer aid flow diagram simple material progress ,the development of simple estimate infraction coefficient mass
+A mass balance costing project evaluation 
+- introduction accuracy and purpose of cost estimator fixed cost escalated.
+Cost estimate fixed ,infkatii,fixe cost ,inflation ,rapide capital cost estimate methode the capital cost estimate methode the factorsk methode of cost estimator to ion long factor depile factor estimak ion purchase summary of the factiral methode operating estimak of operationing cost ,evat cash flow and cash flow diagramfg time  value ,return calculation discount allowance per information analysis.
+-;8; introduction the pidiaggo ,symbols ,symbols valve secret pump , mechanical design ,wall thickness pipe support ,stressing pipe , selected dislocation cl reacti.
+
+
+
+...
+
+[
+	
+	
+ 
+
+- 41.2. studies of combat engineering ,field  artt infatet ,armor final report was writ to devt one overarching training , seven Mos this year battery has acceptabt capabii to identify candifor ..*
+*List of physicallt demanding task by mos .
+- cms physical task
+- cmts performance.
+- predictor test perfori.
+- regression coefft if test battery 1 .
+- regret coefficient of test battery 3 
+- accuracy of test batteries.
+- physical domain propot 
+- summary of reqt for predictive test .
+* Diagrat and photo under fire similarities.
+* Diagram and  photos of the casually evacuation 
+* Photo of the casualty drag simulation .
+* Diagram and photi load main gun simulator v.
+* Diagrams and photi if stiw ammo simulation .
+- schematt of the Illinois agility test 
+- percent of tested soldier completing .
+- army physical fitness test .
+- basic combat trat..
+- Bradley figthing vehicle .
+- criterion measure task simulation.
+- field artilt ammunit supply arm ..
+- high explost.
+- heart rate .
+- military entrance processi station 
+- military purpot anti tank ..
+- one  station  protection equipment.
+- rate perceio expert .
+- subject matter expert :
+* Doctrine commando ,USA army research institute ,
+
+* Background,: 
+* Soldit in the combat requirements demanding job , muscular power endurance watd readiness .
+- duty  . 
+Criteria ..
+* Introdt : pre employment test battery physical parade  development .
+- tradoc : revit material training ,matter expert ,sme results back, caporak soldier serfent first class completed surveying .
+- task idevthth .
+" Transfer ammo ,ammutbfield artillererie nwith supply vehicle : record.
+* Standay 2 round ) min or 39 round in 15 min .
+Load main gun (19k) ..
+Load the 129 mm main gun Abram tank : wear 49 lb task specific equipment b,dynamite  round
+..medicinal bakk ..
+Metronome sounding rate of 120bpm, completed down section,
+
+Statistical analysis:
+Descry statiscal  performance soldit test predactorvtestv,score ,order create score bscakd carry , battery darav, ergonomic bclass soldier passing , validation v,0,55 -0,55  test calibur equipment b,19k forct. vpredictor 
+______&&&
+45. Reference: 
+The home security  floor lighting :
+- door an windows safe one youth bulgasao for acciy .
+- content : 
+- 1 barrier again break chaine fence line .
+- low cost secut for house 
+- corrective surgery for vulnerable door .
+- barring the door the basic lock bolts 
+- putting in a better lack .
+- security window again forced entry .
+- safe voult partness with the hose.
+-the  technical for welding b steej grille .
+- 2 silent sentire lourd alarm.
+- choosing a simple but effective warning system.
+- how to snake cable through the house .
+- how electronics alarm worh two basic circuit
+- control and switch to by pass sensor protection car and it content 
+- defense against .
+- defense against fire .
+- easy ways to make your house  hard ..
+- walls and floor contain a blood .
+- puttt out a small fire with with extinguisher .
+- safe exite from an upsty.win
+- wath to do if break out .
+- coping with every hazard .
+- easy to build fence to make stairs .
+- keep it knif and poison out reach adapying .
+- house to need the inform .
+- safety check list  don't link switch unplug 
+- secuy front door fire rating for building materials .
+___________&&
+* Hand gun for self deft : hand gun self defense:  ,R10 
+- 1.trauning methodes.
+-2 . introduction :
+Shooting practice b.. training b.
+- physical  mental verbal training nated instructed  observation b.autigenic training b
+3.aims of training .
+- inspecting  equipment clothu recognizes fault ,gun steady mental preparation boeint of impact b, 
+* Training | schem | stage |™1
+- tempo of improvement in performing failling betting with training end of training.
+- 3 looking after your gun preparation for completion general distance nerve preparation table , morning exercise nourishing transportation your riffle the completion 
+- safety on the shooting range .
+- checking clothing and rifle .
+- autogenic training .
+- preparing your rifle .
+- testing ammunition in
+- testing ammunition .
+- guning the weather conditions .
+- the competition it self .
+- rules regulation.
+- warning shoots ,
+- first shoot . autogenic trat , autosuggestion,
+__________
+46.1Reference:
+Honda civic haness
+
+Engine:| specificatt || decarbot |||
+- removal dismenting examination ||| reassembly , replacement fault 
+* Cooling | specificatt|| water pain
+- draining  flushing ,dilling ,radiology /) fanbelt temperat antiduej fault .
+.* Fuej system and carburatiin b: specifications bair cleaning fuel tank  ,// water tank belt temperature 
+,- ignit system | contact break  condenser distrt | spark ignition fault finaj , fault duagtb..
+* Clutch and  actually bin mech | Mremovan dismount replacement b| inspector vrelease bear fault.
+* Gears box automatics transmission 
+Maintaining ,centre beard  universal join 
+* Rear axle | removal emplacement v| drive pinion  ails seak finaj assembly.
+* Breaking system | spect bleeding front brake collise front front brake dusj drum ,hand brake cycle vacun ..
+* Electrical system |™soecificat, battery dynamo alternator starter ||™windscreen lubricant maintaining routing maintvand service ..
+- suspension and steering || special print hub front axle stability ||| rear suspension steering brack  
+* Chao  general v operation with engine 
+Manuel test  checked living 
+* Introdt ti the sadeu first road side repair vif car jumps startub identify leaks towing ,
+- 1 week check  unders check point engine level oil coolab level brake and lunch fluid bscreev master fluid level   build , fuse .
+- tyre condition and pressure .
+- windscrt lubrication fluids and tyre wiper .
+- norm horn maintaining b.
+- light wiring  routine maintenance and service maintu diagrat and service  fault mainy .rear suspension , steering entand associate system engineering car repair procedure ..
+- engine electrician system .
+- emisstvand engine control system.
+- breakinf systb, suspension and steering ,body equipment body woibtrimad fitting body electrical system,writing digrsn ..
+* Dimensions and with .
+* Buying spare part .
+- general repair procedure v:
+* Jacking and vehicle support.
+* Radio casstt unity .
+* The system unity 
+- tools working facilitate b
+- that test check fault finding .
+- technical term .
+- safety first .
+- general bhazard
+- scandal warning  
+
+
+
+
+
+...
+
+[Message clipped]  View entire message
+
+
+	
+
+	
+	
+ 
+
+48.Reference:EPE  printed circuit board service...
+Epemg ,,/ elector 
+Order code / project || Quantity|| price 
+- practical electronics 
+
+ circuit wizard : pcb
+*- issue || topic.  ||| notes .
+-may
+Moisture alarm| get ready for a British
+- Quiz machine | revision stop 
+- battery voltage checker | for all your portable gear 
+- solar mobile phone charger || away from home school b
+- theft alarm | protect b property 
+- wailing siren flashing light |™alloween 
+- frost alarm || beginning 
+__________________&
+- project title || order code ||| cost 
+- time delay ..
+__________________________&
+Road test :  car
+
+Test summary ..
+- specifical: engine , engine output , transmission, wheels and tyre ,break ,steering , suspension ,whell
+
+- test results :
+- maximum speed .
+
+- acceleration 
+- overtaking ,
+- fuel .consumption .
+- breaking test : 
+- geared speed 
+- performance factor :
+- test condition ;
+* Power and torque | engine speed
+
+_________&&&
+* Casebook : car  garage..
+Motorbook ..
+Months R2000 book vouct engineering transplant b, results bv8;,,
+
+
+
+
+
+
+...
+
+
+
+> 
+	
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+49.Reference: notice  appeal 
+- department of government: 
+-  representative : 
+- notice appeal results follow employee refuse to comply a ccma guide award and order of the labour enforced .
+- notice appeal  order .
+- issue .
+| Issue award certificate award certificate || core award || credit award reward || time record award period employee operate task •| achievement ||||
+- sticksge probation Manuel correct award ||| prix case book award .
+* Manuel ruling practice labour | priced notice vat price reward amendment x notice || quality page normal urgent 30 page x 1 copier || projection cost written order cost review order juft appeal .
+*- ruling lra | R 50000 award notice |• 1×page 
+* Ruling lra  
+* Ccma ruling  rescission ruling award || R 5000 compliance ,4× PG 3 ,R15000 agreement .
+
+* Award ruling rescission award order director.
+Form ruling purpose instruction ruling .
+* Ccma ruling | 3 page .
+* Labour guide ..
+* Certificate outcome ccma | 1 page x5 
+* Notice compliance book ccma files 
+Elizabeth lerumo pg ..
+* File .
+- files ncouncil bargaining agreement.
+Compliance:national council bargaining private security 
+Private fund police security.
+
+- files pension .compliance:
+
+- files psira compliance :
+- files humain right . Compliance:
+- files doj .. compliance: notice motion 
+Order notice.
+- files supu ..
+- land reform court development ,ests ,, security tenure extend integrity..
+Record department labour file ,and labour court..
+
+
+-49.1 reference: sandf as workers : ..
+Military bargaining council , militaire arbitration dispute  ruling , 
+- channel command structure and recommend single including represent , structural provide , activity 
+* Limitations ,can't aligned or affiliated political party ,cannot to ather trade union ,cannot strike , not negocie close shop ,member sandf officer defense legislation at all time , activity shakk be not funded by department of defense , compelled to sign undertaking relating to the non disclosure classification information.,access to restriction base military reason ,
+..
+- dispute about collective agreement .
+- dispute resolved procedure: in order to resolved dispute..
+- failure to appeal : 
+- 15 work day arbitration award reason council b copy final ..
+- the board shall not make an arbitration award that has financial implications for state as employee that outside the mandated position of employment b.
+- if an award cannot make as results if a limitations contemplated sub board submitted adviu report to minister and information each party that such submission has been made ,any arbitration award in term regulation become bidung ,calender days after date award if minister has not tabled award in Parliament that period after date tabling the award
+- review high court. Granted , submission petition 
+
+...
+
+[Message clipped]  View entire message
+
+
+	
+
+	
+	
+ 
+
+- 50.1.reference: library bibliotech 
+
+Dhet ../ saqa explanation 
+*Portfolio evidence low 
+*Assessment: curriculum and policy 
+*Assignment: course syllabus topics
+*Assessment: policy nated 
+
+*st peace college and afric institute police .
+* St peace college tvet : nated topics : 
+And research field nated ncv , combination..
+Question answer self assessment,group assessment,class assessment 
+
+St   peace college skill job experimental:
+
+- guideline orientation pratice learner.
+Or
+___&&&___
+51.Reference:
+
+1.portofolio file poes  saqa : evaluation of foreign qualification :pg1-28//
+
+Pg2-41
+- name : tshingombe 
+- screen B1 database:
+*|| Application form on line | no submission ||
+- quotation payment  country original 
+| electrical engineering schools qualification entrance || 
+- higher education qualification || submission certificate||
+
+-||final award degree diploma ||submission.
+- transcript of academic record reflecting each of years .
+- country specific Drc school leaving certificate .
+- comment explanator leaving :
+- certificate mathematics info ,attest ispt , 
+|| South Africa qualification .
+Design non relevant ,skill development b,saqa 
+|| Total : saqa application 201911130002 does not our requirements and is being returned to you with an explanatory letter ,please ,please wait for this before contacting saqa ,kindly provide physical address ,to refunds@ saqa ,two work day.
+__________________________
+Director foreign qualification evaluation and advisory services 
+
+*.new tarrif for evaluation of foreign qualification:.
+*1. Saqa application guideline and form . update march pg1-3
+Section application form :
+I who's is making the application : 
+Qualification holder , family , personality , register , immigration practical lawyer.
+- title : tshingombe 
+- name : tshingombe 
+- surname: tshingombe tshitadi .
+- postal address ,
+* Who hold the qualification : 
+Date birth in supplier ,
+- full name of qualification bholder :
+Electrical matric grade 12 diplome, mathematics info , senior,
+Pedagogy technical award .
+- professional motoring ,
+* Study history of the qualification holder muster completed 
+*|™Name if qualification || award by institution name |||>country ||| attend : from to | completed.
+1. Electrical matric .|| Iti kitomesa || Dr congo ||| 1997-2001
+2 mathematics info
+3.pedagogic techno
+4. Professional motoring|
+
+* Why do need evaluation .
+- home affairs ,general work visa ,critical skill visa , cooperative visa , employee ,, employment , professional licensing ..
+
+
+* What would like us to with the results .
+- will pick them at the saqa office 
+______________
+- reception of application . 201911130002
+Name : tshitadi fistos.
+Surname: tshingombe tshitadi 
+Date of birth : 10 Nov 1982
+Email: tshingombe 529@ gmail.cim
+- cell 
+- priority: medium 
+Amount recei: R 450.0)
+- date of receipt : 2019-11-13....
+__________________
+New application submission bcurent : 2020001305049.
+Payments amount 
+: 202001301350405
+- amount :2200.zae
+- transaction :2029-01-39,,13:22
+Customer : tshingombe , in case of delayed transaction button 
+_________ 
+- 202001305040/20191113002
+Non compliant 
+Dear sir / madam ..
+Proof payment , application for evaluation of foreign above mentioned does not meet all saqa requirements for stipulated if d application material qualification online , therefore been returned to you ..
+Include 48h ..
+- final award school / diploma ,degree certificate 
+_______
+Certificate of bid  saqa invited 
+
+-|| unity bid learner.             ||Checkers bid 
+
+-sectiin 1: invitation to bid and bidders particular 
+- invitation to bid 
+- terms condition for bidding 
+- bidding structural 
+- declaration of interest sb
+Declaration of bidderspast scam practice 
+- certificate of independence bid determine 
+- general condition of contract 
+- section 2 requirements and speci 
+-;bid requirements .
+Special condition of tender contract 
+- total cost of ownership pricing 
+___&&&dfqeas .
+
+
+- good day .
+May please elaborate on how I may assured  in relation bti application of foreign your foreign qualification in relation submitted ,2018/11/13 and non compliant due to the following reasons.
+- outed application form , consent form not , transcript not submitted, incorrect amount. Mett ,king regards lungike mnisu , administrator office ,
+* The verification team .south Africa ..verisearch ..
+___---
+*53. Reference: topic's  information learning 
+
+Portfolio evidence low case study college portfolio evidence.
+Award diploma explanation mark and low outcome , 12/1/2023.
+Author: student and learner: tshingombe tshitadi.
+- college student and high education qualification dept university.
+Engineering electrical learner research low motion week career outcome .
+Order:R5000. 
+Price low 
+Pg1-1000 total value topics assessment.
+Nated ncv ucpd 
+______
+Content :
+- 7-8 award  
+Award abstract st peace college tvet engineering.
+- portfolio. 
+Foreign institution 
+
+
+
+
+
+...
+
+
+
+
+	
+	
+ 
+
+-54. reference: 
+St peace college 
+- filing : 1-10pg
+ learner : tshingombe 
+Moderator 
+
+Assessor.
+- assessment police requirements: engineering electrical 
+Explanation design condvr 
+.. credit subject|| requirements filing content submission ass.lok ass engineering electrical ||| core elective fundamental | credit |||| total mark .
+_______
+Full name : tshingombe .
+Email address : tshingombe 529@gmail.com
+- country enquiry : Dr congo .
+- purpose of enquiry: high education department exam irregularities @ dhet .gov za ,n3,n4,n5,n6 
+- institution details : st peace college and Africa institution police .
+Web address : https storage Africa 
+- institution physical address : 19 ..
+King regard  directorate foreign evaluation and advisory services saqa
+- the national qualification framework ( nqf) act 67 of 20008 madate saqa to provide foreign qualification evaluation and advisory services ,which it does in accirdat with the policy criteria for evaluation foreign qualification with south African nqf ,as amended 2017 ,section 29 of policy and criteria stipulated the requirements that a foreign awarding institution must meet for it's qualification to be recognized..
+_____
+PG 15.
+Explanation make model didactics learn self time table design: time table subject class studies engineering curriculum assessment police and assessment engineering integrity exercise book note book completed system manual disciplinary learner conduct guideline outcome...,total..record award attendance.. system .
+* Explanation :  case registration attendance record sheet amendment week comply invigilator,surname ,week,I'd number ..
+* Design analysis grid for test must pre assessment 
+| Subject level learning object/ fin / short response / medium / 
+* Knowledge and understanding | applying. || Analyse synthesis evaluation || investigation discovery design | total criteria close 
+_____________
+* PG 3  : section guideline: 
+- college basic advt filling diolome bassesmebt .
+- section , installation ..
+Design university b.gradyat diplome .
+______
+
+Register /saqa online 2010002013812/2004006064381/20110074343332:,high , education 
+- final award degre diploma certificate submitted 1stg
+- no provisional certificate or unofficial statement 
+- st peace registration : certificate no COm18269001/.
+- nated dhet I'd ,n diploma and nn diploma certificate: national  examin 201002023812/200400696481/20110074332
+..
+Suplementaire. . 
+Referral registration final record .fee .
+Electrical engineering| durat| reg / fee/ deposit / monthly / totaj ) extension home 
+Semester 1,2,3,4,5,6,7,8, ..
+Term 1,2,3,  
+_________________
+- st peace college / faculty eny ,time table ..19pg..topic 
+- design educare didactics ,eginimetrt engineering design time table ,methodic protection ,policy asset Poe submission ,analyse framework regulation ,amandemen 
+- Poe evidence portfolio .
+- activity least , document ,docket 
+Subject / low oytct amandety  approval..
+* Calander method meeting reqt submission caos isat ...
+Trade theory electrical text book  ,exercise book , electrtechnology ,book 72 ,note.
+- industrial electronic book 72,
+- engineering science book 72 of note ,
+- mathematics book 72 of x2,note book assessment ,.
+- assessment infiltration book 72 of ,note ,.
+* Attendance time course subject days student duty prevent lesson.
+Time ,| m | w| f | t |s
+____________________
+- st peace college and aip
+* Faculty : electrical engineering.
+* Time table , study : tshingombe .
+* Moderat facilitate ,seta security vtraing 
+- training performance train . management electronics ..
+Explanation award degree ,full . .
+* Question / answers : instruction guard installation rules savs san give safety answer qyet advice keep clean intelligence notice  papper . 
+Explanation qualification b: health 
+* Attendance time engineering council subject .
+- test award cert ,oract theory test trade internal external submission.
+* Question answer book engineering , Ana , planning , discover ,invest 
+- portfolio evidence schottische low outcome implemented battest assessment value added. 
+| Test score marks| evidence low give || evidence poes reasoning ||| evidence quotation .
+- mathematics : low limite | motion comparison test value , || 
+& Engineering science || f= g a ..m. || Compare two force  tear two frequence | compare fundamental 
+- industrial electronic ,.
+- electritechnic .|€ 
+* MarkSheet scale check guideline.
+Module subject || weight ||| scale ||| averat coverage completed btesr .
+* Test trade name center external submission subject..quest book mastering skill and devet
+* Test trade requirements subject.
+* Test trade task subject 
+* Test trade ioerau .
+* Test trade evaluation maug
+Low add subject  basic advanced ,filing low ,system low phase criteria ,fabric tear  , subject billing ruling value add , component 
+Subject module total faculty topics value ..total requirements outcome ,total task outcome value ,total operation engineering value , Master skill 
+* Score total curriculum.
+* Pre asst police , militaire, engineer in 
+Assessment warenty ..
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 12, 2025, 8:51 PM
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- reference: portfolio 
+* Practice theory guideline career ,
+Refet activity practice guidence college practice xounset principle management practbnote class ,tvt circulum instruction internak ,continkise asst icass vrepoet programme ..
+Introduction ,4 planing b,section  coursex..
+Content page docket 
+...
+
+[Message clipped]  View entire message
+
+
+	
+
+	
+	
+ 
+
+-55. reference: 
+St peace aip , faculty engineering 
+Time table, 
+PG,,1-90
+
+
+Moderator facilitate instructor , sasseta seta security safety ,stragues .
+- trainer performance train training ,manage electronics system assessment .
+-practical theory guidence career vocational .
+- reference acti practical guideline college prat counseling princit manat ,teach lecture note practical class .
+- tvet curriculum instruction  icass guideline for report 191 programme
+- content page docut docket || crit module.
+- planing for internal assessment 
+- the icass marks compot
+- assessment for different modes of delivery 
+- setting of assessment tools
+- moderation icass marks
+- evidence of teaching and asst
+- monitor of implemented 
+- conclusion :
+- trimester natural science engineering 
+- semester subject general business and services 
+
+- Anat gride .
+Pre assement  process and checklist .
+- post asst moderation process and checklist .
+,, trimester task for eny .
+Semt subject plan ..
+- recordsheet  semester .
+- subject total terb 
+75 - 78 lecture days .
+Business 1 test or assignment external incorporate ...
+- types  subject level lecture 
+-test , assignment , internal .
+Duration ,mark allocation ,
+- total mark allocation short medium response ..- knowledge , application, analysis and problem solving 
+- criteria examiner moderator analysis grides ..
+Content coverage weigy spreadsheet .
+Hode senior lecture v ,
+- files item  
+Space registration teacher .:
+- content page .
+- class regt
+& Subject syllabus.
+- subject works schedule / work plan 
+G lesson plan and teacher resource of additional support requirements by college academic policy .
+- Evidence of review .
+- previous question papers / revision / addii exercise / homework,activit ,worksheet..
+___
+** Policy academy st peace ..nqf l6..
+- resolving of crime : 
+- focuse diploma , officit in the detective service division b, department of safety sector ,saps , member privat institution v..
+Content  skikk performance police function .
+First semester , criminal investigation , administrator and communication skills , information management v,
+- practical trading  resolved of crime is vocaty course , practice police visite , patrol arrest procedut ,search procedure , evidence collection , preservation 
+Presentation .
+Practical 70%of syllabus ,theory asst contribution 39..
+Module : 
+- crime scenes and incit .
+- investigation methode and technique.
+- vehicle crime investigation ..
+
+* Career opportunities diploma policy : area security and surveillance ,
+- private security.
+- saps :
+Metropolitan police .
+- community policing .
+- national intelligence .
+Privay investigation 
+____ ass 1 activity ,st peace .
+Police introduction science .technical career 
+Explanation low portfolio evidence assessment identify.
+- section career orientation profile finsnaciah ,
+- selection process ,choose a career answer .
+
+- question rewat living leave .
+- student guideline counseling police opportunity.
+- policing excellent talent .
+- police material study career and fire arm career basic advay filling .
+- career understand job skikk opportunity job duties that what requirements .job 
+Correct job policing , retiremy ,police ranking ,
+,,_______&&&&&&&&&&&&&&
+
+* St peace portfolio .39 pg 
+Name : tshingombe 
+
+Assessment : formative summative portfolio. Guideline 
+Welcome st peace ,
+And engineering guideline career code conduct 
+
+- self assessment self evaluation.
+- 1 question: wath undestand code conduct : 
+Answer ..
+Write good thing discovery 
+- list learning 
+2.
+3.
+_______________________________&
+By tshingombe tshitadi students 
+--st peace college,   PG 1-70
+Saqa/.   research 
+Research saqa qualification 
+Final award certificate , academic transcript , original ,sworyb 
+- final 1th,2th 
+- curriculum assessment framework saqa qualification authority 
+Institution verification qualification quality control assessment summative ,formative , suplementaire extra time
+High education rsa department.
+- curriculum: n4-n6,,
+- content page .
+- topics :
+- abstract : overview national system examination and qualification framework overview : system rural land energetic.
+1.purpose : commissioning.
+2.topics ,circular research question rural energy ..
+2 .system case study.
+
+Power class work base learning 
+- 4.topics ,case study project support 
+5:topics 
+6.topics 4 defense land reform electro energy rural system 
+Topics 7.research methody .land reform ..
+Real , imagine 
+- advantages field:
+- disadvantage :
+Synthesis and field application.
+- process diagram 
+* Framework 
+
+__________________________
+* Research saqa .1.-50 PG on line information..
+Index topics comment 
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 13, 2025, 4:50 PM
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- st peace college registration form .
+Portfolio,for framework 
+Collection database information 
+Recruitment online reference / PG 100
+* Stationary 
+College b stationary management system 
+*Code alpha ,project report submitted in patial fulfilment of bachelor of computer 
+Application .
+Acknowledge .. information college .
+- introduction to system 
+- scope  system 
+- proposed system ,
+- fact finding technique 
+- feasibility 
+Hardware software requirements 
+Design 
+Digrsn 
+Data flow ..
+College need ,,pai etc 
+_____
+* System post development cost .time frame  building systems , development process phase have system analysis .
+Requirements: hardware software ,processor speed ,1gh ram , key board Lazer ,operar system visual studies vb net data base network..
+_____
+No item  quantity 
+
+
+
+
+
+
+
+Dhet 
+Stationary examination 
+* By study : tshingombe tshitadi 
+* Section A,head .
+Dhet stationary 
+* Report on errors in marking  guideline ,name marking center ,
+- section desct if error recommend chief ,
+- number of marked affected.
+- motivated recommend amendment...
+Marking plan engineering studies n1 and .
+Mark sheet ,category, irregularities, guideline..
+Office .
+___&&&&&&___________&
+-st peace college 
+--prensentation oral 
+Topics : engineering studies 
+And business studies engineering,and language business English.
+- st peace college ,1-60 PG 
+By tshingombe fiston, kekeletso .
+1.2. topics : orak presentation asst test .
+1 2 introduction learning engineering electrical thing about.
+2.topic learning engy time table assessment.
+Design table allocation mark , module award dioloma engineering electrical time.
+
+- abstract : development project cvs .
+- modeling and assessment for engineering electrical time table allocation project , engineering v: foundation system 
+3. Topics : 
+Lecture note ;
+- course home :
+Syllabus.
+- topics lecture note :
+* Introduction : engineering learning .
+* Framework and analysis tools : module 
+* Framework .
+- field trip .
+.
+- project preparation v..
+- case studies of models and assessment in policy : 
+- topics training learning institute polit assessment ...
+* 10 .topic project : 
+Create found circuit cell wath happen found wire research vprensent class , introduction test class with .
+______'
+* Activjty framework | mark allocation | module || rating || check byes || yes || no 
+_______
+* Task || timeframe || type of assessment activity || scope of asst || suggestions marks allocation |||| % contribution to year mark /)
+1. Term | test prat 
+
+2.term
+
+3. Term 
+Total ..
+Department high .
+Marking bmemo .
+Topics  ..
+Icass 
+Isat level .1,2,3,4 eny
+12.topics : 
+Drawing make labell diagram ..
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 13, 2025, 7:38 PM
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- reference: PG 1-50
+St peace college 
+- tshingombe fiston 
+Memo tech 
+Database students:
+- abstract .
+- document v.
+- summary 
+PC
+
+Textbook n1 ,n2,n3,n4,n5,n6 , engineering studies ..
+Subject bject outcome total completed 
+Self assessment, assessment ,input and out put . feedback 
+Foundation formula design
+Exercise homework 
+*1 purpose memo.
+Question/answer 
+
+1-A-A.../ BB .//CC//DD//outcome A+C+D+E
+Design circuit formula fundamental basic 
+Inventory claim.
+
+Circuit resistive .. conductive,semie conductor, Kirchoff motion low.
+Serie parallele ,mixt 
+
+Trade theory el| industrial electronic|| engineering science ||
+Circuit inductive .
+Circuit capacity 
+,, circuit mixte ..
+Ac ,DC courent circuit machine
+Transformer 
+Measure 
+Diode , transistor thyristor 
+Total balance matrix line output ..
+* Question cpd  learner .. development circuit conductance , impedance b, engineering electrical.
+- applied engineering science to master skill engineering 
+- * purpose to trade , basic trade theory fundamental design 
+* Requirements 
+- operation trade low rules skill to skill 
+- advantage .. disadvantage  of component b
+Rating field subject .
+* Applied to applied skill resolved physic mathematics to skikk electrical panel ,, ..
+________.
+Engineering studies 240 month nqf ,.applied saqa to isat practice purpose isat ,ent topics operation grinder .
+Sub task , activity ,time frame manufacture b,size time ,marks resource b, ..
+______
+Division job , division operation equipment phase preliminary phase ,semi time compey , cycle recycling.
+,,
+Time competiy ...- scale module ..
+* Cpd qualification b:
+Statement v of works experience ,logg book ,6 years /2= 3 years equivalent job , 
+- work where appropriate applyt packing  lubricant to assembly in standard .
+- where appropriate applying packing sealing ,
+- inspector checking bfinal where appropriate returning final assembly ,1th,2th ...
+- qualification integrity 
+* Undertaker material cable leaving b, conductive labels b,thermo copper insulation b
+* Correct formula b.
+R=✓resistivity × length ÷ across section diameter length gauge module dielectric test ..
+- gaz liquide ,solide .
+Q= permeability insulator ,
+- chemical PVC polymer vynic court, appropriate ,
+- A= i× u×t..test
+.. module trade to trade skill report trade , test modules bsafety fault b...---
+__qualificatiib  electronics , undertaking numeration ,
+Diagi..
+Cpd qualification : electronology ,, ..
+Procedures component b..
+
+** Laball trade skills..
+* Outcome project total design matrix card completed..drawing sharp function mathematics band engineering science function work job input output 
+___________&
+
+Reference 
+: st peace college 
+Practice.lab workshop topics total component , manipulation test experience subject make things 
+Inventory manufacture:
+ engineering electrical control trade engineering ,supply trade engineering 
+Design layout linear engineering 
+Area = 7,5 = 15,75× 2,1= 15,75 cm ,
+Volume = 6× 139×3= 780c ,8 turn / 9 turn ..
+Breakers transfo , breaker , measure instrument switch make .
+- control panel wiring campare switch way , engineering dimensions phase single v
+- electrolyse energy..
+- disct investigation make trade circuit serie parallele condensator tube triodev
+- comparator weastin bridge , manufacture resistor..
+Comparator..test wire bending trade manufacture resistor make compont
+___&_________
+Reference textbook ,assessing college st peace
+Text book project , total circuit investigation , book experimental ,project exercise b,teach note .
+Conductor , insulation, magnetic b, investigation vdata electrical wizars 
+* Unity bscience bfind 
+Content component | skill | asst
+..
+
+* Teach board
+...
+
+
+	
+	
+
+ 
+
+56.1.Reference:
+St peace college.
+Student: tshingombe tshitadi 
+Topics./  120 PG 
+Information data systems completed 
+
+
+- practice engineering electrical practical worksi and laboratory project,
+-; practical workshop and  laboratory projection engineering engineering electrical practical workshop and laboratory projection , investigation conduct detection b, traffic vehicle patrol , assessment stationary wiring table discovery fault find protection device b installation safety b.
+- electrical wire logic system ,control system , electrotechnic, electrtechnology, mechanical ,n1,n2,n3..
+* Research drawing wire electrical circuit connection test .
+- college trading b practice making things 
+ College industrial practice engineering test .
+- examination evaluation library discovery.
+Author submission: tshingombe tshitadi
+Learner and educator; 
+* Construction electrical ,
+Installation : task , installation topic built automation , system control system 
+Performance occupational skill ,
+-;related funct , fabrication insert
+- communication an mentoring technicial.
+- insert service mainttet ..
+* Electrical trade test : vocational subject : explanation importanc..
+- engineering fabry .ncv material .
+- learn outtb, .
+*
+Explanation, shap reason btrade mathematics..
+
+-; explanation mechanical reasoning 
+Tool using on wood puling
+-;, explanation bpoint circuit ,,reasoning career circuit trading ..test ..
+Exercise 
+_________
+
+_______&&&_&
+56.1Reference textbook 
+Information.129 PG
+Engineering electrical practical circuit component development assessment in lab ..
+Specifications of electrical motor .
+Fundamental cincei 
+- electrical motor basic ,concept torque , mechanical benergy ,system connection series parallele , 
+- insulation and material insulation vmaterysh   sysfeb is 
+Rated ,duty  state ,
+- control  diagram system v,contactor ...motor option ..
+Explanation n... system m control ,...
+
+____
+St peace college 
+57.Reference  48 pgv
+Information Scotland  sqa curriculum 
+
+
+
+Engineering science assignment n4 ,skill 
+Course  engineering b,
+System approach , simple b.
+_ assessment , description authority 
+Engineering b
+____________&&&&&&&&&
+Practical engineering electrical practical workshop laboratory projection ,
+Research drawing 0 outcome subject 
+Career in phase
+
+*Engineering scient completed 
+Mathy linear basic fundamental engineering, f= ma + mg ,,
+V= u +at ,= p= w×✓tb,,fu ,equation algebra ,linear  exponevt ,
+Ax ×✓by = ,
+a.ax+ b.v .y = ..
+* Theory trade electrician electi ..
+* Assessment policy ruling value poes ,iff ..
+-;design planing research field ender planing b, development bcimoon device protection v,idee ..
+* Policing crime resolve ..crime  incident vehicle , collection crime info ,, 
+
+_____&
+ 
+
+
+...
+
+
+
+> 
+	
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+58.Reference: 
+St peace college: 
+PG 1-86 
+Practical engineering electrical - practical workshop and laboratory projection engineering .
+Police engineering engineering electrical practical workshop and laboratory projection engineering investigation conduct detection traffic vehicle patrol , assessment engineering wiring table discovery fault find protection device rules safety .cony wire logic , control system electrotechnic electrtechnology mechanical, research drawing wire electrical circuit connection test , college..
+- 
+Oral assessment value engineering electrical total table | check out in 
+- student table relevant ..
+
+* Type of assignment 
+* Project type | possible information needs ||| relevant resource .
+* Visiting | campagny historical , operation process statistics ||| company prospectus , annual report 
+* Investigation | legal theory process state art problem possible solution research current debate | textt , journal article ,govert scientific industrial participate.
+* Research | details information the topics theory recent research ,rest methode || textbook , journal 
+* Theory,curry state of the art , previous b..
+* Established topics 
+Introduction method or technology b
+Your project .
+- compared results ...
+* Project , report 
+* Topics approach , outcome ,conclt .
+- title : 
+Weak title 
+Anat
+Interbr 
+Assignment 
+Protection 
+
+____
+Totsj subject matter expert 
+* Reproduction || application || analyse || evaluation ||| compare test 
+
+Subject submission evaluation .
+Learner outcome | value weight || reward || reward certu 
+
+Electrtechnology 
+Electrical trade theory
+Electrtechnology 
+Logic system 
+Devit protection 
+Engineering science
+- industrial electronic 
+Engineering drawing 
+Modi
+General aims
+
+Files assessment st peace 
+Description number : 600961135179
+Engineering science 10 page 15070391 comply
+- knowledge | undersi|| application |€ evaluation ||| 
+* Weight value of module .
+Module | description || weight value %
+_ safety precautions 
+
+Mark allocation time table | explanation theory 
+- module | explanation design drawing workshop lab..
+_ module  || code || objective |||criteria 
+Workshop 
+Hand tools b
+Material: recall section | relevant tools hr | recall different battery  sabs
+-recall 
+Join conduct 
+Soldering 
+||• test battery , manufacture specificat correctly ,ahere 
+Tender..
+Installation mountain 
+- switch board
+- motor 
+Flexible.
+Ac machine.dc machine
+Wiring connect.
+* Certificate level.
+
+
+
+____________&&_
+59.Reference: 
+- textbook:
+- st peace .
+PG .1-51
+- author submission : tshingombe tshitadi :
+- self assessor moderator student .
+- learner teacher and educator assessment ..
+- 
+ ,saqa reference award degree diplomat .
+Equivalent ,45..
+- test trade industrial exam college assessment time table activity.
+- archivist number : 01/052020 legal policy .
+- award degree diplomat certificate high education saqa framework policy .
+- submission : practical test engineering electrical write execution filling registration ,set down judgement assessment value 
+Information: 
+
+* N1 saqa is 67109-nqf 1
+* N2 saqa 67375 , nqf level 2
+* N3 ,saqa I'd 67491nqf level 3'
+Saqa qualification I'd ,,saqa title .
+- 
+- assessment criteria 
+"Practical participate work group test brainstorming 
+Planning check 
+Topic training .
+* Traine .
+- completed 
+_____&&&@
+*60.1 Reference: 
+author submission :tshingombe 
+- pg1-60
+* Material equipment African .. institution police department 
+* Requirements manufacture trade training train license 
+* License fire arm .
+- exam papper topics 
+- cv letter question 
+- company support learning 
+- wrong model
+- filing subi
+- basic to. 
+* Workshop lab completed library case book 
+Subject b,module  book answers b, requirements operational steo remanufactured..
+Explanation drawing support integrity on module support engineer electrical 
+..
+...
+
+
+	
+	
+
+ 
+
+- 61. 2reference: 
+St peace college:.
+Tshingombe tshitadi 
+- test trade industrial exam college assessment time table activity ,12 module semester time table engineering electrical , portfolio 
+Archive number 01/0520029 legal policy assessment 
+- award degree diplomat certificate high education saqa framework.
+- submission , practical test engineering electrical write execution filling registration ,set down judgement , value pg1-248..
+Student tshingombe tshitadi 
+
+.name 
+Learner : ,,
+* Caps curriculum and assessment policy statement  document grade  .
+- foundation phase ,grade
+- intermediate phase grade 
+- senior phase 
+- fet phase / 
+N1,2,3, 
+Electrical technology b
+
+- electrical technology , senior b certificate caps , 
+Background, overview, general aimf ,
+Time phase allocation , foundation,intermedy senior
+- intro wath is eleci technology 
+Requirements for electrical technology 
+- career opportunities in electrical technology 
+- teaching annual for technology 
+Subt  totaj ..
+Week topics
+Grade 
+* Engineering national vocational v.. assessment tools instrument b.
+Ent ,lecture , record report 
+
+*
+.
+Design nated cover policy time table didactics.
+Subject || assessment task||| mark allocation || | content |||| program
+* |1|2|100|| resistivity, magnetic, batteries, electrical circuit modules measy instrument, conductor , insulation control |||| week study module completed submission week 
+* Engineering science  | 108,118 ,129 
+* Mathematics 
+Engineering drawing 
+* Engineering n@ 
+* Electric ..
+Drawing label, explanation wire power meter squared v
+- completed explanation bsub station maximum allowed number support distance post ,main circuit breaker , insulation, 
+- 
+Assessment tools marking assignment schedule allocations covered .
+* Subject electrical engineering.
+* Module lesson plan ,and daily .
+* Time table 
+* Topics 
+Learner outcome objective .
+- to identify 
+- to explain 
+- to describe 
+- to mm demonstrate..
+To analyse ...teach activity ..resource 
+- resource acti
+- teacher .
+.. subject : electrical engineering .
+Bibliography saqa
+
+
+...
+
+[Message clipped]  View entire message
+
+
+
+	
+	
+ 
+
+St peace college 
+62.1Reference.
+Tshingombe b..
+Information learning..
+* Criterion :.* Resource .. write evaluation ,web base student opportunity v..
+Measure power of learning ,score 
+- a candidate ability to process reason logically ,
+- criteria attention skill test 9-12 minutes,test  concentration.
+The test is ...
+- test mechanical aptitude ,39 minutes test designy  application to install maintaining and repaired ...
+- critical skill test measures skikk entry level position that basic computer 
+
+...
+
+[
+
+> 
+	
+
+	
+	
+
+
+- criteria skill test.
+-critical basic  computer program..
+- criteria basic test , minutes 40 question assessment math grammar , spelling and language skill screen entry level overall trainability.
+- typing test : one minute test measures typing speed and accuy .
+- typing test measures speed candidate ability numerical al data entry.
+- excel ,the excel test is 20 item exam that measure proficiency Microsoft excel it take 10 minutes to complete.
+-word measure an application proficiency in Microsoft word test contains 20 item .
+- power point measure candidate .
+- computer literacy internet knowledge test 29 minutes test consisting of two tasks multiple choice questions task takes three minutes ..
+- sales achievement predator assessment measure carsctery trait ..
+- customer service aptitude profile posiy .
+- employee bpersonality  test measure twelve environment assertiveness, competitively .
+- workplace product profil assessment screen level bcandidat ,trusi reliable measure competivnrs ,
+- criteria personality inventory ,test base level candidate bopeb  extroverst, conscious agreeable extroversion neuroticism job performance..
+* Criteria band ather trademarks are the property respective trade holder  
+* License electrician asst ..
+Award 
+* Licensed electrician theory ( let) exam test board range of knowledge 15 minute in total ..
+* Licensed electrician practical test split in four part ,a practical btesr spit wiring box and switch men system,,sefe work
+* Free test 
+* Electrical class license technicial record trade school b,an supervisor work.
+
+Apprenticeship assessment.
+- trade apprenticeship aptitude test
+- test time. 10
+- question.  10
+- pass score.   80..
+* Eia elevator industrial  test .
+Test time 
+* EIT test 
+* Assessment ' 
+Apprenticeship usually ,17-25years
+- how mutch apprebybget paid .
+_ .what are characteristics of integral the apprenticeship process : 20⁰ hours skikk class room theory .
+- wy are the advantages of going ..- the apprenticeship : 
+
+- advantages use prepare material : up to date material , fujj simut practice test ,practice whitn exam ,
+- construction maintaining electrical component repair test data 
+* Topics asst report daily,log activity, report schedule book 
+* Subject translate..
+_____&_&&&__
+6.4Reference ,st peace college :
+1. Topic 
+
+2. Assessment .center .
+- study the assessment center process ..
+-;read books leadership manay.
+- prepare orak resume practice 
+Interview 
+- preparation for specified scenario .
+- prepare intervit ..
+
+* Tag ,command staff ,job , leadership ,police exam , policy job and career..
+* Modeling and assessment for policy ..
+* Course description : policy information information policy description student development band understand of quarantine technicial policy process ,case studies b, course ..
+- problem ,due session risk assessment b modej creat framework , risk assessment b, assessment risk , facilitate,draw modej power point skidec base risk ,, management.
+- case studies chemical ,case study , lecture b
+* Summary and application : synthesis term project ,course..
+* Ses | topic|| lecture note
+Introduction 
+- science a policy 
+- brief overview.
+* Frame and ansli tools ,:.modej for science 
+Modej for policy . infiltration effective policy ,.making ..
+Modej exhibition, museum bof science.
+- framework science ,policy and the public b, framework risk , precautions , projection preparation v..
+*Case studies model assessment in policy..
+Project check point .
+- rains negotiation ,
+- case study fishier ozinfv
+Country negoy role outcome .
+* Learn pathways understand assessment if requirements learners ,level 3, 3',, assessment v, accreditation v,type cresy ..
+Award in assessment the worh environment, in relate vocational..
+- lecture vs lecture vs professional 
+Module vs module , subject assessment circuit term .. warenty ..
+
+- ___&&&&&&___________
+* St peace college:.
+65.2.Reference. 
+1-120
+Information: assessment 
+- saqa award degre diploma , equivalent 45% ,50% ,1th ,2th , equivalent 
+* Safeguy vulnerable adults policy.
+- content 
+:- introduction.
+-safeguard vulnerable adults policy .
+- immediate action to ensure safety 
+- recognize of abui or neglected 
+- physic abui
+- psyi abuse 
+- financial and material 
+- actions to be take ..
+- confidential .
+- internal verification .
+- appeal b procedure BB..
+On going review b..
+Group country working.. profile st peace .
+- the rolesof assessor .
+- moderator processt 
+* Assessment team 
+* Pract methode processing a veht.
+Finger print investigation technicial search sense approxt comon 
+- international operation target trafficking of stolen vehicle motor .
+- rsa police annual report b
+- modej for prevention of corruption related
+- human factors investigation into effective bof traffic related search ..
+* Policing  question assessment college distance 
+- saqa unescu learning pathways 
+* Formative assessment , summative finaj assessment 
+" Feedt.
+*Procedure for learner with difficult 
+- external accretion
+- responsible development 
+- judging feed and support candii on assessment 
+- contribution internal quality improvement process .recording assessment.actuvity
+Role and responsible of 
+-- carryt.
+- monitor quantity assessor .
+Sample .
+Meeting ..
+Frequencies activity award body requirements.
+- new qualification 
+- evaluation of procedure 
+,_____&_&&&
+St peace college 
+Sciebono,,
+
+
+Policy 100,PG
+Saps regulation.
+Lab policy forensic detective..
+____
+St peace college 
+66.1Reference.1-70pg 
+
+Examit evaluation library discovery 
+Submission : tshingombe tshitadi.
+- learner teach and edu ...
+Practical engineering electrical 
+Assessment search assessor course ,days course.
+Explanation police sector , college polichbv ..
+- instructor role ,,
+Link professional framework b. Investigation programm 
+Time 
+Profession context
+National occur .
+- outcome.
+- learning content .
+Delivery recommend,
+- trainer role ,
+Mao .
+
+- training cycle b
+...
+
+
+
+
+	
+	
+
+
+- st peace college engineering ..
+67.1Research drawing wire electrical test practice 
+PG 1-69pf
+Information..
+* Study of police management int system ...- 
+- reseat  report : .....
+Specifications: ..
+Report municipal force Canada  ..
+- target information processing b..
+- technoltb,news , communication systems.
+- internal  operation b, system release .
+- central record stored case access retrievah for ,statuscib..
+& Specific standard for law e recordt management system ,
+Use case , diagram , analytical support crime , tactical analysis extend ,tools forecasting ,, 
+- role ,,base report .
+- report accident crach .
+- report property evidence 
+- interview report ,
+- case management report biling  warrent use case diagrams b.hov ,case aggregate report agreement b,ways cfs warrants , incident report , traffic data , property data ,and weapon ,query retriever b must query on indicator date ,, security system ,search quer ,,, secymy system tired password authority authenticator non repudiation, technologies biometrics bebtey Dara ,, 
+- use case diagram , administrator system maintaining data geofile mainy is validay location address law enforcement ,zip code ,x,y,z bindi basic
+- softy police advantage v..
+- invalude complain .
+Citizens for 
+Valid information 
+Is completed .
+- missing person.
+-,missing forb 
+- requirements.
+- testing system design..- program and code homes security..
+- information electronics citizetv
+- age , birthday , complaining 
+Forb  policng record .
+- stop check form ,delit serve ,check  I'd .check ..
+- admnisty .
+
+- compkay for invalid criminals ,is 
+- data dictionary..
+
+- implemented steo challenge and cost estimator..
+- estaby ,portaj web , cybernetic criminal,insert configuration of networking b, maintaining support ,help facilitate b, inadequate information infrastructure bpolice system ,lack of awareness of police and citizet..
+- no accept if inft communication ,.. criminal I'd , delivery stop. 
+* Wiring 
+* Police siren diagram..police interceptor modified , 
+* Controller police wiring 
+Harley ,police special vehicles..
+*Traffic light control  system ..
+Traffic. Light circuit timer ic 555 
+Component requirements.counter ,diode ,Les ,resist, variable,,construct working 
+
+
+...
+
+
+
+
+	
+	
+ 
+
+-68.1 reference: police trade engineering 
+St. Peace college:..
+Basic police education structural ..
+Saps annual report..
+Safety ...
+- introduction to policing practice ,
+
+____________________&__&___&_
+St peace college information 
+International 
+Electrotechnic commissioning 
+,
+
+Purpose : standard for and related ..
+Headqt... history , full member ,voting affiliy technicial commity
+- * electrotechnic .- content 
+- introduction.
+- general requirements for peer assessment.in ca system 
+- use of peer assessment.
+- acceptance programm 
+-national accreditation 
+- unified assessment 
+- unify assessment.
+- peer assessment requirements.
+- application of iso ,iec 17040.
+- assessment type.
+- assessment 
+- recruitment of news assessor ..
+- appointment of lead assessor.
+- cab peer assessment fundamental forward .
+*Introduction ,the iec conformity assessment board ,has formal policy that requires ..
+- fundamental element for operating a peer assessment ..-
+- assessment process. Schedule vopersted by ...
+- to accepted for participating schemes operated qualification procedure ..
+* IEEE,, transaction..
+___________
+
+
+MEMS ,, micro electronechy system .. nano electromechanics..
+
+* History ,types,silit, metals, ceramic,
+Basic process , deposited process , 
+,- physical deposit, chemical deposit , patterning, lithography,
+- electron beam ,ion bean ,ion track technology, x ray lithography, diamant,
+* Etching process ,isotropics , ant isotropics, hf etching ,electroche micak etching ,dry etching,vapor,plasma , puttering , die prep, 
+- memes : manufacture technologies.bulk micro machining , surface micromachine,thermaj oxydatiin ,high aspect ratio ,silicone ..
+___&&&&
+St peace college 
+
+69.1Reference: 
+Information 
+Material didactics lab open , workshop 
+
+Manufacture 
+
+
+Electromechanics..
+- winding .. rewinding ,coiling machine ..
+
+- transfo ... assembly ,motor assembly asychry
+- insulat test  ..
+Supplier. Unity power numericaj
+ electrtechnology ,test rotor stator
+- _____
+Electrical machine open lab 0,2 kwg system module studev low voltage,module pane 
+
+Electrical panel studies 
+
+
+- electronics panen numeric logic panen combine input output ,..flip foo ....
+Composition panen addition sustain multiplex , demultiplexing ,and ,4 na d input output ,bir ..
+Gate 
+. network connection , wav installation reseat ,
+Calculator  network interconnt atn ,framework ,ipz address , ion routine ,routines panen algot , struct routey ,test ICT panel module , connected ,texhnicB ip telept voip test ,.
+.* Panel thermotronic ,refrigeration system , research experience ..
+* Lab genie biomedical 
+___
+School genie v..
+- instrument measures ..
+- electrotechnic.. fundamental b..
+
+____
+- engineering pedagogy : 
+
+- sector : counseling , training ,multi media social,
+Level ,code rime : responsible pedagogy conceptor ,act develop competence..
+- engineering pedagogy master platform lms ,chief project technology pedagogy , platform pedagogy ,chief project e learning  expert video ,support ,, 
+& Portfolio , network ,web ..
+
+* Summary : 
+..
+Master pro ,ion multimedia..
+Master pro , defense ingenieur ..
+Master pro didactics and engineering v.
+Master pro reseat  learning and teaching science technology ..
+
+* Responsible direct , ingenieur responsible pedat , code rime ( 22213) is 
+
+
+
+...
+
+
+
+> 
+	
+
+	
+	
+
+
+- technical engineering 
+ 70.Reference: ..
+St peace college .
+* Article scientific and technicial,news technology data information..
+* Resource document; , innovation,COVID ..
+* Laballe and quality marking : marking ce ..
+_ * certificate of a product.
+- old  norm.
+- normalisation of industrial ..
+Mechanic construction norn:.
+- evolution  of Norman 
+Pluri ,,
+-multidisciplinaire  construction mechanic ..
+
+* Wath is norm technical..
+- typologies if norm
+- status if document, statutory of document France ,,internal..
+- wath is necessarily of norm ruling , 
+* Norm ruling ORGANISATION 
+- ruling ,directive ,,
+Minister arrest norm marketing..low rules...
+* Offer 
+Introduction : context .
+Definition 
+Different case engineering ,
+- phase ent founder.. engineering investment..
+* Study of pre engineering..
+Studies of site implemented 
+- pre - charge note of pieces booking 
+- calculation previsionan of product workshop 
+- pre selected principle ..
+** 
+
+
+...
+
+[
+
+
+	
+	
+B 
+ 
+
+-71.reference 
+- st peace college ..
+PG 1-46
+- registrar form 
+By  studen : tshingombe tshitadi 
+Information learning..
+Data learner ..
+
+Manufat .design guide , tutorial thermoelectric..
+Large inventory of premium quality peltier module , 
+Wikipedia..
+Background information ..
+- a typiy thermoelectric system.
+- thermal schematic.
+- design process.
+* Estimate heat loads
+* Define temperature.
+* Choosing a peltier element 
+* Choosing a tec controller.
+- choosing tec controller .
+* Heat sink .
+- fan 
+* Example calculation .
+* Temperature sensor .
+* Power sut reqt .
+- test your setup.
+- thermoy cooling assembly ..
+
+Peltier cooler applied accros device  
+Contents :
+- operating principle.
+- construction 
+- design .
+- materials.
+- identification and characteristics.
+- strength of weaknesses .
+- benefits 
+- disadvantage.
+- performance .
+Consut product industrial 
+Public..
+* 
+
+
+* Binary additional: 
+Binary system :
+- binary substrate 
+- binary arithmetic b.. circuit diagram 
+72..reference
+
+* PG 1-40..
+Telephone ...
+* ------;
+Information gazette , dhet gov n4-6  notice  training .. lecture pory of assessment tools ,and  education  program , program department ..marker. Programm  or any other . marking center ....
+*____
+* Education  computer base ICT  years learning v,comparat  analysis of software to conduct computer test , majer ,bank over text book module lines .
+
+_______________________________&&
+73.Reference: 
+Portfolio and files submission: 
+Memorandum 
+Textbook completed self assessment 
+Homework,class work evaluation 
+MarkSheet ,test 1,2 term topics : 
+N1,N2,N3,N4,N5,N6, 
+Exam paper 
+
+Exam papper previous, question and answer marking ..
+*
+St peace college .and
+* Higher education training depat higher education and training republican of south Africa.
+* Marking guideline.
+National certificate electrical trade theory , 5 PG ,,
+* Question papper consist 5 pages ,formula sheet 
+Time 3hours,marks ..
+* Answer .
+* Instruction and information.
+* Question relating to the wiring of premises must be in accordance with the sabs code of practice.
+* Candidate will be penalised for untidy illegbble work .
+* Read question carefully and answer what been asked ,
+* Question answer order subsequent of must not be separated .
+* Rule off on completion of each question .
+Mark .
+- rule off completion of each question,1mark 
+_____
+* National certificate engineering science n1(15070391)
+X papper question papers 10 PG 
+* Instruction and infot answer ball question 
+- read all the questions carefully .
+- number the answer according numbering system used in the questions papers.
+- answer must rounded to three decimal 
+- all calculation must have following three steps . formula replacement answer .
+- gravitational acceleration shouk 2,  
+
+
+* Industrial electronic n1.
+- question papper 5 page and formula 
+* Mathematics n1.. marks 100
+26 November.
+* Instruction and information .
+- answer all the questions 
+- read all the questions carefully.
+- number of the answer any order but subsection  of must be together .
+- round off final answer to three decimal place unless indicated otherwise. 
+______
+7.5.Reference.. portfolio file 
+St peace college and dhet ,
+Ekhuleni tech .....
+Past exam papper memo , cost order R300,examin access R 1000 
+N2..
+* *Engineering drawing N2..7 page ,,
+
+* Marking guideline consistent of 9 pages
+
+* National certificate ,electro technot N3 ,time 3 hours ,marks: 100
+Instruction information 
+- answer all questions v,read question carefully v,number according to number system in the questions .
+- the correct information must be copie question papers st,
+- rule of after comply must be done in pency .
+- the sketches  diagram must be neat reasonable large and fullt labelled .
+- the answers must worker to three decimal places ..
+- use the correct units for ..
+PG 23..
+_ mathematics certificate n3..
+- N3 electrical trade theory 
+_______
+National certificate electrotechnic N4 ..non programmable calculator may used ,
+Question papers consist 6 pages a formula sheet 2 pages..
+**Marking guideline .
+N4 ..marking guideline consistent of 7 pages
+ ..
+N4 . entrepreneurship and business management n4 , question papers 
+N4 mechanotechnology
+N 4 electrotechnic 6pages
+N4 industrial N4. 6page
+N4 mathematics 
+N5 engineering science
+
+...
+
+[
+
+
+	
+	
+ 
+
+N5-n6 exam paper,and mark guideline 
+St peace 
+- n1-n6 
+St peace college portfolio.
+1-33
+* Assessment outcome st peace college band aio activity low exhibition pe exam ..
+*Expert intelligence ruling 
+
+75..reference
+St peace college 
+Portfolio , 
+Formal technicial college instruction n1-n3
+Part (N4-N6 ..n diploma ..
+Icass term engineering .
+Subject || week || week 
+Lecture science engineering studies .
+Analyse gride..
+* Process      || responsible || timeline 
+* Criteria | examination || moderation 
+- cover page || 
+- page .
+.. criterion 4 ,cognitive ,
+Criteria ,yes / no
+
+- subject || assessment task || assessment took ||| content ||| duration and mark allocation || assessment date 
+
+Task | time frame || type of assessment the duration alloct | scope of assessment ||| contribution icass trimester |||
+
+. subject ...
+Years ...trimester
+Icass trimester MarkSheet||| class marks task || final icass mark - rubric for the assessment of practical task business studies 
+
+
+
+
+Assessment guideline ,
+Moderation of assessment , internal moderation ,periods of validity v, assessment requirements ,type of assessment v,baseline assessment , collection evidence record ..
+
+----------
+--st peace college:
+76.Reference:
+Tshingombe tshitadi .. certificate 
+Additional information:
+Assessment center irregularities:
+Submission 
+
+
+Time table exam papers1-46.
+Test 1: mathematics / faculty engineering electrical 
+Preparatory phase and selected orientation assessment n4,n5,n6 , certificate preparatory ,/ diploma criteria continuing supplementary.
+- time 3 hours .
+Subject ex...
+1. Explain:    ...........100   award mark
+2.discucc 
+3.explain .
+4 calculation 
+List 
+- statement.
+Calculate.
+- calculate .
+Drawing and explain
+- investigation 
+- analyse ..
+
+__________
+79.
+St peace college 
+Dhet ..
+ portfolio evidence of low 
+PG 1-98 ..
+
+
+Irregularities final papers  exam 
+Submission 
+Additional information:
+- I'd n final award  dioloma 
+Question / and answer mark ..
+
+...
+
+
+
+	
+
+	
+	
+ 
+
+* 78.reference 
+st peace college..
+Portfolio evidence low.
+Portfolio exam ..
+
+1-78 pg
+- test trade industrial exam college assessment time table activity college ...
+Exam previous papers st peace college 
+By tshingombe fiston..
+* Supervisor in industry ..n3..
+N1 to n6 .....
+______________
+St peace college ..
+1-96 pg
+Application registration ..
+Irregularities  letter register submission final n5,n6  n diploma award certificate.
+..
+Portfolio evidence ,,police institute ..vs 
+Information..
+Instructeur .
+Exam policing ..and engineering n diploma 
+- administrator and communication skills exam ...
+* Exam papers ..
+* Management information 
+* Management system information 
+Portfolio learner guideline information and document system inventory 
+* Supervisor portfolio evidence .
+
+* Portfolio planning : evidence low dures .. portfolio evidence ..
+Files
+
+* Computer practice n6 ..
+Information system .
+* .. evidence low..
+* Assessment engineering course assessment summative continue test , 2 years semester .
+- scope ,topics ,off engineering v..
+* 
+* N5-6 exam .. mathematics 
+
+St peace college ,dhet nated 
+Question and answers:
+
+* Electrotechnic, electrtechnology, industrial electronic,power machine, engineering science , industrial electronic..
+- control system..
+______&______&__&
+* St peace college filing 
+79.1Portfolio.
+* PG 1-50
+* High education department saqa ,st peace portfolio 
+Tshingombe 
+Award  n diolome 
+50% , 50/100.. equivalent.
+Name surnt accreditation minimum.
+I'd / name qualification // provision / move file in our ..
+- subject file studer 
+- test circt nice  ..
+Test operation , 
+- tools assessment mark checks : instt .
+- volt , statement of worh programm b....
+* Resource hume learner .. finalize.
+* Problem sector ent..
+* Abstract school.
+* Hypothesis : low phenomenal .
+* Acknowledge: 
+** Synthesis .no record irregularities ..
+* Purpose : planning  structural multiple 
+* 2.1 purpose operational step : operational research : examination diploma b..
+* Research abstral purpose : not meeting finaj instu regulation .. final 
+* Purpose ,exam center workplace power a.
+Supply meter square ..
+- engineering case study ..
+-.puroiae advantage disadvantage research trade in panel wiring skills ,purpose reason..
+
+Switch engineering 
+* Design panel  test operational , ac ,DC verification ,,trs semiconductor,test operational transmission v..
+** 
+Statement of work experience logbook..
+Code trade .. issue bn 360 credit ,180 are award to experimental training for achievement n diploma ,,
+______
+80.1reference 
+St peace  college ,and a
+Faculty : electrical engineering 
+* St peace   college assessment engineering b,filing 10 PG 
+Foreign institution , 
+- inquiries 65946..
+Saqa enquiry response two days further research ....
+_______________
+Letter saqa 
+Dear tshingombe  ..
+- section 29(a) of policy and criteria for evaluating foreign qualification with the south afrt as amend ,march 2017 stipulates the requirements that foreign. Award institution must meet for iti qualification to be recognised.
+- saqa bases the advice below on infot curry to  saqa reserves the rigfg to change this advice ,should new authoritative information come to it's attention.our online application documents stipulates the following in terms schooling qualification, saqa accepts only school leaving qualification issued by official examing , certificate body in  country of origin ,and not by school where based on external examiner.
+- no certificates  of evaluation will issued for for school leaving documents other than those in respect of completed national school exit qualification issued by the relevant authorities ..
+- therefore ,only school leaving qualification correctly awarded by the authorized national examination body in the  Democratic republic of congo will be recognised and not school leaving documents issued by the the school itself ..
+- please note the purpose of this overseas institution email is to give some direction regarding accredited and non accredited foreign institution for purpose of recognition and acceptance ,by saqa for foreign evaluation ..king regards  authentication service saqa .
+* The national qualification framework nqf act 67 of 2008 mandates saqa provide a foreign qualification evaluation and advisory services which win accordance with the policy and criteria for evaluation foreign qualification with the south tnqf as amended march 
+2017 section 29(a) of policy  and criteria stipulated the requirements that foreign award institution must meet eits qualification to recognized 
+
+...
+
+
+		
+
+Portfolio evidence low base saqa enquiry b/
+
+
+
+	
+	
+ 
+
+Portfolio evidence of low verification coverage..
+Discovery.
+N3-N1/ grade 12... business English, physic, 
+Grade teacher phase police traffic safety security , exam questions metric open ,master skill engineering matric ,time ,, 
+*Designing model  didactics : subject ..term 1,2,3
+1 evidence low organisation supervisor planing ,
+2 low supervisor management v..
+-loa design system cloud Police management system , regulation size poes docket ..
+- low poes evidence police operation ..
+Low  system engineering fundamental explanation distribution system noise bonding shiejd light discharge v fault protection communication marking priority output physical architecture product element decision database  input archicad decissiin  control , verification low thermo electrical operation  manut performance vs curren max  controk  ..
+- Poe evidence low  mathematics rult term nomination trinomiaj polynomial factorisation sign  different product quotien low additional substrate multiplication division low of exponential power low trigonometry . Triangle algebraic identify low limited low continuity function low derivative  function existing relationship  low .
+- Poe evidence low physical engineering low system international low  unity relate meter kilograms litre Newton pascak amperage  joules celct kelvin meter second kilometr voltage  per ,evidence low static kinematic dynamic reasoning low force acceleration ,low if cylinder .low strength 
+* ,poes  evidence low electrical trade theory  electrical commissioning eic sake sans ,skill engineering outcome ,ac,DC machine serie exciting independence shunt compound load operation design .
+Character load power sign ..
+
+Low explanation generating supplier low inductive phase ,,test crime prevention low ,
+Total  grand skill development..
+Low operational requirements trade nated and ncv combination ....
+Assessment explanation low rules ..
+
+Irregularities material scripted and backlog sita project printed ,, career.
+Outcome..
+Operation trade low, construction,trade requirements phase trade low compared close code 
+Theory and practice trade code low ..
+
+
+. 
+
+	
+	
+ 
+
+- st peace college 
+Ref 
+ application form  
+ n diploma,, reference ..
+- workplace experience...
+* Letter .
+- academic information.
+Examination number | name instructional|obtain ||level || date passed acknowledge..n4,n5,n6... 
+
+____________________________________
+St peace college  and dhet
+80.1Reference: 
+1-3 PG
+Application NN diploma  and write job ncv combination nated and .. application.poe 's 
+Theoretically and practical on job 
+And function of function ,, function grade trade to workplace experience 
+Aware ,reward , irregularities job leaver awareness job on trade framework qualification n diploma.
+
+- name : tshingombe fiston 
+- assessment curriculum outcome .
+
+- 1.1 file running job employment vocational guideline.
+ID flips 0016910025
+- project , photography drawing , curriculum vitae , document design , homework financial legal wall documents .
+- 1.2content  PG data academy 
+
+- 1.section examination is results statement letter appeal ..
+- section letter data lms experimental 
+- info add back log  item workplace cvs 
+- management information systems and learning 
+- vocational guideline total theoretical bass framework total grand entry exhibition.
+- practical school management .
+- orientation class practice file store room cvs .
+Learner .
+- psychometric learner facilitate career job cvs write mentoring cognitive analysis synthesis evaluation.
+- technicial document archive file library case casebook review program page order price  work job .
+- choice career job hr.
+- personal training . issue license ..
+* CSD treasure supplier ID R016921978
+DTI: invoice .
+- R& D tax incentives reg : 2013/0344989.
+
+- civic ,
+
+...
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- seta  lms ,I'd =127952
+- assessor moder 
+- sasseta psira verification.
+- sarb: ID 61095446 vocational rules.
+- sars :SF7478: TM portfolio maintenance.
+- Microsoft ID: 9953174 ,Azure dev .op I'd 
+- scheinerde  I'd / 607069d9-fa26-423a-9d8c-d810df173a87...
+- bill material I'd ..
+- modicon plc configuration mort ,tech exper assessment 
+- eskom I'd : drop file 
+Off autg = 9a2334e83af@afc6dec30difc6,Dec 30dif59,
+-city power : badge ..
+Compliance city power
+- regional revenue
+|Designing description file ||.  Check|| no
+- destination description files .
+- total faculty career guidance rwite career outcome.
+- total experience: content 10 pocket 290pg
+- pocket section 1- file examination  25 page ,1-25 PG..
+A) statement N1,N2,N3,N4,N5,N6
+B) allegations irregularities letter .
+- C)in studies .
+D) statement swiorn affidavit,
+E)incidence report resolve complain .
+F) record academy transcript 2100203 812
+G) results 202311 release pass all subject letter qualification.
+H) cup exempted mark university capacity development letter minister transcript . registration . bachelor minister Lund's marking maraca .
+J) devt tvet guidance ma..
+K) evaluation foreign  qualification quotation 
+L)st peace  college certificate award electrical safety experience theoretically practical section .
+M) record training scheinerde certificate ,2 PG certificate of completion work experience.6 PG.
+
+N) Alison learner record certificate : diploma cpd certificate , engineering studies security detective police  forensic diploma platform 
+- meeting aluminum lms assessment .
+- certificate book mark registration up met police metropolitan police  career engineering ,isc candidate official candidate transcript  trailhy tableaux 
+IP  candifat property certificate original.
+- R) ID. Homes affairs permit 
+Cvs
+Pocket section 2 files 25 PG evaluation resulted complain case wallet document .
+A ) complain ,B case incidence dhet record 340311006003192 Microsoft.
+C) saqa purpose accreditation non credita saqa record outcome explanation letter ..
+D) procedure evaluation copy final saqa graduation diploma nqf national framework qualification outcome letter , ratification letter saqa employee experience relate Dr congo school leavers ,Qcto .
+F) outcome complain intelligence service inspector general  investigation cvs Poe record from datase ..
+G) Doj case civil ..
+H) cs treasure incidence close tendered supplier resolved ..
+J) congratulations test plan evaluation case book Microsoft incidence resolved 5 visual case support ..
+- pockets section 3 files 22,
+-A) letter completion practical t
+B) appeal statement results award.
+C) record transcripts irrey .
+- pocket section 4 ,files record sheet schedule irregularities registration time table , additional final years calculation vweigh ..
+- pocket 24 PG metropolitan 
+Section A) on line submission for : 1-5546-24 data right .met uk .
+- B) intelli property IP license MIO 327,24-0100certife copie copy answer submission  affidavit career city power topics visited site ,on line .
+- pocket 6:18 PG memory drawing .
+Project design : theory exam outcome draw .
+A) label outcome skill development subject,skill practical from work engineering practical theory trade nqf ,6 Scotland qualification trade skikk practical level ,67 work experience occupational .
+- pocket .city eskom project implications job curriculum experience visited ,city power eskom .
+- eskom science under key learner word process ,relay issue along license research.
+- cvs experience bibliotech libraie company.
+Pocket ,8 ,12 energy power electronics power project discovery design job ,job simulation theory machine instrument research job file job assembly job book ,ac ,DC machine , energy ,energy power transmission generation cogeneration , economic advanced .
+- issue license , algorithm ,I'd employee , issue certificate exam file , 
+- guideline vocat interview total career guidence accreditation choice field .
+- years achievement scored career faculty engineering electrical studies guideline test interview rwiten 
+- faculty policing traffic paralegal test career.
+- faculty business educare education career teach assessor moderator 
+
+- faculty it ICT 
+- vocational orientation statement interview company .
+- total grand engineering career.
+- talent engineering subject studies engineering senior staff , cognitive,scale waiting analyze, synthesis interview notice ,
+- practical school orientation practical office school room  practical office school class homework class ,
+- theorie
+* Portfolio : practical rules discipline discovery 
+___________________
+
+
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 19, 2025, 4:16 PM (13 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+Inventory prizes award literature and Nobel research prix litterary word key
+Explanation letter course subject 
+Discovery circular n diploma nn diploma printer ...job . Code trade national and ncv  job  company .award poes 
+Prize award.irregularities regulation.job 
+Prize awareness 
+Prize award framework qualification assessor facilitate moderator discovery
+___
+
+* Portfolio Parliament alert*award
+_____
+
+Notice motion  ruling dhet policy framework 
+
+* Prize letter nomination secret creative 
+Arrested ministerial..2023/1226 low
+Appeal statement results award degree diplomat .. institution academy police and national skill national trade registration 
+Notice motion low ,saqa meeting 71638 policy ..
+-Legislation education dhet  deputy minister dhet dbe and nrf nsf low rules amended nated and ncv saqa Dr congo leaver school regulation agreement phase circuit/. Dtic sarb cpic sector dme,lms .. private sector eligiblity,bill amendment prize code trade manufacture low training sector engineering trade operation skills 
+
+- administration education/ education dhet  
+- education social dhet government ..
+- method research course initiative project creation registration national award awareness .. conduct assessment ruling notice motion ...
+
+Creative allegat to Qcto  saqa retain ,letter to authority minister for results  investigation..
+___________
+Prize letter award ..
+Irregularities material irregularities 
+Letter record acat and transcript academy : to dhet deputy ,, create ..
+- weighting of course engineering 
+Industrial electronic, industrial, engineering, electrical trade theory, mathematics , industrial electronic,
+Mark guideline error low : 
+Create low contribution workplace asst  
+Low not appropriate stationary and marks retain ..
+____________
+Prize award ..
+Created record academy years transcript / buchelor engineering 
+Ucpd and 
+Create arrested minister is 210002023812// 2023/11,, release  college 01/02/2024
+
+ 
+Incident INC00025277051 report have been resolved assistance .
+Dhet , N3, qualification  achievement , complain response.. 
+Compliance ,person /minister / municipalities dhet ,,
+Notice motion low 
+Letter sita  appeal career backlog project appeal irregularities.n4 ,n3 subject fail candidat rwiten 2 subject fail , pendy rwiten 2
+Creative job ....
+Prize inventory..
+______
+Prize award 
+
+* Automated reply letter explt theoretically practical base . experience 
+Call center  dhet gov .za Omni microsoft.cin..
+- thank for contact dhet .regard nn diploma nated and ncv enquiry .news issue , replacement or combat must submission 3-6 month , waiting printer.. appreciate..
+
+___________
+Prize award 
+Screen saqa explanation cv
+
+-Evaluation of foreign qualification 
+-Team B
+-application check list
+* Documents 
+|Application forms| submitted| not submitted 
+| Quotation payment reference number  signed correct  amount not  submitted,short
+| Certified copy I'd  ,yes submission 
+Signal consent form ,yes
+* Document issued in original country 
+|Document in foreign language| yes
+* School qualification general university entrance qualification 
+| Issue official if application if not original 
+Relevant bord minister education | certified certificate,certified transcript , subject list 
+*High education qualification 
+| Final award degree diploma certificate | 1th submitted ,
+
+Not provisional certificate or unofficial statement 
+Transcripts of academic record reflecting each years of study   | 1th not submitted 
+- official statement from institution.| 
+
+* Country neco ..
+Exam certificate / report 
+* Country Mozambique 
+Minister
+* Country china 
+Ambassador 
+* Country Dr congo school leaving certificate 
+Baccalaureate 
+Attest the reussit aux baccalaureate ( relieve individual de note ) bulletin note
+- diploma d ' etat submission 
+- non  compliant..
+* Profession member / design short course 
+- short course 
+- saqa .
+
+____''
+Screeners initial 11.2019
+___''''
+St peace college 
+Award certificate in electrical 
+Follow , safety 1,design db ,socket outlet ..
+______
+Dhet  ,rsa 
+Statement of results 
+Exam number 
+Tshingombe tshitadi 
+ fiston 
+Industrial orientation n3, plant operation theory , electrtechnology , electrical trade theory..
+- industrial electronic, electrical trade theory , mathematics 
+_____
+Dhet
+National career advisory portal 
+Ncao value question results..
+Item | desct 
+______
+Incident CDs treasure ..
+Resolution.
+Description.
+__---
+Training theory practical experience company..
+Scheinerde r electrical 
+-eaton 
+Microsoft 
+
+
+
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 19, 2025, 9:19 PM (13 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+To: st peace college and institution.
+Date subject letter .
+To concert serves confirm Mrs was participate in the workplace integrated learning program research assessment irregularities exat nated ..
+- dear client  thank you for contacting nqf information center nic , please note if need assistance with evaluation of foreign qualification you can assist.kindlt note thate I have referred your e
+mail to the evaluation team  to assist with the process you need following ,king regards nqf information centre ,nic saqa Pretoria 
+___________
+* Re : / award dioloma certificate MarkSheet transcript letter experience theoretical practical engineering n study outcome .
+___"
+Re: letter explanation theoretical practical base .n diploma award engineering electrical,jxl6wjl
+- dear Mr/ Ms fiston 
+Thank you for email.
+- please note that application for evaluation is done online. 
+- attached are the guidelines for the application and the country requirements be ware that the maximum turnaround time for connection of the evaluation process 90 working days .kindly note that our system is not compatible with the IP phone ,ipad ,and Mac book ,your are advised to use device ,ensure that your fault internet browser is google chrome and that ..
+_____
+
+Price arch internet 
+
+Re: release results statement and finalize award diploma , irregularities case ..
+Support @ archive Zendesk.
+The internet archive team internet archive ...
+It's dispiriting to see that even after being made aware of the breach weeks ago ,I has still not done the due diligence of rotating many the apu keys were  exposed secret ,as demonstrate by this message Zendesk token perm to access 800k + support ticket .whether trying to ask general question or request removal your site from way back machine your data is now the hand of some random guy if not me it s be some ..
+________
+
+Life on scheinder
+
+Customer notification : 
+To value channel partner .
+Document envelope : I'd 2872DD67-435C-4079-A408-3DE7221E2254
+Subject : price increase on power products family announcement letter:
+Dear value customer : dues to increase production cost on our MCCB family product division ,we are compelled to inform your a price increase on this ranger as you are aware ,we have maintained our price on this range for the last two ( 2 ) years  in lieu  this will a 6% price increase on our MCCB ,moded case circuit breakers family product which includes compact nsx compacts ns ,compact ins / imv ,go pact and cvs this has made after careft consider of current condition and variouse cost factor v.
+New pricing structure will come into effect on the 1st January 2025 we understand important of these products to your operation and assure you that this decision has not be taken light our commitment to delivery exception value and support unwavering .
+- we appreciate your understanding and continue partner bteam ..
+Rsa 
+
+Talent acquisition team 
+*Schneider electric talen application ..power  system medium voltage intern role team application impressive selected to continue b,will keep resume ,, 
+Training and university college o
+Fiscal years 
+Graduate 
+Theory practical on job
+Case support load 
+________
+Eaton talent 
+
+Update around application  the job has been filed , commercial finance manager appreciate v
+Heating support 
+- engineering production.sucessfuly 
+- market Eaton 
+Produce project : 
+
+_______________
+Microsoft team  price
+Recruitment 
+Microsoft career  unify candidate poison applied AI engineering continue b up date
+____________________________
+Career metropolitan. 
+
+Request an intellectual property ( IP) License 
+- date : 15 December 2024
+
+Your details . tshingombe fiston 
+- company engineering tshingombe / peace college 
+- e mail 
+- phone ..
+- request an intellectual property IP license to use  a trademt belongings to met mayor office fo policing and crime mopsc ..
+Pg1-33
+Career ..job ..
+
+* IP MIP-329-24-01000-000
+Pg1-20
+* Request an intellectual IP license . 
+Date 27 June 
+MIP-318-24-0109-00
+* Request an interview service met office for commercial purpose such a research for book 
+*MIP - 319-24-0109_99
+Ask us a question about using the met 
+* Data right official .
+Dear tshingombe fiston , freedom of information requested reference number 01/fou/24/040452M..
+Decissiin reason ,act  proof address 
+-
+Apply to attend a misconduct hearing :
+MMH-3919-23-0100-000..
+- contact the fire arm license .
+FA-36838-23-0100-09
+- explosive regulation b
+- cnr - 50615-23-0100-00..
+* Expression of interest withdrawan 
+Met recruitment team . Dear tshingombe you have successfully withdrawan your record of interest from our system if you ave decided this isn the role for you  still interested in joining the met please a look a t other opportunities we  currently got available you can view our career here  many thanks the outreach team ..
+
+___''_
+Salesforce trailblazer 
+
+Career 
+* Https// prod- uk - a online tableau .com / #/ site / tshingombe fiston 30a602d47
+User traffic view count project Chile 
+
+
+* New Zealand defense force recruiter trade rank country combination ,career  military experience  profile 100%
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 20, 2025, 4:16 PM (12 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- st peace college 
+Reference: 
+Information management system 
+Learner on line  computer outcome online data system web published network page ,Facebook ,online line 
+Mbit information 
+Presentation 
+- certificate of achievement ,,
+In recognize of outstanding accomplished and contribution engineering , electrical compliance , assessment police conduct engineering and competent submission portfolio marks value completed week daily time table ,,,job experience 
+- pg1-1 file:/// st peace CD index certificate st peace .htm 
+- gift certificate : 
+Learner feedback note cash redemption value note ..
+Pg1f 16
+- st peace college assessment police ,and assessment engineering policy .
+Time table engineering police subject module trade ,
+Compliance affidavit ,code conduct ,
+- case studies : ECSA  rules of conduct registration  case .
+____________&___&&&&&&&
+* St peace college 
+Reference: guideline 
+Orientation policy 
+  Practical brigade sector police assessment examination evaluation library discovery ..
+disciplinary .
+Pg1-10
+* Assessment policy engineering weigh value saqa award degree dioloma supplements meet or not meet ..
+Bookmark description|| mark word min | re mark max || n1 to n6 
+Topics subject | 109 page , knowledge analysis discovery not || note book copybook exercise book review page covered extra book information || comment feedback award 
+* Trade theory electrical 
+* Industrial electronic 
+* Engineering science 
+" Engineering drawing 
+* Mathematics 
+*Electrtechnology 
+* Business engineering 
+* Organisation industrial 
+* Level write electrical 
+*Assessment police level 5/120)
+Traffic  low , management framework 
+Exam papers 
+Total value 980 PG , award ,× 1 award , outcome ..
+Reportserie number || nature occure ||| action take corrected ||• record transcript 
+
+Drawing design mark 
+__________
+Bright st peace report 
+Purpose meeting on duty academy ..
+Ob  book incit book safety politic munii permi building government ...
+Pg1-3
+
+_______
+St peace college 
+1-10 page
+Register form Microsoft 
+Event registration 
+Personality information .
+- student number : 
+Student first name .
+- student last .
+
+Leave sick .
+
+- it  device request form remoke work ..
+- expense  form 
+______
+St peace college 
+
+Reference : compat sector private supply close tendered open close private sector engineering and policy private sector assessment .
+PG 1- 10
+Services providers tender
+Curriculum information desk assessment police stationary information system design ..
+_______&__
+St peace : college and institi .. academic students brigade .
+-sectir st peace integrity guard academic officer police academy ..
+Purpose topics :
+- recruiting .
+- job requirements .
+Rank office 
+Faculty 
+________
+Time ..pg1-29
+..1.1 company marketing circulum assessment cash industrial trading and business support .
+1.2 statutorial : low labour relation skill industrial trading support services engineering .
+Vision 
+Missy . submission 
+______&&
+Program st peace college visual basic 
+- assessment engineering electrical information management system communication , administration skill manat delivery framework work 
+- assessment 3 topic subject 
+_______&
+Invitation to bid .
+Part CDs  invited bid requirements of the name : 
+-bid number | R0169241870| closing date | 2023/09/2
+| Are the accredited || if yes  ||| are you based supplier the ||| 
+Totaj number of item offer ||
+* Certificate of independence bid determination 
+_______&info @sabs.co.za ..
+- subject subject 
+- online 
+_ council planners .. statement query v..
+* ECB ,, electrical conformance board of sa 
+___&&
+St peace college 
+81..Reference 
+Portfolio 
+
+City power application form for trade assistant .
+Personality details:
+- surname: tshingombe -tshjtadi
+- first name : tshitadi 
+- age : 
+- I'd 
+Gender .
+Do you have disability.
+- are you a south Africa citizen : yes / no 
+
+- do you have a criminal record : yes / no 
+
+Qualification .
+Other qualification | name || qualification certificate || year obtained
+ 
+* Cvs  tshingombe tshitadi cv 
+PG 1-2.
+Summary : scope research 
+1.2 abstract :
+- experience : engineering electrical city power ,st peace . portfolio  evidence 
+_ administrator training and resource humain 
+2.resume and cvs :
+Course : engineering electrical work experience 
+- title / position : 
+Portfolio evidence based assessment practical topic st peace college , project research saqa .
+- award degree saqa award ..
+- panen wiring engineering , 
+
+
+
+
+
+
+...
+
+
+	
+	
+ 
+
+* 83reference: st peace ..
+Department health 
+
+* Appointment if a service provider to supply and deliver ,rdx 320 vacuum autoclave . part 
+1.introduction :
+2. Background:
+3.scopes of the project:
+4.purpose .
+- budget  project 
+Time frame :
+* Pricing schedule ..
+Name the company 
+Quotation number 2022/NDOH-0809
+Closed time 
+.item | description of goods || part number ||| quantity 
+
+* Supply chain management  dube.. confirm  our system whether it right product..
+_______&_______
+Your CV critique ..
+- cv means give honestly ward assessment some job search  job seeker competing  review.
+- visual presentation and organisational: point .
+Cv writing : career summary is not strong ..
+Digital read ess : cv is format  19% cv ,applicant tracking system , correctly .
+- CV scan test results  you can next  step ,team top cv  rwite land interview .
+- a professional written keyword optimized ,learn ,an experly 
+- A .CV ,cover letter linked profile written ,60- day interview ,see our success ..
+Most resent employee 
+____
+St peace college..20 PG..
+
+Application nsf skill fund 
+- company  phase 
+Project 
+_____
+Ref 
+The dtic  invoice : information PG 1 . referred back cancejn 
+Question 
+Form dtic project 
+
+___&&
+St peace college 
+PG 1-4
+R&D tax incentives :
+Reference outcome the application 
+
+*Dashboard .
+Overview .
+Companies:
+Projects:
+Company linking : 
+Annual report: 
+Project submission b
+
+* Dst...research and development ( R& D tax  incentives notification of change report 
+_ project programm 
+* Technology and human resources for industry program thrio  PG 1-5
+_________&
+* Reference: 
+St peace college:
+Pg1-4
+- QCTO.
+-working group wG nomination form . qualification development / review 
+1.1 nomination for the appointment as working group member proposed ..
+.subject matter expert assessment .
+Stakeholders grouping | yes
+Employee from industrial.
+Employee organisation 
+- assessment expert .
+- regulation bodies 
+- statutory.
+- training provider .
+Acceptance nomination group .
+-.declaration by accepting nominees 
+Quality partners
+_______ 
+QCTO ..
+Page 1-5
+* Scoping report template .
+
+* Scoping meeting .
+- preliminary details of qualification intended for development : qualification type , qualification title ,nqf level , credit v
+Preliminary details of skills programe intended for development 
+
+*6 analysis of stakeholders consulted for scoping met.
+- classification |number of participants where meeting 
+- work place practice .
+- professional body statutory .
+- employer associate 
+- employee associate 
+- education and training provider public .print
+- assessment specialist examiner moderator experience 
+- curriculum development specialist .
+- teaching and learning special.
+- Qcto occupational qualification part qualification skill programm evaluation checklist .
+- section qualification 
+-qualification skill | types || title desc|| 
+* Name surname contact project 
+* Name contact subject matter ..
+QCTO  .record of feedback evaluation moderation 
+Evaluation date 
+Peer moderation .
+Oeerd 
+- sect : criteria | sme response || 
+Section completed  the curriculum document of qualification part
+* Rational 
+* Purpose 
+* Entry document b.
+Rules of combination b.
+Soft skikk includ
+Foundation learn 
+- Qualification document report template : 1-3 
+*_____
+QCTO 
+With regard of n certificate please direct dhet ( n4-n6 n diploma inquiries or umalusu.. n3 or ncv  certificate ..
+The institution in question is not registered under the dhet  check college  Qcto ,,,  nqwako 
+- please Qcto Des not issue any statement results 
+
+- verification client request rejected  certificate register ,own certificate 
+- I have copied our QA unit ,they will be able to respond to you accordingly b.
+Director system monitor labour market intelligence 
+__________
+St peace college saqa 
+- reference:
+- 90674 national n diploma engineering studies statement of work experience logbook
+Statement of work experience 
+Instruction:
+Program code
+Saqa qualification I'd :
+Saqa learning proy
+* Learner details : name I'd number .
+
+Company name address , supervisor.
+
+Trade test  work in technicial .
+|Ofo- code || trade     ||. Code 
+Air condition refrigeration 
+- refrigeration mechanotechnic 
+- electrician
+- electrical mechanotechnic 
+- armature windu
+- trabt 
+- cable joined 
+Instrument techn
+Special 
+
+* Component : db design ,cabmr ,ds electrician. .
+- 
+_____________
+St peace college - saqa
+Reference 
+N diploma award dioloma 
+Research :
+PG 1-57
+Name : tshingombe tshitadi 
+Reseat career implemented circular saqa qualification engineering electrical ..work experience theoretically pratique assessment ,
+Saqa institution foreign transcript  requirements graduate award nqf high certificate no meeting leave school expended assessment 
+
+Submission | name || date || status ||| electronics certificate 
+- 200
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 20, 2025, 9:53 PM (12 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+-submissiin | name | date || date || status
+- 202303115021|| tshitadi fiston tshingombe || 2023-03-21 , pending | engineering electrical 
+- 202207125014 
+- 202207085055 
+- 202211165081
+
+*Engineering electrical where appropriate apply lubricant ,packing .
+Material in accordance specific operating , inspection checking final assembly , where appropriate signature evidence that , obtain v following , readiness vrecord , obtain errors , checking electrical equipment v, remove vrecord test undertaker electronics equipment.
+- adjusting and calibration assemble ,returning and testing repair  
+Selected 
+Terminology inspection ,metrology ,standard, calibration tolerance measure 
+Visual inspector 
+Mountain wire control release 
+Summary : current  making  
+* Report : accreditation course 
+Resource 
+* Back of the invention :  replacement defective electronics compont
+* Summary : present invention methode replacement v, provision bonding 
+* Basic connector .,type connector  classic.
+* How to use desoldering compound. , soldering ,heater  component 
+* Quality standard code : elementary performance vbold 
+* Manufacture skill.
+Performance criteria 
+Selected correct 
+Technicial drawing .
+-1 drawing check validation against job requirements or equipment 
+- interpret technicial  assembly or object recognize , dimensions are as appropriate v field of employment 
+* Purpose .
+To describe the procedure for creation review and approval of product related .tearing storage handling .
+- to describe the process filing sister architecture , description vdicgbf f ,
+- product number specificatt ,
+Writing  routing  ,I tain  and resolving the comment charge planned to control document.- control the final document review approval routine , maintaining master files quality insurance..
+Document change request b.
+
+Material control..
+* Detail draw , assembly drawing bfir instruction manual 
+Schematic assembly drawhv , diagram  machine shopping 
+Report writing ,matter policy concerned ,make routine insoectio ,wether live working 
+
+* Choosing equality control labek ,shink labeling v.improper 
+__&&__________&&&
+
+_&&&&dear. Tshingombe tshitadi fiston
+The purpose of this foreign institution enquiry service some direction accreditation and non accredited foreign ,kind regards 
+Direction foreign 
+
+_______&&&
+Application for evaluation of foreign qualification
+Non  compliant  27,2021
+The application for evaluation of foreign qualification of above mentioned does meet all saqa requirements stipulated in the application material and below outstanding .
+-application form , invoice generator 
+Proof payment ,valid document 
+Finaj award school ,diploma , degre certificate ,.
+____
+Saqa feed back complain or no complain 
+________
+The requirements and procedure for evaluation on line will the registration page ,after applying on  line  sign and submit with follow 
+A printer bout on line application b,copy of finaj award graduate certificate..- 
+26/8/
+__&&&&&
+Final ..award certificate , academy transcript 
+______saqa submitted application closing date cv 
+Saqa reference : 2923/434 senior manager ICT ... 
+
+
+
+
+
+
+
+
+
+	
+	
+
+
+84.1Reference 
+
+Sasseta v evaluation rec 2532 , hrv
+
+Weight  , responsible 
+- at wath nqf level is your hr qualification.
+- how many years experience in performing general hr 
+- how many years I. Performance payroll duty 
+- how can rate your knowledge of hr information 
+- computer literacy Ms excel and word ,
+- do have relative working b experience bin forb of duty performance your self 
+- have you suspended fron 
+- application declaration 
+100/100
+
+Lms , sdf 
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 21, 2025, 7:08 PM (11 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- reference st peace college 
+App register form ecsa   
+Register self service portal ECsA - 00125662 reference v... engineering council n...
+- reference  space  member council education ..
+
+- reference IEC 6238-1 :2018 academy master class..
+Quotation 
+Customer 1005391..
+Quotation n-002360 
+Meeting training virtual 
+
+-Reference sabs  academic ,sale 
+Webstore
+Reference: iso  academy virtually 
+
+-Reference:  sarb book  cvs profile 
+Portfolio ref no : PG -1-11 3/4/tt/tshitadi/tshingombe 
+- artisan - electronics CT , robotic process ,automation engineer bstd ,manager supervisor bank 
+
+PG 1-10
+-the referral request has been sent
+ successful.jib IRC32431..
+Job titles banknote processor , location jhb cas center 
+- PG 1-6 career job invoice 
+Career graduate student.
+Cvs - 
+
+
+* Candidate project cvs sars PG 1-1..
+Notice if appeal 
+Survey screen psychometric assessment team outcome.. registration customer..
+Ralph vill..
+
+* Reference of brigialk  of attendance . 
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 21, 2025, 8:48 PM (11 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+*reference CVS: 12/2022
+St peace college.
+* Research experience .
+- engineering electrical implemented time table to job time  company experimental trade.
+* Education : study st peace college 
+* Work  experience 
+: title / position:
+City power training / st peace college training .
+- award degree diploma saqa / award panel wiring electrical .
+- skill .
+- engineering electrical st peace 
+
+Engineering electrical visit st peace college /city power .
+* Organization :
+* Tshingombe tshitadi ..
+Skill trade theory ..
+Summay ; scope research framework study trade theory practice engineering study time table assessment allocation ..
+-abstract : knowledge study case engineering design analysis investigation .field ..
+- experience 
+- education diploma high : 
+* Practice assigny : 
+* Rubric ....
+__________________
+*Reference:
+Portfolio:
+St peace college dhet saqa nated / city power career outcome 
+- research college engineering careers join gov company department implementation time table framework college to company electrical engineering low .
+Name  cvs : title ..
+PG 1-10 
+
+.1. content : engineering electrical career project  officer outcome legislation government engineering gov .city municipal engineering theory and practice experience b
+2 . requirements : metering.
+3 . testing desktop : 
+Experimental measure data results energy recovery years research input  balance output ,res
+Metering function b... old consumption :
+Procedures,fearture
+Calculate  tendered value career total education trade .
+Subject | theory trade test | practical test | exam || exam | grand ..
+- contact nr || description || published || closure date || bid document..
+------
+PG 1-10
+Portfolio.
+
+* Strong city design policymakers practical operating at city subnational ...
+- education and education for innovation the power of digital technology  ICT   combination education industrial 
+* Vacacy bulletin ref: .. recruitment sdc @ city power co.za : completed ...
+Visited studen open day.  
+Up date 
+Technicial indicator description .kpi 
+Short definition || purpose and important || source data ||| method calculation ||| data limitations ||| calculation on type ||| reporting cycle ||| new indicator ||| desire performance indicator responsible 
+_-------------___________________
+St peace college / city power :.-
+Reference:
+Portfolio 
+PG 1-78
+Research job .. readiness experimental theoretically practical base 
+
+1.scope : research implementation framework study trade theory practice engineering study time : table assessment allocation framework regulation in government city and eskom training center development infrastructure support training training experience studen 
+2. Abstract:
+3 - purpose .
+- task 
+Step 
+* Ask / answer factor permit : 
+** Answer factor sub contractor tendered and customer value .. 
+____________
+St peace college,
+Reference 
+Dhet government 
+Experimental theoretical/ practical 
+* Engineering electrical career job workplace office engineering outcome trade engineering outcome education engineering work partnership visited meeting engineering innovation college job function to government industrial experience function job and gradient function job industrial engineering electrical and social ...
+,* curriculum ..
+* Content : engineering electrical career project office legislation government gov city municipal engineering theory and practice..
+1.2 scope of workplace engineering career :
+Summary assessment outcome education technology b.
+Department : defense ,police security :
+- dtic department trade industrial 
+- dmr 
+Science innovation :
+- purpose : assessment :
+- case study how to make calculation substation : 
+* Requirements substation ..
+,- purpose requirements 
+Requirements power station 
+Requirements: cable dimensions : ... 
+
+
+- functional principle ,calcuj effective norn ,note consultant..bureau  etude
+- requirements domain application b network 
+Table of contents : engineering electrical career job workplace ..
+* Introduction to sustainable electrical energy systems mandatory , structural of energy systems ,basic. Analytical skikk for electrical energy systems component associate with electric energy systems ,ansli of electrical power and energy conversion system mendatator for fault in power analysis and control of large network analysis and control electronics power system plant asset management monitor ...
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 21, 2025, 8:58 PM (11 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+Reference: 
+St peace college/ 
+Dst ..gov city power st peace college 
+Programm research development support ,st peace lecture and learner development under planning department high education vs saqa vs Qcto vs seta research resolved time table examination assessment police , portfolio  document system integrity police : 
+2.1 : purpose  innovation practical and practical  science technology ..
+2.knowledge .
+- strategies phasing module cvs implemented .
+- development human system 
+..
+* Basic science infrastructure : implications of research innovation mission 
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 22, 2025, 7:42 PM (10 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- reference:
+St peace college  
+Eskom. Cvs 
+
+- personal:
+Title : Mr 
+Initials : ts
+First name : tshingombe 
+Surname : tshitadi
+Rsa : tircog00910619
+* Current  total to company : R95000.00-R1100000.00
+
+.. education info ..
+Qualification | institution. || Years qualified || qualification rank || time taken to complete ...
+
+Professional registration.
+- employment history.
+| Company|| position || salary ||•outputd ||| achievement |||| start date ||• end ||| employment ||| reason for leaving .
+
+- st peace college | panel wiring ||| R 0-R10000000||| panel wiring electrical design distribution bo|| certificate award panel electrical wiring issue || 2023 / 10/25 || 2 | close tendered
+
+--st peace college / city power cv ||| student learner ||| R 9500000-R 1100000.
+||| Learner engineering || 2032 || 
+Outputs : portfolio career research college engineering gov . tshingombe fiston 2023 department of science and innovation socio economic ..gov program .. lecture and learning under planing department high ..
+--------
+* Resumes 
+Eaton career :cvs pre
+Preference 
+- skills ..
+___&_______&___&
+* St peace college : dhet ,saqa qcto
+Reference:
+Portfolio evidence low 
+
+PG 1-50
+Re: appeal application qualification occupational n diplomat award Dr congo leavers 2016 submission and transcript certificate record supplementary ,rsa completed n diplomat studies engineering n4,n3,n4, n5,n6 quality insurance body irregularities in progress marking re certificate re accreditation insurance body 2022 , irregularities transcript script material the theory electrical subject evidence practical framework scope ..
+Quality council trade Qcto ..
+- requirements 
+Title nomenclature.
+Title description : engineering electrical n studies national trade examine 
+*Section b: qualification development qualification b..
+* QCTO: scoping report template : 
+- work ...
+- registration ..
+..
+
+* Application : 
+Reference : 
+Enquiry : 
+* 15. Days work topics ...
+* Statement of work instructions n diploma ...
+..4.1.enquury : Qcto certificate accreditation : 
+* Cert and assessment occupational . requirements trade n diploma award certificate 1th , ,2 th ,3th ,4th  saqa qualification Dr congo .  
+3 purpose orientation industrial organizational planing supervisor management management system data portal student b.
+- theoretical and practical examination n diploma occupational council and qualification trade engineering studies ..
+* *Purpose practical national framework tools instructeur.
+* Theoretical framework base experience outcome basic electrical trade ..
+- purpose : entry criteria .. industrial orientation..
+- purpose learner examination completed b: applies skill electrical trade theory : explanation low appliance to subject b..
+"* Purpose : explanation low speed control of motor mean outcome normal increase  low connection 
+..
+* Purpose engineering practice component b,cabling joint armature ,DC .. outcome entry : engineering trade low work preliminary ..trade associate ,trade basic advanced ,x exposevt xl. X = work exponential ,x work operation factor product back activity b work exponents ,static analyse visa technology brating minimum , variation x= x 
+Low work x logarithmic bperminmonth 
+* 
+___&______________________
+St peace college : dhet / 
+Reference letter
+Pg1-110
+
+Re/ award diploma certificate MarkSheet transcript letter experience theoretical practical engineering n studies outcome...
+To st peace college completion letter , practical experimental log book ..
+- 1.@ section one .. profile job application n..
+- 1.2 design of reporting template : table excell ups in engineering electrical software b: .
+1.3 library iny service : sciebono career and st peace ...
+1. Technicial documentation simple business files and data during operation document size store career control ..
+- 2 section two 
+- purpose career explanation course customer training manufacture executive scheinerde electrical plc , level ecosteuxure control expert program level 2'...
+- basic requirements for electrical calculation non  computer must standard sheet heading completed filed 
+- career education graduate didactics evaluation assignment ..
+* Dtic  process manufacture trading compont conduct switch machine ac DC trade design generation transform  trade education relay 
+Invoice
+* Process claim invention b.. pcb  , 
+
+Cell manufacture  machine ,, engineering manufacturing 
+Manufacture measuyr instrument machining process ...license tradec
+
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 23, 2025, 7:48 PM (9 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+* st peace college.
+*Reference:
+Portfolio evidence low
+* Dhet tvet / college nated  plan college 
+Teach and learning plan 2022 /2023
+* Lecture dhet and st  st peace college internal external learner portfolio textbook .
+*PG: 1-30
+- part 2 framework and conceptual understanding of plan .
+*.   Aim of plan : vision college and mission college and institutr examination  subject  ..
+* Objective of the plant :
+* 5 . understanding  phylosophic  for delivery of quality teaches on and learning in tvet in tvet college teaching .
+
+* Key delivery area ..
+* Implications  and monitor of teaching and learning plant topics trade engineering national ..
+- addendum not completed response :
+* Purpose :
+Qcto : occupational qualification skill programmed  development report requirements qualification document final verification meeting ..
+* Trade test Qcto saqa .criteria measure the power of learning trademark of education testing services ...
+
+*Liken send electrician 
+* Purpose of course daily course tender provider service required trade skikk phase 2,2,3 trade test readiness close report weekend attendance 
+
+- curriculum value add assessment is subject to changed ..
+
+- purpose dhet : education input output ..
+- purpose manufacture relate theory practical component equipment trade ton max chain load diameter trade code objectives criteria ..
+
+-dhet vs sasseta accreditation assessment ,mil std safety security training merseta gov . gazette ..
+- dhet vs saqa Qcto practical work experience lab workshop workplace industrial trade purpose machine manufacture .
+- purpose instrument measure trade engineering electrical instrument measures control lab ...
+- purpose : education learner : engineering physical science engineering cover...
+_______________________________&&
+* 
+St peace dhet : 
+- assessment career job .
+- application name : tshingombe tshitadi 
+- permit award ..
+Evaluation saqa vocational framework qualification nqf..
+1.technical and vocational education and training lectures learning work integrated learning.
+- company mission vision college design conciliation practice Manuel .
+Note ,other list senior lecture office 
+- coursework specifications .
+Course work ..
+
+- course ,1 group assignment individual presentation.
+
+- icass portfolio of assessment pos .
+
+
+Name of lecture.
+- learning program .
+Subject 
+- level 
+- class group .
+* Administration of students portfolio teaching / lecturing information 
+* Name of lecture .
+* Sace registration number:
+
+* Teaching / lecture experience :
+* Workplace experience :
+Lecture appointment date .
+- lecture duty,, lecture assessor lecture declaration compilation of icass portfolio of assessment 
+- hereby declare that I have icass  portfolio administrator filed accordance policie ..
+_ statement record MarkSheet assessment..nated ncv 
+Grand total years academy 
+* Sace registration: educator name school 
+* Form ..
+*___
+*Learning management system acceptance factor for technical and vocational .
+- design work base methodology research ; criteria requirements ||yes| no|-
+- lms tvet institution  discovery important factor can help improve acceptance of lms .. motivation 
+- quality information saqa framework insurance.
+Lms stakeholders  assures online tvet teaching effective .
+- lms integrity with activity it lecture ability generator keep track student progress .
+- lms  years internet phenomenal created wold population lms  blackbord , Schoology , Google classroom according to study conducted .
+* Management syy solution ..lms learner transfer ..learner psychomotor.
+Lms system underlying..
+* Lms : development of education technology made online base course students retriever learner made available by lecture web browser b.system  system facility b that control learning .
+* Content tools  maximum delivery . 
+*  Lecture and students .
+**Student deal problem identification component or system ,students improved amphazie tvet .
+" Technology acceptance model user research to determine  measure technology based ..
+* Acceptance of information system has been tested  vary level of experience and system , accepted information technology b user have awareness bof and information description b.
+* Lms have positive perception . litterateur approach b factor infli  booleans operation .
+Lms : adaptation learning base effective . satisfaction  infot . validation accepted item  results bwhich show b..
+- item need evaluation accepted commented expert  rejected ,sq 10 
+-Adoption of the electronics portfolio management system in tvet corporation diplomatic . certificate: ..
+
+* System remaining low because is rejected  need effective framework  factor influence  positive performance 
+* Outcome based educare : methode students learning learning process , optimized curriculum planing process course goak ..
+- value  system hardware software methode communication data resource work collection .
+
+* Data analysis : after collected survey where processes  descripted were performed b.. academy using 
+* Reliability : 
+* Assessment of normality and Commons methode bias
+* Results : obtained  profile of demographics variance explained 
+* Theoretical contribution : 
+* Practical contribution :
+Limitetioj 
+_____&&&&&
+* Watch  video on theory of learning :
+* The nature of knowledge and implications of teaching 
+- scenario 
+- theory research best practice teacher 
+- epistemology theory of learning .
+- wath is epistemology 
+* Objective :
+Conginitivitui conney ..
+The nature of knowledge changing, knowledge is commodity ,nature 
+Academy knowledge 
+- academy knowledge of author form ..
+" Summary 
+- methode of teaching campusr focused 
+- scenario lecture figth the system .
+- five  perspective of teaching.
+- the origine of classroom  design.
+- transmission lecture learning by listening .
+Definition 
+The originals of lecture 
+- there technology b make relevant b
+- does news technology make lecture relevant band role for lecture in digital age 
+- why lecture still main form education.
+* Interaction lecture seminar tutorial learning by talking .
+* Learning doing 
+* Core design principles 
+* Experience design modejd
+,* experience learning in online environment .
+Strength and weaknesses of experience learning models .
+Learning by doing apprenticeship b
+- the importance of apprenticeship as teaching methods .
+- key features of apprenticeship 
+. learning nurturing social reforms modej teacher b
+- Addie's model
+- online collaborating learning : core prince inquiries.
+,g competency based learning b: wath how  design 
+- community of practice .theory behind community ..
+***** 
+* Problems statement tvet .
+Purpose studies
+.- theoretical framework.
+Method approach vs  research design .
+-
+
+Litterateur review vs  work integrated bvs workplace learning vs problem bases learning vs experience learning ..
+-theoretical vs industrial placement vs placement experience vs skill vs theory vs classroom teaching vs practice b,, 
+- data generator 
+
+-work place in industrial vs teaching experience in tvet vs company vs money..
+*Data presenting pedagogy knowledge vs using machine bvs cvs vs engineering b learning skill subjects b computer vs methodology reflecting 
+* Job purpose
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 24, 2025, 6:50 PM (8 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+* lecture eskom city power.
+Job title: trade assistant job grade task 4 ..
+Job report to team leader 
+Job preparation .
+- demarcating of work place cleaning.
+- assist in the authority erection of sco
+- comply to safety health environment .
+- identify hazard condition and fault equipment that impact overall 
+- nqf 2 equivalent ..
+- senior management ,profy qualification,skilled ,total ,male  , senior ..
+- report city power integrated report .
+- reward policy ...
+- tendered , data ,pricing ,firm , agreement contract data ..form of acceptance,formal contract , invitation, declaration for procurement above R100000, preference claim bid , valid tax clearance certificate ..
+* Technicial schedule .
+* Electrical for Qos inputs ,
+* Power supply per clause :
+* Supply protection requirements per clause 
+* Test free fall transport package .
+* Manufacture of current transformer .
+* Manufacture type designated 
+
+* Ambient air temperature ,c - 10to 4 ..
+* Altitude m 1800
+* Average humidity 
+* Level of population very heavy st..
+* Indoor or outdoor user indoor .
+* Nominal  r.m.s voltage ( un ) kv 6,6 / 11 .number phase 3
+Frequencies : 50 hz 
+- basic insulation level 75 / 95.
+- dry type current .
+- core  yes/ no 
+- material copper .
+: diameter mm
+Mm. 
+Quality assurance :
+- class accuracy  reactive .light communication optic  
+Number led kwh ..
+Load profile recording comply : 
+- programmable demand  measure kv ..
+- energy measurements data retention kvar/ kwh ..
+- data extraction comply : 
+- does meter provide  for minimum time .
+- requirements , 
+" Marking and packing 
+
+iKon* manufacture ,relate voltage ,rated amperage 1-20 
+* Installation operation and maintaining decommissioning and disposal phase requirements for environment management system b..
+* Clamp cab size 75-100 single ..
+* Manufacture.
+- does the design comply ,do the thread rod length comply ...
+
+___________________&
+Mil std 462D department of defense for control of electromagnetic interference characters of subsystem.
+- purpose :
+- application:
+- general applicability:
+- structure:
+- emissions and susceptible designation.
+- applicable  document .
+- government document drawing and publication .
+- metric units 
+- non development item .
+- safety critical .
+- test setup ..
+- joint  procurement .
+Filtering ,non government,
+
+
+  switching transient, verification requirements measurements tolerance ,
+- shielded enclosure b,
+- radio absorber material,
+- composite ground plane 
+- power source impedance ..overload ,rf hazard ,test configure b, safety ,interconnecting  leads cable ,
+- electrical mechanotechnic interface 
+- operation bEut 
+- operating frequence turn , measure b,dectorv,
+- computer controlled  
+- emission testing b.
+- bandwirh 
+* Calibration of measuring equipment ..
+* Measurement system test ..
+* Antenna factor .
+* Emincontrok requirements versus intended installation .
+- emissions and susceptible vreq
+- conducted emissions power leads 10khz to 10mhz ..
+- applicability .,limits ,test procedure ,test  data presentation ,conducted antena 
+* Transmit mode for transmission and amplifier ..
+* Conducted emissions on power leads shall not exceed applicable . Include lind aircraft .
+* This test  equipment shall , measure receivers ,currents probes ,sinal generator ,data recording device , oscilloscope ,resistor ,lisn ,setup test setup shall , maintaining  a basic. Test  , removed replaced ,
+* Calibration configure the test setup for measure system check .
+
+* Non conductive ,1,5 meters  ground , 59 termination or 50 input of measuring to power source signal output port : 52 k ,59 h , 
+Frequence ohm ,tolerance + 29% ..
+* Design methode ..
+
+Experimental measuring the band of semie conductor  voltage ,field magnetic b
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 25, 2025, 6:50 PM (7 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+* ./. Design work base methodology | criteria requirements.
+* Experience 8 measuring the band gap .of of a semiconductor.
+* Experimental ,measuring the induction voltage in a conductor loop moving within a magnetic field.
+* Experimental 4 analysing the thermodynamics cycle of heat pump using the moilker diagram...
+* Warning ,TT undefined .
+* Experimental set up 
+Power electronics .. DC/DC ..
+* 
+Experimental diagramm , results table , primary 
+* Company:
+- experimental name : verification of the transformations.ratio of the transformer .
+- single - phase power supply 230v and 50 hz ,
+- regulating transformer auto ,0-259 .
+- 2 ammeters range ( 1-10A.
+2 voltmeter ranger ( 0-500v) .
+2 wattmeter ..
+* Training system for electrical power engineering .advance..
+The transition energy industrial ..
+* ____&&&__________&&
+* Lecture have different perception of effect of internal continuously..
+- drawing from an interpy constructivist so
+* Research ext lecture and learning experience brole subject  lesson plans  are drawn  teaching learn processs  computer practice lecture  module assessment plan  indaxtire activity:
+* Monitoring effective  of teaching b 
+* Schedule v is time table  module will be assessment task to be administered  and mark  allocatiob t.
+
+* Pre assessment lecture are reqy  subject expert mark tash  process ,
+* Computer practice module lecture experience of assessing tvet  lecture , 
+
+
+* Student fail to complete  to complete programme  pratique training portfolio band logbook  , inadequate college show limitations and lack of exper ..
+*Assessment 
+* Lecture experience time constraints barrier for assessment v computer , executive internal marking : 
+* Time allocated for teaching and assessment should ensured  curriculum coverage tasked planing  implemented v..
+* Electrical trade practical sector  2 years nqf : 
+____________________________
+
+St peace college 
+* Reference:
+PG 1-46
+
+* Course engineering and technicial vocational lesson textbook.
+Education technicial and technology : course topic core : elementair, intermediate, fundamental ,phase senior teacher note ..
+Subject technicial engineering completed ../ 2023
+*Textbook engineering subject and technicial lesson 
+* Manuel guideline curriculum theory trade .children pre - engineering orientation b.
+- guideline instrucy engineering 
+2.abstract : 
+- 3.focus preparation service operational mentoring career : 
+3.1. national frane nqf n requirements career children care mentor psychosocial children ..
+- module books  designing : 1,2,3,4,6,6,8,9,10
+Module 1 : safety security policy engineering and re - engineering.
+- module 2 : tools hand engineering hand care assessment rubric formative summative  grade and phase .
+-module 3 : material conductor instructor engineering care learner and teacher .
+- module 4: field  engineering assessment moderation engineering.
+- module 5 : method instrumental didactic method measure engineering analysis analysis assignment control .
+
+- module : generator memories grade and phase engineering learning module transmission b..
+- pre requirements attand..
+
+
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 26, 2025, 5:49 PM (6 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+Reference:  
+Company experience workplace theory practical 
+
+Eaton .. design guide SA081002EN
+* Power distribution system :
+* Drawing notes: touch screens , Ethernet gate way to meter to transfo measure 
+* Generator protection .
+* Typical protection relaying for smKl generator ,,to
+* Typical component of power system , generator  : self balancing generator differential .
+* Typical application by facility type : small health facilities electrical system , single transfer switch 
+* Economic factors : typical distribution and riser diagram for commercial office building 
+* Sparing transformer system 
+* Power system analysis: breakers on symmetrical current rating basic  fault find : check capabilities , x ,r x/ r , line ground fault 
+* Maintenance and testing : typical on line paralling switchgear line up feeding the essential electrical system : other application .. optional remote PC with software touch screen  revenue metering to  switch gears 
+Reference data code standards , IEEE design letter ,ama city for conductor rated 2000V 
+* Protective relay element symbol 
+
+* Drawing notes key interlock scheme in lv switchgear 
+* Distribution equipment downstream 
+* Power system : fault calculation : 1/x= 
+* Ups types system : static conversion ,normal mode
+* Frequence hz acceleration 
+- design response  seism demand.
+Switch gear design ..
+The goal : power system with built real time analysis : design machine learning algorithm : ...-
+* Design ds : design document : construction  contract  project contract award  stage  design mechanotechnic plumbing b,correct breaker plumber.
+- correct cable  size large load ,oftentimebr*
+* Requirements : electronics  bid ..
+* Design engineering diesel partsble bank , breakers  can not close if s1 open 
+* Drawing notes key interlock , main switch ,bus ,85A,489/277v,4000A,3ph,4w breaker rating 
+- ups connection  DC ac running batteries Eaton ..
+________________________
+Reference 
+Mathematics for computer science b: revised
+Laboratory , technology Massachusetts b..
+Department bof electrical engineering and science computer and artificial intelligence ..
+* Content : wath is proof , proposition ,predicate ,axiomatic , vs proving implications vs proof by cases ,provf ..
+- the well ordering proof ,factoring intu primes ,logic formula 
+- proposition logic in computer program , equivalent and validity , algebraic , predicate formula , sequence, function, binary relation  finite ..
+- ordinary induction ,strong inducy ,state machine b machine b, state and transition ,the invariant principle ,partial correct ..
+Partial correctness recursive definition and structural induction .
+- strings ..non egative integers ,games 
+- induction in computer science .
+- infinite sets .
+Invite cardinaliy ,halting problem ,the logic set ,does 
+- prime mysteries ,
+Fundamental theorem arithmetic ,
+- modular arithmetic ,remainder arithmetic ,
+- turning code ,multiple inverse ,Euler 
+- Rsa public key encryption ..
+Whath has sat got to with ..
+- direct graph partiaj vertex ,adjence matrix ..linear order ,product order , equivalent relation ..
+* Communication between network,routing ,routing measure , network design simple graph ,vertex adjecent ,sexual demographics , isomorphism , statics bcoloring planner ,classifying polythedra 
+* Counter : 
+Sum asympy ,value, sequence repetitive b, combination 
+* Probability : event , birthday ,
+- random variable , distribution linearity deviation b, 
+Proposition statement b,o'clock ,game  integer .claim  non negative integer ..
+_ claim fault claim  easier x,y,z satisfy 
+Complex computer program b, calculation correct check colorativivity
+- case of CPU chip  manufacture  notorious past mistake methode verification program and system research .. predicate ,,perfect square  tru or false..predica become true ..
+* The axiomatic methode , proof is sequence b,justify..
+P implies if O then A call implications , quadratic formula if ax 2cbxccD o and then b- 2 ,4ac = 2a   proving reprhasing  if is even integer great her than ,2 n is sume two primes if 0 x, 2 the 3x 4xc2> 0  couple ..
+Proof theory , if 0 - 2 then 3x - 4x c2,scratch work ,claim
+
+
+- statement of contradiction n
+Case problt 
+Generality of problem staty..
+_______&&&&&
+* Industrial electrician :
+* Essential skill inventory assessment guide .
+- essential skill 
+- technicial reading .
+- numeracy 
+- oral communication 
+- computer use ,writing 
+- essential skill answer key 
+- techno ...
+Trade essential project research resource skill ..tools
+* Wath percentage of electricians are employee in manufacture and industrial education .
+* As electrician how does your average annual salary compare to other occupational..
+" Unite measure ..physic.  ...
+
+* From diagram .
+* What is whilk happened if the component in series circuit fail ..
+- how many 69w bulbs can you put on circuit , amperage ,,
+
+* Code answer .
+- what types of circuit can smoke alarm installation .
+- what are the exception .wath is wiring methode for smoke alarm ..
+- installation of smoke alarm device..shall be supplier b mix light ..rules installation prohibition by rule ,where circuit protect ,means  interconnecyin 
+* Individual  technicial skill plan ..
+- time line .mid ..
+* Occupational skill ,block
+____&&_&
+Reference: basic electricity continuing education professional development course ..
+* Technicial learning college 
+* Basic term .
+* Section electricity introduction :energy foundation ,joules , how electricity is generated ,electrical transmission .
+Post quiz
+* Forms of electricity : static magnetic electricity electromagnetic electric charge ..
+- electrical principle introduction : electrical power distribution ,electronic introduction b,electrical principle application b..
+- hydraulic analogy principle : hydraulic component , 
+* Classical mechanic : potential difference ,power resistance power current ,ac DC ,alternative..
+- circuit coil and capacity .
+- transformer : efficiency triangle ,wy delta polyphase , single phase connecting loads phasor ,power factor ,single phase transformer identify circuit interrupter b..
+* Electrical motor : motor lubrication ,electrical motor induction
+..basic home electricity ..
+_&&&&&&&&
+
+...
+
+[Message clipped]  View entire message
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Jul 26, 2025, 9:12 PM (6 days ago)
+
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+- engineering : is the 
+Wikipedia  PG 1- 10
+Engineering discipline skill professional and applying scientific , economic , social and practical knowledge in order to design and build structure machine device system material and process , American engineering council ,abet ,the creative application of scientific principle to design ord development structure machine apparatuse .....
+* Contents : 
+- history :
+- ancient ara ,: pharaob 
+ Renaissance era 
+,moder era ,
+- main branches of engineering..
+Methodology .
+- problem solving .
+- computer use ..
+* Social context .
+- relationship with other discipline .
+- science .
+- medicine and biology .
+- art 
+______________
+*Further education and training, saqa  . certification electrical engineering: 
+Saqa I'd :
+_______&&
+Reference Wikipedia 
+1-60 system 
+- intro to civil environment engineering :
+- background : responsible  treatment sustainable  student mentoring ..
+
+* Survey and site development : lecture topics : 
+
+- introduction .
+- measure 
+
+- measure .. topological .
+* Geographic information system : introduction to global positioning 
+- history civil discipline 
+Civil engineering discipline and educare 
+- education 
+- practicing engineering 
+- sub discipline, construction, earthquake engineering , forensic engineering, geotechnical engineering,material science , survey , transportation, municipal or urban engineering ,water resources ,civil engineering ..
+--+++-
+__________
+Engineering drawing textbook practice 
+Defense ...
+______________
+Electrical engineering course :
+- introduction.
+- the single phase 
+Reminder on description of sinusoidal , introduction 
+Study balanced .
+- single phase transformer ,reak transfi ,DC machine , engineering operation ,creation field ,synchronouse machine , asynchronous rotating ...
+_________
+Department health  examination .
+Health electrical mechanotechnic engineering certificate competence : 
+Introduction b, acceptance 
+
+- exemption :
+- summarise procedure : 
+- mines certificate : 
+- acceptable trade and experience :
+..trade in the apprenticeship has served | minimum appropriate post apprenticeship experience general maintenance b
+
+- trade : electrician ,armature winder || 2 years  : general electrical maintenance >
+- n diploma 
+* Syllabus plant engineering : theoretically ..
+- safety manager 
+- electrical technology..applied thermodynamics..
+-structutesand strength material .
+- theory machine 
+
+*Practical knowledge..: 
+
+- planing and commissioning of project operating planned maintenance,
+- testing repaired  motor phasing synchronism  motor operation fault discrimination..
+__&&&&& .
+St peace college 1_50pg 
+
+syllabus health safety act mining , section minister power , general provider regularly 
+____________
+
+*Reference .
+St peace college 
+- mil - std 1285D.
+
+Fsc ,fuses fuse holder , lightning arresters , electrostatic dischars and telephone protectors ..
+* D1 scope : 
+-  requirements military electronics design ..
+- applicable document .
+- general requirements b:
+- functional marking .
+- terminal identify : acquisition document light arrest ,line ,load ind icator,
+- part identify marking : 
+- other functional marking : electrical circuit diagram ,cautionary marking marks , assembly b ..
+* Identify number :
+- manufacture source code name of trademark ,
+- current rating  when applicable .
+- date code when applicable .
+- other rating and marking  when applicable b.
+
+_________&&
+PG mil std - 13231..
+Note  indede user issuer of dodiss 
+Marking for shipment.
+- seriaj number .
+- air transportation item .
+- reprocurement : 
+- permanency and legibility btesr .
+- subject term listing .
+* Name and caurinbplate .
+Cautious b.
+- priority of identification information on parts assembly b.
+- marking 
+-------
+
+Mil std ,1000; 
+Design bactivity  tank automotive command werrentsymbiotic ,gage code
+
+ drawing format size letter ,drawing ubering  duplication of assignments system be based.
+Responsible transfered ..
+- item pin . requirements, interchange ,reparablf , meeting requirements b.maintening design bredras original bactivity v
+- contractor manufacture ,commender defense service logistics center  batlr ,total length 
+
+________
+Mil 
+
+Introduction to system eny management 
+- system engineering management in dod acquisition.
+- the system engineering process .
+- requirements analysis :
+- functional analysis and allocation.
+Design synthesis .
+- verification :.system engineering utput ,:
+* System analy and control ,..
+Work down  structural 
+- configure manay.
+Technicial and audit
+Trade studies .
+Metric
+Rush.* Planning organizing and managing 
+- system engineering planing  
+- product improvement b
+- organizing  and integrating system .
+- contrsider..
+
+__________
+* System engineering fundamental ::
+- general.
+Application.reference document 
+Description.facikity ground system.
+- ground and power distribution system .
+- electrical noise communication 
+- bonding ,shield grounded relation ,safety practice 
+- earthing electrode subsystem ..
+- light discharge .
+Fault protection b sut summary v,resistance reauirebrb 
+,- soik measure one electrode terminaj methode , water pipe ,resistance property .
+__&&&&_&&&&&&&
+Mil std 1323 ..
+Scope ..
+- application .
+
+- general .. government 
+-; specifications v, document government and non goveyv.
+- assembly .
+- commercial and government entilr gage ..
+- commercial cots .
+- container ,decalcomonis
+- design activity,
+- function marking .
+- join electronics type design .
+- manufacture  identify b
+- nati supplier code for manufacture 
+- order  ,
+- party identify b number pin 
+- procuy instrument 
+- sets 
+- selected item drawn 
+- sequence of marking. .- general , nomenclature ,join electronics design ,army nomenclature 
+Inspector stank .
+- special character ,
+- contractor and government entity cage .
+- identify bmarker equipment .
+Uniquely .
+- limited .- used pack .bag 
+- reference designated government v.
+Reference 
+- derayj .
+- type number manufacture 
+- electron tube 
+- electrician electron parts and printed wiring board,name plate ,soecificatitn
+- I'd contev 
+- marking battery circuit .
+- warning label .
+- high voltage notice 
+- radioacty material 
+- non ionizing  radiation .
+- technicial litery
+...
+
+	
+	
+ 
+ 
+
+* unified facilitate guide specifications .
+Part 1.General .
+- reference..
+- definition:
+- submittals:
+- quality assurance:
+- installation drawings :
+- standard product 
+- alternative qualification 
+- alternative qualification 
+- material and equipment .
+- material and equipment manufacturers data .
+Warrenty 
+* * System description:
+- selection criteria.
+- powers meters .
+
+- voltage requirements :
+- current requirements.
+- electrical measurements.
+-meter accuracy:
+- an on the meter display output and reading capabilities.
+- installation methods .
+- disconnecting switches :
+- meter programming :
+- communication :
+- communication methods .
+- optical port : 
+- serial port : 
+- Ethernet : 
+- communication protocols and methods 
+- communication channels surge protection : 
+* Meter data protocol :
+* Open protocol 
+* Transformer mounted  meter system schedule ,base ..
+Milliamps signals, outcome 0-1 mA or 4-29mA,, alarm outputs for alarm control 
+
+* Submittal '::
+*_________________
+Reference: 
+Support: 
+Product system support process:
+-organisational level support :
+- intermediate level 
+- depot level support : 
+- product system disposable :
+- analysis of the .
+- kills and competence : 
+Engineering competence : 
+Aligning engineering 
+- ORGANISATION engineering activity sandf : 
+
+- technicial service role :
+- integral .
+- identification of the core competencies of the sandf .
+ - approach to structural 
+- approach to tech :
+- introduction :
+Vision , mission , objective 
+- acquisition: 
+Overview 
+- the engineering professional : 
+-; system engineering activity .
+- the operational and support life cycle phase of product system 
+
+-- introduction to the manage expertise ,process competence,competence integration ,culture , ORGANISATION learning, he manages project b.
+- project stakeholder :
+- description..
+- ORGANISATION transforme .
++Strategic analysis ,:
+- competitive advantage :
+Knowledge expertise  skills 
+- competence 
+- competence process .
+- competence process , competence integration , competence , 
+- organisation learning ,
+Management project ,project stakeholder 
+- description of programme and project management 
+- contracts and agreement .
+- project team :
+-roles in project :
+- project life cycle : 
+- undertaking where project is appropriate v;
+- value system and value chain overview :
+Value system .
+- the product life cycle  and vLue :
+- organisation transformer : 
+- analysis strategic sandf 
+- ORGANISATION 
+- competence area .
+- introduction to key succes factor :
+- key success factors :
+- environment organisation 
+- five force analysis 
+- competitor and product portfolio analysis 
+- client analysis and market .
+- environment dynamic 
+- finding analysis key success 
+* Statement of problem :
+- rsa defense vision 
+- constitutional aspect 
+- defence white papper .
+* _rsa army engineering schools v, original ,insigns , previous , curriculum ,phase engineering ,combat engineering 
+* Training basic of militaire engineering 
+Mine warfare, basic field engineering ,user power tools. , obstacle and defensive ..watermanship ,bridge building, demolition, 
+* 2 phase military engineering training specialization 
+* Engineering regiment during operation ..
+* ____
+* Military science career 
+Bachelor of militaire science real life  faculty skikk defense force .
+*Subject:
+Degree what you 
+Career 
+- organisation and resource manage : the minimum sandf requirements ,,technology
+____________________________
+Security information,/ management system information security v: 
+*Description:
+* History and development .
+- secure network programming 
+- SSL 1.0,2.0 and 3.0
+-TLS 1.0
+TLS 1.2...TLS..
+* Digital certificate :
+- certificate authorities .
+- algorithm .
+- key exchange or key agreement .
+4.3 data integrity .
+- application and adoption 
+- websites.
+- web browsers.
+- libraries.
+- other uses .
+* Security : 
+SSL..2.0
+Ssl3.0
+
+* Attacks against TLS /SSL
+* Renegotiation attack.
+- downgrade attack : freak attack  logiam attack .
+- cross - protocol attack drown .
+- beast attack .
+- crime and breach attacks 
+- timing attacks on padding 
+- poodle attack : 
+- RC4 
+.turncarion attack .
+- unhology pack attack 
+- sweet32 attack .
+- implications errors : hearthbleed bug , berserk ,attack 
+Cloudfare bug .
+- survey of website vulnerable to attacks .
+* Forward secrecy .
+- dealing with man - in - middle attacks .
+- certificate pinning .
+- perspective project 
+- DNS chain 
+* Protocol details :
+- handshake 
+- basic TLS handshake.
+- client - authenticated TLS handshake .
+- session IDs
+- session tickers .
+- TLS recird...
+______________________
+- reference security 
+- introduction :
+- background to the study:
+- research aims :
+- limitations of the study :::
+- research form approach
+- summary 
+* Information security policy standard practice :
+- introduction :
+- five pillars of information security 
+- identification and authentication 
+Authorization, confidential,integrity,non repudiation,
+* Information security from business , information protection: 
+It security b standard v
+- is 
+- common criteria :
+- other development :
+- summary 
+* Compliance issues reported on the global territory .
+Introduction : 
+- critical success security v
+
+- global information security survey research : 
+- information security breaches survey b.
+Online survey security immaturity: 
+- computer science corporation 
+Compliance ccma labour security 
+- cybercrime telecon network :
+- comparing other development countries different 
+- diffence and specifications b
+- Ed culture 
+* Research methodology b: 
+Introduction b.
+- technicial for data collection b,highft response ,flexible , identify ,faster approach process.
+* Sample design probably 
+Size calculation b hypothesis b
+- testing conformance to security standard .
+- testing presence and application security v policies . testing compliance 
+- testing measure practice of security kpid ..
+-;testing between characters implemented practice b...
+-; hypothesis testing 
+- nonparametric test 
+- statiscal test ..
+Response 
+- analyse of responsibility .
+- analysis of information security practices perpecub..
+* Reason security strike policy balanced protection core resource learning , court  dataprocess .
+
+
+
+
+
+...
+
+	
+	
+ 
+
+- 
+.. handshake protocol,alert,changed ,primary 
+Code | level type | connection stare
+- warning | connection or security may be unstable .
+- fatak | connection or security may be compromised or an unrecoverable error has occured .
+_ close notify | warning fatak || notes
+- unexpected message | Fatah | 
+- bad record Mac | fatal|| possibly a bad ssl implemented pay load had temped fto fire walk rule ftos server
+- decryption failed ||| fatal || TLS only reserved 
+Record overflow || fatak || TLS only reserved 
+- decompress failure || fatak 
+,- hand shaj fatal  
+- no certificates / warning / fatal ssl 3.0 reserved up
+
+
+reference: 
+
+
+
+User guide intelligence fencing system .
+- introduction : high voltage sensor fence awk ...
+Circuit guideline: 
+- points remember : sensor determine if a drop voltage fence requirements maii voltage falls set point value yellow indicator light up  voltmer  to DC put is probe  points pads vr1  ..
+- led indicator : 
+Source ,7 volts 
+- vr1: point value factory preser at 2.5 v .
+Vr3 user adjuster ni volt alarm factor
+Device wiring to fencr ,siren piezo sounded battery 12 v, relay 12 v , ground
+* Suggested latching relay diagram , maintenance .
+- installing the fence ..
+- connection from the rg - 7782- security panel   alarm security b, battery connection ...
+* Multi wire fence ,
+- enclosed area ,, charge wire , insulation,return ,feed , ground rod , high voltage ground rod 
+*Intelligence 1 years limited warenty purchase ....
+Repair replace ..
+Safety integrated labour CCTV 
+* Perimeter fence good .
+*Consumer electronics : security alarm , networking 
+* Overview : druip 18 is powerful version of drud 15 LCD  out joule 500 load intelli is ideaj serie fensr 
+* Feature : LCD , display , background vcolour LCD display , druip , quick walk test mode .
+- high voltage monitor on note sysfeb ,earth wire monitor alarm there is temper , easy use tag switch for control the unit if the keypad option .
+- connectable to an armed  response radio .
+- gate monitor 
+- lightning and power surge suppression built in .
+- internal battery backuo system in case failure b..
+* Specification :
+- high voltage output : typical energy 500ohn load joule , voltage 9009 v ,alarb  number zone 2,number earth zone 2 ,, resucit,yes
+- energy contrin and display : keypad for remote contrin energy 2 max tag switch to control the energetic without ,yes ,remote,on / off input ,yes displacement the outputs return voltage yes 
+- gate and panic button input .
+- timed gate switch input ,used to monitor open and closing of the gate yex .
+- panic button input yes.
+- alarm output : siren output ,time programmable yes .
+- strobe light output to visual indicate  an alarm condition .
+- power supply and battery backup system .: mains supply voltage : 239.
+- typical power consumption under normal operating condition ,18VA.
+- internak battery backup system in case of power failure capacity of batteries :7ah
+- typiy standby time with fully charge battery ,24 hours .
+- solar powered panej can connected power energy b.,60watts .
+- solar voltage regulator deep cycle battery size ,5 amo ,
+- recommended in amon hour ,29 % discht ..
+- wire length per energy live wire in series system both .
+- galvanized wire ,1,2mm optimal performance maximum 8 km .. stainless wire steel ,1.0 mm  grade .optimsj ,0,7 km ,max 1:km ,,to 19 km...
+_______________&&________________
+* Fundamental of electrical engineering : license b
+- introduction :
+Signal rpresent  ,analog ,digital , structural communication systems :,. fundamental signal , 
+- community information  signal ..- signals and systems : complex number , calculation bcomolex..
+* Circuit with capacitor inductor ,impedance ,time frequencies ,power in the frequency 
+- equivalent circuit b,
+- transfer function :
+- design transfer function : 
+- formal circuit  node .
+- node method .
+- power conservation circuit b, electronics b,operational amplifier b,invented amplified ,active filter , 
+- intuitive way of solving ,op - amo 
+- the diode ,andlog signal prices processing .
+- simple circuit analysis ,solving  resistance , superposition ,.- thevenin and mayer ,.- detective work ,bridge circuit b, Cartesian plant .
+- cook curve ...
+- trigonometry identify and complex ..
+- transfer function b..
+- using impedance b
+- measure chais ..
+- simple ,circuit 
+- power transmission .
+- optimal transmission ..
+- optimal power transmission ..
+- sharing chanej ..
+- mystery 
+ - long  and sleepless .
+- a testing ,
+- black box circuit .,analog  hun rejected b.
+- a simple circuit .
+- an interesting and useful ..
+- circuit v analog computer ..
+* Element signal ,sinusoidal ,complex exponential ,unit steo ,square wave ,signal ,discretion time signal ,
+- reak and complex valued signal .
+- complex exponential b.
+- sinusoidal , 
+
+- symbols  value ..
+- cascade interconnection , parallele interconnection .
+- feed  source ,amplifier ,delay ,time reverse ,derivative system and integrator .
+- time  problem 
+- discovery root , 
+* Analog signals processing : voltage ,current , generic , circuit .
+- ideak circuit elements , resistance,caoscititb ,ideak reak word ..
+* Oscillating am radio 1-mhz ,196 mhz ,,
+* Phase  determine ( t= 0 ,l
+* Communication information with signal  modulator career b..
+A=AO(+kT) ,AO and are ..
+Problem ,RMS roots ,+ t)=s(t+T) ..
+- whao period 
+
+Wath is modem ,modulator  demodulator b connecting ocbdigitsj  chsndj  binary  transmission ,1 anscence 9 , 
+-;what is smallest transmission b interval bf ...- classic communication block diagram applied ,,advanced mo
+
+Block  diagram , transmission ,x+t) ..de 
+ASCII , 
+...
+
+[Message clipped]  View entire message
+ 	
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Sun, Jun 8, 4:48 PM
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+-1. Contents : taking a Microsoft office special exam .
+- selecting a certificate path
+- test taking tips
+- certificate benefit.
+- using for a certificate exam
+- working in the Microsoft office fluent user in interface .
+- using the companion.
+- CD contents .
+- minimum system requirements.
+-; minimum system requirements .
+- installing the paratices files .
+- using the practice files .. getting help 
+.
+____$$$___&_____________________
+- using Ms office 200
+Create and format ,doc 
+- template 
+- bordes and background themes .
+- lay out document.
+-page setting head and footer .
+-- properties.
+- table of content 
+- index .
+- bookmarks 
+- cross reference 
+- hyperlink 
+Personality 
+- common setting, research review..]>>
+- formatting content 
+- format text and program character formatting 
+- paragraph formatting 
+- styles
+- quick stylea
+- line break and hyperlink.
+- manipulation text .
+- copying and moving , finding .
+_______
+- working with visual content 
+- insert illustrated 
+- picture 
+- shapes ,
+- smart art diagram 
+- sizing art diagram
+- sizing position 
+- format illustrated 
+- cropping rotating 
+- stacking order 
+- groupe .
+- alignment and district 
+- format text graphics 
+Word art drop 
+----organizIng content 
+- structure conte by 
+- building block organization 
+- customer quick parts 
+- use table and list .
+___________________
+- modifying table 
+- table structure .
+- table formattt
+- text align 
+- calculation 
+- insert and format
+- reference table 
+- merge document 
+- data source .
+- labek source labek envek
+Envelope 
+- ibjecty
+-- objective 
+_________________
+Review document 
+- navigation docuy
+- navigation truc 
+- compare 
+- document version 
+- tracking .
+- insert, modified.
+
+_______________________________
+-sharing and securing content .
+- prepare document for shary
+- file formats .
+- compatibility checker.
+- document inspector 
+- editing and formatting 
+- password 
+- right management 
+- finalizing 
+- attach digital signal 
+____
+* Using Microsoft office 
+Creating and manipulation data .
+- insert data by using autofill
+- filling service 
+- copying data .
+- ensure data integrity.
+- data entry restriction 
+-;input and error message 
+- duplicate rows
+- modify cell content and format 
+- charge worksheet 
+- change work.
+View 
+- zomm levej .
+-programev
+________
+Formating data and content
+- format worksheet .
+- them
+- gridling 
+- worksheet taos 
+Worksheet modify .
+- inserting deleting .
+- creating modify.
+Red data informer 
+- cell ref
+- worksheet ref summarise 
+Summary data using 
+- look up Dara con
+___collBoratting securing 
+- management workbook change ..
+- comment
+- protect and share 
+Password 
+- workbook protect
+Work sharing .
+- permission diitaj signature finalizing save work, companies set print data worksheet print area page work. 
+______ insert modify column ,
+- insert deleting ,format cell and cekk ,built number format ,merge cell formatting 
+- presenting Dara visual ,create and format ,flooring ,layout chart moving chart apply insert illustrar , picture vsmarr shapest 
+ 
+tshingombe fiston <tshingombefiston@gmail.com> 
+	Sun, Jun 8, 7:55 PM
+	
+	
+to me, TSHINGOMBEKB 
+ 
+
+Using Ms power point .create formatting presentation.
+- creat new present.
+- blank present .
+- template .
+- outline .
+- customize slide .
+Themes .
+- background 
+- add element to slide .
+-:add element to slide .
+- layout .
+- content place holder .
++ Customer element .
+- creating and formatting 
+- text boxes .
+- size and position 
+- shape 
+- basic formatting v
+- working with visit contev 
+________ collaborating delivering presenting 
+- review present .
+- protect present .
+- compression 
+- finalizing 
+- prepare printed 
+Material ..
+____
+Using Ms out look 
+- managing message .
+- create send e mail message 
+- send 
+- replying and formawardind 
+- automated message .
+- message .
+- attachment .
+- saving confu .confirm e mail security 
+- permission .
+_______
+- flags .
+- scheduled delivery 
+- receipt 
+- email view 
+- e mail 
+- reading pane 
+- management 
+- recruiting ..meeting requirements 
+- task management accepted decline assignment update ..
+
+- managing contact personality creat modified .
+- organization information .
+______ using Microsoft .
+- structures data base 
+- define do data type 
++ Table analyse 
+- creating data ..input mask validation.
+
+	
+ 
+
+- networking academy.
+-;lab how connected .:
+- objective : survey 3 ,4 parade each 
+- background source :
+- requirements resource:.- stept 1 create a spread sheet similar to the the one ..
+
+- hour 
+Person | age 43| gender | device | task | time in|™
+-; summarise find 
+- average , amount btime spend connected interview .
+- gender ..
+- information way business address..
+
+___________
+Lab : introduction to Arduino 
+Object : 
+Part 1 : installing the Arduino ide software 
+-:part 2 using the Arduino .
+- background to control hardware lab learn .
+- requirements resource : Arduino res boos .as cable for connection .I led 
+Name is . publish ..
+- device manager 
+- portable .
+- local pin 13 pin ground Gnd ,run sample code ..
+- run simple code launch Arduino to used ..
+- ______lab basic python 
+Programming :
+- objective .
+- part 1 : launch virtual .
+- box enter 13 IOT 
+- server vm 
+- part 2 : python box .
+- part 3 IDLE for Putin .
+- background : puton .. scenario in this lab  learning basic python programming soecificaj module v.
+- reauire resource : 
+- a modern personal computer with internet access and rom ..
+- virtual box with 1120T server installer ..
+- part 1 launch virtual software virtual .12IOT server step box 
+-lab IOT related job and learning  opportunity.
+- objective : purpose lab learning.
+-;part 1 : identify true iot related.
+- part : research available description .
+- part 2 .
+- background scenario .
+- requirements resource.
+- req : web browser to research job current available internet of things .
+- identify doc job design 
+- determine ..- explore learning opportunity google b.
+- compilation a dabase of IOT related job and learning work .classmatt req ..
+- reflection are  3 pattern ..
+________
+Lab using excell to forecast 
+- objective .
+- input data into a spreadsheet 
+- background scenario .
+A way predicting value future base ..
+- requirements options go .
+- input data Ms excell 
+-data | 
+- b : perform calculation .
+> >>1+2
+3
+>>>2*4
+8
+>>>6/2
+3.9
+C)
+Print text string 
+>>>" How are you ..
+C ) use the type ( ) command ..to ..
+
+
+Lab : research intent based network ibn .
+- objective :
+Part explore the Cusco intent based ibn ..explore ibn community..
+Background scenario network scenario network connect adapt protecnorify base platform capture ..
+- requirements .
+- explore Cusco intent step .
+- part introduction : .step ,wath steo started make intent wish .create intent 
+
+	
+
+- requisition for procurement:
+| Requirements number | date receiver
+Department it | project code|™ estimate cost : 500000009,budget funding source ,, approved 
+-: description good or service | unit | approx cost unit | approx total cost 
+- remote 
+- tv
+- office 365 power point wireless presenting pointer 
+Computer machine PC lap top ,charger libraries hand book office digital 
+System info 
+______
+Submission:
+-enquired
+- author :learner 
+Position -data ..
+______
+Document attached route for
+- quotation..
+1.purpose : procure screen wireless ..
+2 .project / prograbb background : it department ,ICT ..
+3. Analysis main consideration 
+
+- financial implications : 
+Item | quantity | estimate cost 
+Recommend amedes ..
+Reward award ...
+
+______________
+Education library workshop panel 
+Time table lab 
+Research cost reward file studen portfolio cost buyer saling research .
+Education industrial lab learning.
+
+	
+ 
+
+Purpose:Research material didactics...
+Didactic learner psycho skill...
+
+ base theory frawork theory practical info management system... Policy . safety,security mil ...
+Civil low research : info computer network..communication policy vs policy arkhase radio fix ...
+It intelligence system dod vs dod communication report ..modem policy vs model regulation mil policy enforcement low ... regulation justice mil correction policy voice router stand by interceptor module rada system....
+
+	
+ 
+
+- completion module : 
+Magazine research ..news paper ..career path library 
+
+
+-client oqnent development:
+- structural engineer:
+- quantity surveyor:
+- project manager:
+- steewoek contractor and .
+- structural steel detail .
+- metal roofing and deck .
+- bank desk installation.
+- roofing and closing .
+- steel work .
+-load 2.0kpa
+- max : 500kg .., 60%
+- 15m.
+- load ..
+_________________
+In the consulting engineering business .
+- overview :
+- engineering industrial .
+- architecture scientist.
+- depending .
+- skill group.
+- client control of project schedule.
+-: introduction: work service .
+-:project is definitely .
+- project.
+- project report.
+-project successful rate infrastructure..
+
+* ORGANISATION:
+- technical manager professional 
+- practice theory.
+-Domain project technical.leader meeting.
+- design concipitean .
+- complerin design.
+* Project manager: 
+- project manager professional responsible successful planning design executive time budget project .
+- project oversee
+- effect of dual management function.
+- ensure effective control of project schedule culture technical.
+- client engineering 
+- decision making .
+- superiority conflict 
+- team attrition.
+-afforalability .
+- Holo effect .
+* Dual - management function impact assessment 
+- project scope time cost quality.
+- important scale range it set from very was selected nior and junior management rated any .. project .
+- strongly impact project function experience on days to day basic on projects 
+_____________.
+- arch PC tow.
+- introduction.
+Project team:
+- client .
+- property.
+-; development 
+-architecture.
+
+- and facade .
+- structure.
+- construction.
+- steel fabrication.
+-; fabrication faced.
+R1,5 billion project .
+-;450000m2 office , 3500 employee 
+- concrete fromee
+. structure ,closekwize ..
+________________
+- engineering civil:
+Land mark pwc town.
+- from
+- on the cover
+- profile
+- joint structural division 
+- structural engineer 
+_______________________________&__
+- reason term piling design [ reduces |
+- tab : driven cast in situ versus pilling from contract award 
+-pilling design .
+-client site temporarily 
+-:pilling work 500 m day
+- client site client up piling .
+- client site 
+- client pile head trimming handover half piling .
+- client completed pile .
+- ref piling .
+- client :150 m day .
+- trm site clean up ( n/ a.
+- client start pile cops week 5-1.
+- client short completed pile..
+
+_________
+1|2|3|4|5|6|7|8|9|10|22|12|13|14|15|
+Weekend 
+
+
+- structural division:
+- verification and ecsa ,iso 90000
+- structural engineering competence.
+| Outcome.         | Assessment criteria 
+-communication environment| proof bodies 
+|Produce viable |
+|Scope of design 
+Toking stability 
+Durability 
+Determine 
+Document 
+Form and size
+Special 
+__________
+Legislation government 
+- procurement 
+- quality assurance 
+- brie accord
+- two different development 
+- implications 
+- structural using 
+- compliance criterion 
+- general arrangements section and elevation connect 
+- connect 
+- properties primary concret 
+- testing procedure 
+- storage and handing 
+- basic construction 
+- construction..
+________________&&&&
+- timber engineering research 
+- reduction import load .
+0,5 kn / m present of 0,25 kn/ m 
+- 0,67 load 
+- characteristics is the ,,1,5/0,67= 3.24
+Eurocad ,kmod = 0,6;
+- 60% ,totsj load  rest of loading a ...
+Emean fin = Emean / ( 1+ alph 3 x kdef ..using 
+
+Emean module elastic k is factor . Evolution,alpha is a value action 
+
+	
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+•	experiments.
+•	Didactic approach: The multidisciplinary laboratory covers from the most basic concepts of electrical engineering to the simulation of more advanced configurations and network topologies.
+•	Skills development: The didactic experience allows the student to simulate different real life scenarios and acquire analytical troubleshooting skills through practical hands-on training.
+ 
+SOLUTION LABORATORY FOR POWER ENGINEERING 
+Read more 
+ 
+GENERATION, DISTRIBUTION, TRANSMISSION 
+The electrical energy is today an essential factor for the industrial and social development of any country. It is commonly obtained from non-re-generative sources such as fossil fuels, and as consumption per capita and population grow, its limited production needs to be efficiently managed to satisfy the increasing world demand. Modern electric power systems have grown and expanded geographical…
+Read more 
+ 
+POWER PLANTS 
+The generation of electrical energy consists of transforming a type of energy (chemical, kinetic, thermal, light, nuclear, solar, among others), into electrical energy. For industrial generation, facilities called power plants are used, which carry out some of the aforementioned transformations. These constitute the first step of the power supply system. As energy consumption will continue to in…
+Read more 
+ 
+SMART GRID 
+The term Smart Grid is used to refer to the smart electrical distribution network. They are basically electricity distribution networks combined with modern information technologies, which provide data to both electricity distribution companies and consumers. To provide intelligence to traditional electrical networks, telematic reading counters are added, that allow to know real-time consumption…
+Read more 
+
+
+
+
+
+ARTIFICIAL INTELLIGENCE 
+In the didactic laboratory for the development of Artificial Intelligence solutions, the challenge-based learning (CBL) approach focuses on providing students with practical, real-world challenges that allow them to apply theoretical knowledge in specific situations. Rather than simply presenting information passively, this approach engages students in solving problems and creating innovative solutions. Students are faced with challenges that simulate real-life and industry problems, such as process optimization, anomaly detection or efficiency improvement. Using the hardware and software available in the lab, as well as artificial intelligence tools, students work in teams to develop practical solutions that address these challenges.
+•	
+ 
+LABORATORY FOR THE DEVELOPMENT OF ARTIFICIAL INTELLIGENCE FOR COLLEGES
+DL AI-BASE
+
+•	
+ 
+SEMI-AUTOMATIC ELECTRIC MACHINES LABORATORY WITH ARTIFICIAL INTELLIGENCE
+DL OPENLAB-SA-AI
+
+•	
+ 
+EQUIPMENT SYSTEM FOR THE STUDY OF INDUSTRY 4.0 “SMART FACTORY” ENHANCED WITH ARTIFICIAL INTELLIGENCE
+DL I4.0 FACTORY-AI
+
+•	
+ 
+SMART GRID ENHANCED WITH ARTIFICIAL INTELLIGENCE
+DL SGWD-AI
+
+•	
+ 
+LABORATORY FOR THE DEVELOPMENT OF ARTIFICIAL INTELLIGENCE
+DL AI-2.0
+
+
+
+
